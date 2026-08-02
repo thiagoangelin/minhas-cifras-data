@@ -1,0 +1,91 @@
+Roupa Nova - Magica 
+ 
+ 
+Intro: Bb F Bb F Bb F Bb Bb/C 
+ 
+Bb            F  
+Eu sou uma palavra  
+   Bb          F  
+Na letra da canção  
+    Bb             F  
+Que vai no som da música  
+  Bb            Bb/C  
+o seu coração  
+Bb            F  
+Eu faço num segundo  
+  Bb          F  
+O mundo adormecer  
+    Bb          F  
+Só pra poder estar aqui  
+   Bb         Bb/C  
+Sozinho com você  
+       Bb F  
+Fica comigo  
+Bb        F  
+ Eu não peço mais  
+        Bb          F  
+Que uma vida apaixonada  
+Bb         F  
+ Sou quem vai restar  
+       Bb               Bb/C  
+Quando não houver mais nada  
+ 
+Refrão (2x)  
+F           Bb           F  
+ Vem que eu tenho pra você  
+     Bb         F  
+Meu amor e proteção  
+     Bb          F  
+Toda mágica contida  
+      Gm7        C7  
+Na batida do coração  
+ 
+Bb               F  
+Eu vibro no seu quarto  
+    Bb          F  
+Na luz do meu amor  
+  Bb             F  
+Até que tudo ao seu redor  
+  Bb             Bb/C  
+Derreta com meu calor  
+Bb             F  
+Eu paro a madrugada  
+   Bb          F  
+Na hora da paixão  
+    Bb            F  
+Pro tempo não tentar medir  
+   Bb             Bb/C  
+O amor do meu coração  
+       Bb F  
+Fica comigo  
+Bb       F  
+ Eu não peço mais  
+        Bb          F  
+Que uma vida apaixonada  
+Bb         F  
+ Sou quem vai restar  
+       Bb               Bb/C  
+Quando não houver mais nada
+
+Refrão (2x)  
+F           Bb           F  
+ Vem que eu tenho pra você  
+     Bb         F  
+Meu amor e proteção  
+     Bb          F  
+Toda mágica contida  
+      Gm7        C7  
+Na batida do coração  
+ 
+Bb F Bb F Bb F Bb Bb/C  
+ 
+Bb       F  
+ Eu não peço mais  
+        Bb          F  
+Que uma vida apaixonada  
+Bb         F  
+ Sou quem vai restar  
+       Bb               Bb/C  
+Quando não houver mais nada  
+ 
+Refrão (3x)

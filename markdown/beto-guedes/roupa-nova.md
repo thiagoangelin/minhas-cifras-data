@@ -1,0 +1,49 @@
+Beto Guedes - Roupa Nova 
+ 
+INTRODUÇÃO:E7 
+E7 
+TODOS OS DIAS, TODA MANHÃ. 
+ 
+SORRISO ABERTO E ROUPA NOVA. 
+A7 
+PASSARIM PRETO DE TERNO BRANCO. 
+E7 
+PINDUCA VAI ESPERAR O TREM. 
+ 
+        TODOS OS DIAS, TODA MANHÃ. 
+ 
+        ELE SOZINHO NA PLATAFORMA. 
+         A7 
+        OUVE O APITO, SENTE A FUMAÇA. 
+          E7 
+        E VÊ CHEGAR O AMIGO TREM. 
+A/B              G#m7 
+QUE ACONTECE QUE NUNCA PAROU. 
+A7+             A/B 
+NESTA CIDADE DE FIM DO MUNDO. 
+A7+               G#7+ 
+ELE VIAJA PARA A CAPITAL. 
+G7+                 A/B 
+NÃO TEM OLHAR PARA O BRAÇO QUE ACENOU. 
+          E7 
+        O GESTO HUMANO FICOU NO AR. 
+ 
+        O ABANDONO FICA MAIOR. 
+          A7                            E7 
+        E LÁ NA CURVA DESAPARECE A SUA FÉ. 
+A/B 
+HOMEM QUE É HOMEM NÃO PERDE A ESPERANÇA, NÃO! 
+ C#m/B 
+ELE VAI PARAR. 
+A/B               B7+/9 
+QUEM É TEIMOSO NÃO SONHA OUTRO SONHO, NÃO! 
+F#m             B4/7/9 
+QUALQUER DIA ELE PÁRA. 
+          E7 
+        ASSIM PINDUCA TODA MANHÃ. 
+ 
+        SORRISO ABERTO E ROUPA NOVA. 
+          A7 
+        PASSARIM PRETO DE TERNO BRANCO. 
+         E7 
+        VAI RENOVAR A SUA FÉ.

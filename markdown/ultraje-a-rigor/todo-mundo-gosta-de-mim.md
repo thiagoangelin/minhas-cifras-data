@@ -1,0 +1,32 @@
+Ultraje A Rigor - Todo Mundo Gosta De Mim 
+ 
+Intro: D Cm D 
+ 
+(D B) 
+Todo mundo gosta de mim (4x) 
+A 
+Eu sei que eu sou bonito, divertido e inteligente 
+Só não sei como é que eu pude conquistar toda essa gente 
+É uma coisa tão gostosa e todo dia eu agradeço 
+É tão bom sentir-se amado mas, no fundo, eu mereço 
+(D B) 
+Todo mundo gosta de mim (4x) 
+A 
+E conforme eu vou andando eu vou parando e dando a mão 
+Pras pessoas que me chamam e confessam sua paixão 
+É polícia, é bandido, é bacana, é fudido 
+Todo mundo dá um sorriso e me olha enternecido 
+(D B) 
+Todo mundo gosta de mim (4x) 
+A 
+E até a roupa que eu uso todo mundo quer usar 
+Mesmo a que está no meu corpo, às vezes tenho que tirar 
+Alguns vêm me dar dinheiro, alguns querem me tocar 
+As meninas pedem beijo e sempre querem me abraçar 
+A 
+Eu não sei se é o meu cheiro, que é gostoso pra danar 
+Até quando eu solto um peido, todo mundo quer cheirar 
+Pode ser minha simpatia, o meu corpo, ou o meu olhar 
+Mas o fato é que eu não encontro quem não canse de me amar 
+(D B) 
+Todo mundo gosta de mim (4x)

@@ -1,0 +1,60 @@
+Lenine - A Medida Da Paixao 
+ 
+Intro:  A9  G#m5+/7 G7/9 F#m7/11 G#m7 A9       E7+/9 
+ 
+A9                      G#m5+/7 
+É como se a gente não soubesse 
+        G7/9        F#m7/11 
+Pra que lado foi a vida 
+        B7/9-     E5+/7+ 
+Por que tanta solidão 
+D#m5-/7   G#7/13-          C#m7+ 
+E não é a dor que me entristece 
+      B7/9      F#m7/11 G#m7 
+É não ter uma saída 
+  A9        E7+/9    A9 
+Nem medida na paixão 
+G#m5+/7 G#7/13-       C#m7+ 
+Foi, o amor se foi perdido 
+F#m7/11       E7+/9 
+Foi tão distraído 
+           E7M(9+) F#m7/11 F#4/7/9 
+Que nem me avisou 
+G#m5+/7 G#7/13-      C#m7+ 
+Foi, o amor se foi calado 
+      F#m7/11 E7+/9 
+Tão desespe___rado 
+       D#m5-/7 G#7/13- C#m7+ 
+Que me ma______chu____cou 
+A9                      G#m5+/7 
+É como se a gente pressentisse 
+G7/9                F#m7/11 
+Tudo que o amor não disse 
+ 
+     B7/9-       E5+/7+ 
+Diz agora essa aflição 
+D#m5-/7   G#7/13-     C#m7+ 
+E ficou o cheiro pelo ar 
+        B7/9      F#m7/11 G#m7 
+Ficou o medo de ficar 
+  A9            E7+/9   A9 
+Vazio demais meu coração 
+G#m5+/7 G#7/13-       C#m7+ 
+Foi, o amor se foi perdido 
+        F#m7/11 E7+/9 
+Foi tão distra__ído 
+           E7M(9+) F#m7/11 F#4/7/9 
+Que nem me avisou 
+G#m5+/7 G#7/13-      C#m7+ 
+Foi, o amor se foi calado 
+      F#m7/11 E7+/9 
+Tão desespe___rado 
+       D#m5-/7 G#7/13- C#m7+ 
+Que me mal_____tra____tou 
+ 
+A9       G#m5+/7 G7/9 F#m7/11 G#m7 A9        E7+/9 A9        
+E7+/9 
+ 
+A9 é na verdade tocado com a décima 
+primeira aumentada e a décima terceira, 
+mas o sistema recusou esse acorde.

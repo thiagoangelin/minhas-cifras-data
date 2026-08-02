@@ -1,0 +1,37 @@
+Elvis Presley - Change Of Habit 
+ 
+G              Em      G               Em 
+IF your in olD habits, set in your olD ways 
+Am       D7 
+ChanGes are a CominG, anD these are ChanGinG Days 
+    G              
+AnD iF you heaD is in the sanD 
+      C                Cm 
+while thinGs are GoinG on 
+ 
+Cm        bm    Em      C 
+what you neeD, what you neeD  
+      D7       G           Em     G  D7 
+is a ChanGe oF habit 
+ 
+IF you're in the habit, let your tEmper Fly 
+when you talk to people who Don't see eye to eye 
+anD iF you Don't believe there's a newer worlD aheaD 
+what you neeD, what you neeD  
+is a ChanGe oF habit 
+G           F                  G 
+A ChanGe oF habit, a ChanGe oF outlook 
+             C              G 
+a ChanGe oF heart you'll be alriGht 
+             F                        G 
+the halls oF Darkness, our souls will open 
+            C               D7 
+it's never late to see the liGht 
+ 
+IF your in De habit oF puttinG people Down 
+Just beCause they're DiFFerent  
+or From the wronG siDe oF town 
+Well Don't Count on any meDals son, 
+they're all pininG Down on you 
+what you neeD, what you neeD  
+is a ChanGe oF habit

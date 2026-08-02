@@ -1,0 +1,93 @@
+Beth Carvalho - Meu Guri 
+ 
+[Intro] G  C  G7M  C/D  
+ 
+E7/4                        E7       
+Quando seu moço nasceu meu rebento  
+            A7             Cm 
+Não era o momento dele rebentar 
+G                                 
+Já foi nascendo com cara de fome 
+                  Bm             E7 
+E eu não tinha nem nome prá lhe dar 
+Am                 E7                
+Como fui levando, não sei explicar 
+Am                 E7 
+Fui assim levando, ele a me levar 
+A7                               C/D              G7 
+E na sua meninice, ele um dia me disse que chegava lá 
+ 
+[Refrão] 
+ 
+C              B7   C/D     G7M      Em7 
+Olha aí,, olha aí       olha aí, é o meu guri 
+    A7         Am7  D7        G7M 
+Olha aí,  olha aí,  é o meu guri 
+     B7      E7/4                     E7      
+E ele chega, chega suado e veloz do batente  
+                A7 
+Traz sempre um presente  
+             Cm  G                   Em   
+Prá  me encabular, tanta corrente de ouro, seu moço  
+         Bm             E7    
+Que haja pescoço prá enfiar 
+Am                  E7 
+Me trouxe uma bolsa já com tudo dentro 
+Am                E7               A7  
+Chave, caderneta, terço e patuá, um lenço, e uma penca de  
+                 C/D                   G7 
+Documentos, prá finalmente eu me identificar    
+ 
+C              B7   C/D     G7M      Em7 
+olha aí,, olha aí       olha aí, é o meu guri 
+    A7         Am7  D7        G7M 
+Olha aí,  olha aí,  é o meu guri 
+ 
+      B7      E7/4                   E7        
+E ele chega, chega no morro com carregamento  
+           A7               Cm              G  
+Pulseira, cimento, relógio, pneu, gravador 
+                Em  
+Rezo até ele chegar cá no alto 
+              Bm                   
+Essa onda de assaltos tá um horror 
+Am              E7 
+ Eu consolo ele, ele me consola 
+Am                  E7              
+Boto ele no colo prá ele me ninar 
+Em7                 A7 
+De repente, acordo, olho pro lado 
+     C/D                D7 
+E o danado já foi trabalhar   
+ 
+C              B7   C/D     G7M      Em7 
+olha aí,, olha aí       olha aí, é o meu guri 
+    A7         Am7  D7        G7M 
+Olha aí,  olha aí,  é o meu guri 
+ 
+       B7     E7/4                        
+E ele chega  chega estampado, manchete
+
+  E7                   A7 
+Retrato com venda nos olhos 
+                  Cm   
+Legenda e as iniciais 
+G                   Em   
+Eu não entendo essa gente, seu moço 
+          Bm        E7    
+Fazendo alvoroço demais 
+ Am              E7 
+O guri no mato, acho que tá rindo 
+Am                E7                
+Acho que tá lindo, de papo pro ar 
+A7                 
+Desde o começo eu não disse, seu moço? 
+    C/D              G7 
+Ele disse que chegava lá    
+ 
+C              B7   C/D     G7M      Em7 
+olha aí,, olha aí       olha aí, é o meu guri 
+    A7         Am7  D7        G7M 
+Olha aí,  olha aí,  é o meu guri 
+     B7      E7/4                     E7 
+E ele chega

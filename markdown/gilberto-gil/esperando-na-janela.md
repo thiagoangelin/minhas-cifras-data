@@ -1,0 +1,126 @@
+Gilberto Gil - Esperando Na Janela 
+ 
+[Intro] B2  E  B2  E 
+        B2  E  B2  E 
+ 
+[Primeira Parte] 
+ 
+                             B2 
+Ainda me lembro do seu caminhar 
+                                  E 
+Seu jeito de olhar, eu me lembro bem 
+                             B2 
+Fico querendo sentir o seu cheiro 
+                         E 
+É daquele jeito que ela tem 
+ 
+                               B2 
+O tempo todo eu fico feito tonto 
+                                E 
+Sempre procurando, mas ela não vem 
+                           B2 
+E esse aperto no fundo do peito 
+ 
+Desses que o sujeito  
+               E 
+Não pode aguentar, ah 
+                             B2 
+E esse aperto aumenta meu desejo 
+                                 E   
+Eu não vejo a hora de poder lhe falar 
+ 
+( A  E ) 
+ 
+[Refrão] 
+ 
+                    F°   F#m         B7 
+Por isso eu vou na casa dela, ai, ai 
+                      G#m      C#m 
+Falar do meu amor pra ela, vai 
+                      F#m         B7 
+Tá me esperando na janela, ai, ai 
+                   E      F° 
+Não sei se vou me segurar 
+ 
+                         F#m         B7 
+Por isso eu vou na casa dela, ai, ai 
+                      G#m      C#m 
+Falar do meu amor pra ela, vai 
+                      F#m         B7 
+Tá me esperando na janela, ai, ai 
+                   E      A  E 
+Não sei se vou me segurar 
+ 
+[Solo] B2  E  B2  E  
+       B2  E  B2  E  
+ 
+[Primeira Parte] 
+ 
+                             B2 
+Ainda me lembro do seu caminhar 
+                                  E 
+Seu jeito de olhar, eu me lembro bem 
+                             B2 
+Fico querendo sentir o seu cheiro 
+                         E 
+É daquele jeito que ela tem 
+ 
+                               B2 
+O tempo todo eu fico feito tonto
+
+                                E 
+Sempre procurando, mas ela não vem 
+                           B2 
+E esse aperto no fundo do peito 
+ 
+Desses que o sujeito  
+               E 
+Não pode aguentar, ah 
+                             B2 
+E esse aperto aumenta meu desejo 
+                                 E   
+Eu não vejo a hora de poder lhe falar 
+ 
+( A  E ) 
+ 
+[Refrão] 
+ 
+                    F°   F#m         B7 
+Por isso eu vou na casa dela, ai, ai 
+                      G#m      C#m 
+Falar do meu amor pra ela, vai 
+                      F#m         B7 
+Tá me esperando na janela, ai, ai 
+                   E      F° 
+Não sei se vou me segurar 
+ 
+                         F#m         B7 
+Por isso eu vou na casa dela, ai, ai 
+                      G#m      C#m 
+Falar do meu amor pra ela, vai 
+                      F#m         B7 
+Tá me esperando na janela, ai, ai 
+                   E      A  E 
+Não sei se vou me segurar 
+ 
+[Solo Final] B  E  B  E 
+ 
+[Refrão Final] 
+ 
+             F°          F#m        B7 
+Por isso eu vou na casa dela, ai, ai 
+                      G#m      C#m 
+Falar do meu amor pra ela, vai 
+                      F#m         B7 
+Tá me esperando na janela, ai, ai 
+                   E       F° 
+Não sei se vou me segurar 
+ 
+                         F#m        B7 
+Por isso eu vou na casa dela, ai, ai 
+                      G#m      C#m 
+Falar do meu amor pra ela, vai 
+                      F#m         B7 
+Tá me esperando na janela, ai, ai 
+                   E      A  E 
+Não sei se vou me segurar

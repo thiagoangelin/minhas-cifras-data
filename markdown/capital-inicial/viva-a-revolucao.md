@@ -1,0 +1,79 @@
+Capital Inicial - Viva A Revolucao 
+ 
+Intro x2: Em   G   D   
+ 
+Em        G             D 
+ Eu sei, eu sinto no meu sangue 
+Em         G            D 
+ Eu sei, está para acontecer 
+Em         G 
+ Com cores no cabelo 
+D 
+ E lágrimas nos olhos 
+Em          G 
+  Fumaça na cabeça 
+D 
+  E flechas no seu coração 
+Am 
+  Vamos todos para rua 
+C 
+  Onde todos cantarão 
+      G 
+Viva a revolução 
+       Am 
+(Viva a revolução) 
+      G 
+Viva a revolução 
+       Am 
+(Viva a revolução) 
+         C 
+Revolução 
+Am        C 
+  Revolução    (2x) 
+ 
+(G    Em    G   Em   D) 
+ 
+Em        G 
+   Tudo vai ser diferente 
+D 
+ O estranho vai ser normal 
+Em            G                      D 
+  Vai ser uma comoção internacional 
+Em      G 
+    Faça a sua parte 
+D 
+  Nesses dias de gloria 
+Em              G 
+  Atravesse o espelho 
+D 
+  Desligue a televisão 
+ 
+Am 
+  E vamos todos para a rua 
+C 
+  Onde todos cantarão 
+           G 
+Viva a revolução 
+            Am 
+(Viva a revolução) 
+            G 
+Viva a revolução 
+            Am 
+(Viva a revolução) 
+        C 
+Revolução 
+  Am          C 
+Revolução 
+            G 
+Viva a revolução 
+            Am
+
+(Viva a revolução) 
+           G 
+Viva a revolução 
+           Am 
+(Viva a revolução) 
+                C 
+Revolução 
+ Am      C        G 
+Revolução

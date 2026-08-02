@@ -1,0 +1,81 @@
+Gilberto Gil - A Mao Da Limpeza 
+ 
+INTROD.: G  Am 
+ 
+C                        F 
+O branco inventou que o negro 
+C                    F  
+Quando não suja na entrada 
+Am             D                  
+Vai sujar na saída, ê 
+        Am 
+Imagina só 
+               D 
+Vai sujar na saída, ê 
+        Am 
+Imagina só 
+               F      C      F 
+Que mentira danada, ê ê ê 
+ 
+C         (F,C,F)  C        (F,C,F)   C          (F,C,F) 
+iô,iô,iô           iê,iê,iê           iô,iô,iô 
+ 
+C                    F 
+Na verdade a mão escrava 
+C                  F 
+Passava a vida limpando 
+Am               D                  
+O que o branco sujava, ê 
+        Am 
+Imagina só 
+                 D 
+O que o branco sujava, ê 
+        Am 
+Imagina só 
+                F       C      F 
+O que o negro penava, ê ê ê 
+ 
+C         (F,C)   
+iô,iô,iô           
+ 
+E                                Am 
+Mesmo depois de abolida a escravidão 
+          D 
+Negra é a mão  
+                 G 
+De quem faz a limpeza 
+E                                         Am 
+Lavando a roupa encardida, esfregando o chão 
+            D 
+Negra é a mão 
+             G 
+É a mão da pureza 
+ 
+E                                    Am 
+Negra é a vida consumida ao pé do fogão 
+           D 
+Negra é a mão  
+                  G 
+Nos preparando a mesa 
+E                                         Am 
+Limpando as manchas do mundo com água e sabão 
+           D 
+Negra é a mão  
+               G 
+De imaculada nobreza 
+ 
+C                   F 
+Na verdade a mão escrava 
+C                 F
+
+Passava a vida limpando 
+Am                D 
+O que o branco sujava, ê 
+        Am 
+Imagina só 
+                 D 
+O que o branco sujava, ê 
+        Am 
+Imagina só 
+C             F     (C,F) 
+Eta branco sujão

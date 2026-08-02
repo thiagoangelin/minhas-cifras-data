@@ -1,0 +1,75 @@
+Legiao Urbana - Boomerang Blues 
+ 
+[Intro]  E 
+ 
+A7 
+Tudo o que você faz 
+      A7  G7            E 
+Um dia volta pra você 
+A7 
+Tudo o que você faz 
+       A7 G7            E 
+Um dia volta pra você 
+       B7             A7 
+E se você fizer o mal 
+                G7 
+Com o mal mais tarde 
+      E 
+Você vai ter de viver 
+                      A7 
+Não me entregue o seu ódio 
+          A7 G7          E 
+Sua crise existencial 
+        A7 
+Preliminares não me atingem 
+          A7 G7             E 
+O que interessa é o final 
+         B7                  A7 
+E não me venha com problemas 
+             G7        E 
+Sinta sozinho o seu mal 
+           A7 
+Por que tentar sentir demais? 
+     A7 G7         E       A7 
+E você só me usou Eu tentava ajudar 
+      A7 G7        E 
+E você só me queimou 
+         B7                 A7 
+Mas é errando que se aprende 
+             G7              E 
+Minha boa vontade se esgotou 
+        A7 
+Os aborígenes na Austrália 
+       A7     G7            E 
+Com o boomerang vão caçar 
+        A7 
+O boomerang vai e volta 
+                A7   G7          E 
+E só fica quando consegue acertar 
+          B7               A7 
+E eu sou como um boomerang 
+             G7              E 
+Quando eu acerto é pra matar 
+          E 
+Como um boomerang tudo vai voltar 
+E a ferida que você me fez 
+É em você que vai sangrar 
+    A7 
+Eu tenho cicatrizes 
+     A7   G7             E 
+Mas eu não me importo não 
+              B7              A7 
+Melhor que a sua ferida aberta 
+        A7   G7                E 
+E o sangue ruim do seu coração 
+     E                  A7 
+Eu só não entendo como fui cair 
+           G7               F#7     B7 
+Dentro da sua teia e não tentei fugir 
+  C7                      B7
+
+Me sinto mal lembrando o que aconteceu 
+   F#7 
+Você tentou roubar 
+            A7          G7    G7 
+Mas o boomerang agora é meu

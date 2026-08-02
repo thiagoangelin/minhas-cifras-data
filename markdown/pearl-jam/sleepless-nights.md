@@ -1,0 +1,67 @@
+Pearl Jam - Sleepless Nights 
+ 
+Capo on 2, all 2's in charts are open 
+ 
+  F#5    C#7th     B       E     Bb6th   Ebm7th    D       
+A(1)    A(2) 
+-|-2-|- -|-4-|- -|-2-|- -|-4-|- -|---|- -|-6-|- -|-2-|-  
+-|---|- -|-5-|- 
+-|-2-|- -|-2-|- -|-4-|- -|-5-|- -|-8-|- -|-7-|- -|-3-|-  
+-|-2-|- -|-2-|- 
+-|-6-|- -|-4-|- -|-4-|- -|-4-|- -|-7-|- -|-6-|- -|-2-|-  
+-|-2-|- -|-2-|- 
+-|-4-|- -|-3-|- -|-4-|- -|-2-|- -|-8-|- -|-8-|- -|-4-|-  
+-|-2-|- -|-2-|- 
+-|-4-|- -|-4-|- -|-2-|- -|-2-|- -|-8-|- -|-6-|- -|-5-|-  
+-|---|- -|-4-|- 
+-|-2-|- -|---|- -|---|- -|---|- -|---|- -|---|- -|---|-  
+-|---|- -|-5-|- 
+ 
+  Bm       F#     Eb m    Bb       C# 
+-|-2-|---|-2-|---|-6-|---|-6-|---|---|- 
+-|-3-|---|-2-|---|-7-|---|-6-|---|---|- 
+-|-4-|---|-3-|---|-8-|---|-7-|---|-6-|- 
+-|-4-|---|-4-|---|-8-|---|-8-|---|-6-|- 
+-|-2-|---|-4-|---|-6-|---|-8-|---|-8-|- 
+-|---|---|-2-|---|---|---|-6-|---|-9-|- 
+ 
+F#5 
+ 
+F#5                   C#7th          F#5 
+through the sleepless nights, I cry for you 
+B            E Bb6th         Ebm7th   D 
+and wonder who is kissing you 
+      F#5                   C#7th             F#5 
+these sleepless nights will break my heart in two 
+ 
+F#5                 C#7th         F#5      B 
+somehow through the days, I don't give in 
+         E     Bb6th           Ebm7th  D 
+I hide the tears that wait within 
+    F#5                     C#7th         F#5     A(1) 
+but through these sleepless nights, I cry again 
+ 
+D         A(2)  Bm          F# 
+why did you go? why did you go? 
+   Ebm          Bb                      C# 
+don't you know, don't you know, I need you. 
+F#5           C#7th             F#5   B 
+I keep hoping you'll come back to me 
+        E   Bb6th             Ebm7th  D 
+oh let it be,  please let it be 
+   F#5                  C#7th               F#5   A(1) 
+my love, peace in these sleepless nights for me 
+ 
+D         A(2)  Bm          F# 
+why did you go? why did you go? 
+     Ebm         Bb                     C# 
+don't you know, don't you know, I need you 
+F#5           C#7th                 F#5         B 
+through the sleepless nights, I cry for you 
+           E     Bb6th           Ebm7th      D 
+and wonder who                is kissing you 
+ 
+F#5                         C#7th             F#5 
+these sleepless nights will break my heart in two 
+F#5                         C#7th             F#5 
+these sleepless nights will break my heart in two

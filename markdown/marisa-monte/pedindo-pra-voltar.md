@@ -1,0 +1,22 @@
+Marisa Monte - Pedindo Pra Voltar 
+ 
+Am                 E 
+Fica me pedindo pra voltar 
+                       Am 
+Se quiser que eu volte, voltarei 
+                        E 
+Mas eu só lhe peço uma coisa, 
+                         Am  E  Am  
+Não faça novamente o que fez 
+ 
+E                   Am 
+Enciumava até do meu perfume, 
+E                   Am 
+E dos meus amigos também tinha ciúme 
+E                      Am 
+Eu vou lhe beijar mais uma vez, 
+E                       Am  E  Am 
+Não faça novamente o quê fez 
+ 
+  Am                                    E 
+Fiiiiiiiiiiiiiiiiiiica me pedindo pra voltar

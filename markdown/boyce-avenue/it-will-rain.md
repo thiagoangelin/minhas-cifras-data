@@ -1,0 +1,134 @@
+Boyce Avenue - It Will Rain 
+ 
+                    A  Dbm  Bm  F#m  E   D 
+Chords used: e|--5---4---2---2----0---5--| 
+ 
+Intro: 
+     A      Dbm      A      Dbm 
+ 
+Verse1: 
+   A                      Dbm 
+   If you ever leave me, baby, 
+   A                          Dbm 
+   Leave some morphine at my door 
+ Bm                                     F#m 
+   Cause it would take a whole lot of medication 
+ Bm 
+   To realize what we used to have, 
+           E 
+   We don't have it anymore. 
+   A                              Dbm 
+   There's no religion that could save me 
+   A                                      Dbm 
+   No matter how long my knees are on the floor, oh 
+  Bm                                 F#m 
+   So keep in mind all the sacrifices I'm making 
+  Bm 
+   To keep you by my side 
+                     E 
+   And keep you from walking out the door. 
+ 
+ Chorus: (for E and D chords, u can play them as open chords.) 
+ 
+           D              E 
+   Cause there'll be no sunlight 
+   Dbm             F#m 
+   if I lose you, baby 
+   D               E 
+   There'll be no clear skies 
+   Dbm              F#m 
+   if I lose you, baby 
+   D              E 
+   Just like the clouds, 
+       Dbm             F#m                  D 
+   my eyes will do the same if you walk away 
+                        E 
+   Everyday, it will rain, 
+ 
+   rain, rain 
+ 
+  A                     Dbm 
+  oooooooooh ooooooh ooooh oooooooooooooh  x2 
+ 
+  and repeat verse and chorus UNTIL Bridge. 
+ 
+  Verse2: 
+ 
+  A                             Dbm 
+  I'll never be your mother's favorite 
+  A                                   Dbm 
+  Your daddy can't even look me in the eye 
+       Bm                                        F#m 
+  Oooh if I was in their shoes, I'd be doing the same thing 
+   Bm 
+  Saying there goes my little girl 
+              E 
+  walking with that troublesome guy 
+ A                                          Dbm 
+  But they're just afraid of something they can't understand 
+       A                                    Dbm
+
+  Oooh well little darling watch me change their minds 
+              Bm                                   F#m 
+  Yea for you I'll try, I'll try, I'll try, I'll try 
+                     Bm 
+  I'll pick up these broken pieces 'til I'm bleeding 
+  E 
+  If that'll make it right 
+ 
+    D              E 
+   Cause there'll be no sunlight 
+   Dbm             F#m 
+   if I lose you, baby 
+   D               E 
+   There'll be no clear skies 
+   Dbm              F#m 
+   if I lose you, baby 
+   D              E 
+   Just like the clouds, 
+       Dbm             F#m                  D 
+   my eyes will do the same if you walk away 
+                        E 
+   Everyday, it will rain, 
+ 
+   rain, rain 
+ 
+A                     Dbm 
+  oooooooooh ooooooh ooooh oooooooooooooh  x2 
+ 
+ Bridge: 
+               Bm 
+  Don't just say 
+        F#m 
+  goodbye, 
+               Bm 
+  don't just say, 
+       F#m 
+  goodbye 
+                       D 
+  I'll pick up these broken pieces 'til I'm bleeding 
+       E 
+  If that'll make it right 
+ 
+  Last Chorus (pluck chords): 
+ 
+          D            E 
+  Cause there'll be no sunlight 
+   Dbm             F#m 
+  if I lose you, baby 
+   D              E 
+  There'll be no clear skies 
+   Dbm             F#m 
+  if I lose you, baby 
+   D              E 
+  Just like the clouds, 
+     Dbm                F#m                    D 
+  my eyes will do the sa-a-ame if you walk away 
+                     E 
+  Everyday, it will rain, 
+ 
+  rain, rain, rai-ai-ai-ain... 
+ 
+  Outro: 
+  A                     Dbm 
+  oooooooooh ooooooh ooooh oooooooooooooh

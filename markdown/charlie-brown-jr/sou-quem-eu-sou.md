@@ -1,0 +1,25 @@
+Charlie Brown Jr - Sou Quem Eu Sou 
+ 
+ 
+RIFF 2 
+ (P. M.)    (P. M.) 
+ 
+O DECORRER DA MÚSICA É ASSIM: 
+INTRO 
+RIFF 1 
+RIFF 2 
+RIFF 3 
+RIFF 4 
+RIFF 5 
+RIFF 6 
+RIFF 7 
+RIFF 2 
+RIFF 3 
+RIFF 4 
+RIFF 5 
+RIFF 6 
+RIFF 7 
+RIFF 8 
+SOLO 
+RIFF 7 
+TERMINA COM MI MENOR

@@ -1,0 +1,91 @@
+U2 - Ill Go Crazy If Dont Go Crazy Tonight 
+ 
+(C C4)2X 
+(C4 C)2X 
+ 
+(C4 C) 
+She’s a rainbow and she loves the peaceful life 
+(C4 C) 
+Knows I’ll go crazy if I don’t go crazy tonight 
+E                            Am 
+There’s a part of me in the chaos that’s quiet 
+D                               G 
+And there’s a part of you that wants me to riot 
+ 
+(C4 C) 
+Everybody needs to cry or needs to spit 
+(C4 C) 
+Every sweet tooth needs just a little hit 
+E                     Am 
+Every beauty needs to go out with an idiot 
+D                               G 
+How can you stand next to the truth and not see it? 
+E      Am                     Em 
+Oh, A change of heart comes slow 
+ 
+            C                G 
+It’s not a hill, it’s a mountain 
+         Am  C         F 
+As you start out the climb 
+          C                    G 
+Do you believe me, or are you doubting 
+    D                           F  
+Oh We’re gonna make it all the way to the light 
+        D                      F 
+But I know I’ll go crazy if I don’t go crazy tonight 
+ 
+(C C4)2X 
+ 
+(C4 C) 
+Every generation gets a chance to change the world 
+(C4 C) 
+Pity the nation that won’t listen to your boys and girls 
+(C4 C) 
+'Cos the sweetest melody is the one we haven’t heard 
+E                        Am 
+Is it true that perfect love drives out all fear? 
+D                          G 
+The right to appear ridiculous is something I hold dear 
+E          Am                     Em 
+Oh, but a change of heart comes slow 
+ 
+            C                G 
+It’s not a hill, it’s a mountain 
+         Am  C         F 
+As you start out the climb 
+            C            G 
+Listen for me, I’ll be shouting 
+    D                           F 
+Oh,we’re gonna make it all the way to the light 
+         D                      F 
+But you now I’ll go crazy if I don’t go crazy tonight 
+ 
+(C C4)2X 
+ 
+ G     D     C                     G  D  C 
+Baby, baby, baby, I know I’m not aloooooone 
+ G     D     C                     G  D  C 
+Baby, baby, baby, I know I’m not aloooooone
+
+SOLO (C4 Am G F Am G F G 
+      C4 Am G C G) 
+ 
+            C                G 
+It’s not a hill, it’s a mountain 
+         Am  C         F 
+As you start out the climb 
+            G 
+Listen for me, I’ll be shouting 
+  D                         F 
+Shouting to the darkness, squeeze out sparks of light 
+                D 
+You know we’ll go crazy 
+      F 
+You know we’ll go crazy 
+      D                        F 
+You know we’ll go crazy if we don’t go crazy tonight 
+ 
+(C C4)4X 
+Oh oh 
+Slowly now 
+Oh oh

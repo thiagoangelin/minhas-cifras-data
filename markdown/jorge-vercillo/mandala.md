@@ -1,0 +1,36 @@
+Jorge Vercillo - Mandala 
+ 
+[Intro:] B7M F#7M B7M F#7M B7M F#7M Abm7 Bbm7 B7M C#7 
+D#m7(9) 
+ 
+           D#m7(9)(11) 
+Sempre existe amor depois 
+    B7M                Bbm7 D#m7(9) 
+E a gente jura que é o fim 
+        D#m7(9)(11) 
+Desde que você se foi 
+  B7M            Abm7 Bbm7 
+E fez mosaico de mim 
+      B7M              Bbm7    B7M 
+O refazer de Mandala, grão em grão 
+            Bbm7  B7M Abm7 
+Ritual de te esquecer 
+                               B7M 
+No fim desmancho tudo com a mão 
+ 
+                 F#7M 
+Nunca mais conversei com Deus 
+       B7M                    D#m7 C# D#m7 B7M 
+Mas seu eu souber pedir, tudo vem! 
+               F#7M 
+Meu caminho cismou com o seu 
+        A6       B6       B7M 
+Você é dez e eu sou do bem 
+              F#7M 
+Decidi só por ti viver 
+       B7M                      D#m7 C# D#m7 B7M 
+E a Mandala, ao meu olhar, se refez 
+               F#7M 
+Só o amor pode resolver 
+      A6    B6    B7M 
+Esse vai-e-vem de vez...

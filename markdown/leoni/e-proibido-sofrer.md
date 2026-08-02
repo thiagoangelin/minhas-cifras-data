@@ -1,0 +1,123 @@
+Leoni - E Proibido Sofrer 
+ 
+Intro 2x: Em7 A7 Cadd9 D4/9 
+Riff: 
+ 
+(Riff) 
+Em7        A7 
+É proibido sofrer 
+ Cadd9 
+Nas noites longas de inverno 
+    D4/9         Em7 
+Quando o mundo todo te esquecer 
+ 
+         A7 
+É proibido sofrer 
+    Cadd9 
+Esperando por alguém 
+  D4/9      Em7 
+Que nunca vai aparecer 
+ 
+         A7 
+É proibido sofrer 
+  Cadd9 
+Nos dias longos de sol 
+   D4/9         Em7 
+Na lua cheia e no carnaval 
+ 
+         A7 
+É proibido sofrer 
+  Cadd9 
+A dor é só um descuido 
+  D4/9 
+Já tem remédio pra tudo 
+ 
+Cadd9 
+Tem alegria em tablete 
+ 
+Pra te manter no ar 
+Dadd9         Badd9 
+Só sofre quem não quiser 
+   B7 
+Ou não puder pagar 
+ 
+Em7          A7 
+A ordem é ser feliz 
+Em7           A7 
+Por toda a eternidade 
+Em7           A7 
+Feito prisão perpétua 
+      F           B7 
+Entre sorrisos falsos e amenidades 
+ 
+Em7         A7 
+É proibido sofrer 
+ Cadd9 
+Eu li, tá fora de moda 
+   D4/9      Em7 
+É falta de educação 
+ 
+         A7 
+É proibido sofrer 
+  Cadd9 
+Os dias são de euforia 
+     D4/9         Em7 
+A felicidade é uma obrigação 
+ 
+         A7 
+É proibido sofrer 
+Cadd9
+
+Chorar nas tardes de outono 
+    D4/9         Em7 
+Pensar demais e perder o sono 
+ 
+         A7 
+É proibido sofrer 
+    Cadd9 
+Não vale a pena a viagem 
+  D4/9 
+É muito cara a passagem 
+ 
+Cadd9 
+É muito escuro no fundo 
+ 
+Ninguém mais vai pra lá 
+Dadd9          Badd9 
+Ninguém te chama pra nada 
+         B7 
+Nem quer te visitar 
+ 
+Em7          A7 
+A ordem é ser feliz 
+Em7           A7 
+Por toda a eternidade 
+Em7           A7 
+Feito prisão perpétua 
+       F          B7 
+Entre sorrisos falsos e amenidades 
+ 
+Solo: Em7  A7  Cadd9  D4/9 (4x) 
+      Cadd9  Dadd9  B7 
+ 
+Em7          A7 
+A ordem é ser feliz 
+Em7           A7 
+Por toda a eternidade 
+Em7           A7 
+Feito prisão perpétua 
+       F          B7 
+Entre sorrisos falsos e amenidades 
+F 
+Não me apareça aqui 
+    B7        Em7   A7 
+Com sua bagagem de infelicidade 
+ 
+ Cadd9       D4/9 
+Porque a ordem é ser feliz 
+Em7         A7 
+É proibido sofrer 
+Cadd9       D4/9 
+A ordem é ser feliz 
+Em7         A7 
+É proibido sofrer

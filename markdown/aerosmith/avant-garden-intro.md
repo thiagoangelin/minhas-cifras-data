@@ -1,0 +1,4 @@
+Aerosmith - Avant Garden Intro 
+ 
+TITLE:AVANT GARDEN - THE INTRO 
+TRANSCRIBED BY PAUL MCCARTHY

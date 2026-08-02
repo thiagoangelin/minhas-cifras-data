@@ -1,0 +1,88 @@
+Roxette - Jefferson 
+ 
+(Words & music by Per Gessle) 
+ 
+Intr: F#m D A 
+ 
+  F#m        D                 A 
+ Jefferson was always out of luck. 
+  F#m         D                A 
+ I remember when we both grew up. 
+  F#m          D                 A 
+ Jefferson got hit by a westbound truck. 
+  F#m                    D                        A 
+ I guess that didn't make him look like a million bucks. 
+               Bm                        D 
+ That night when Sally really stole the show. 
+            Bm                           D 
+ And every boy was captured digging for gold. 
+           G                         E 
+ Poor old Jefferson was left in the snow. 
+ 
+             D         A 
+  I'm gonna pray for Jefferson. 
+ D          A          E 
+ Pray for Jefferson's soul. 
+            D        A 
+ I'm gonna pray for Jefferson. 
+ D         A           E 
+ Pray for Jefferson's soul. 
+ 
+  F#m          D            A 
+ Jefferson is always on my mind. 
+  F#m               D                A 
+ When him and me were running out of time. 
+  F#m              D                A 
+ Jefferson was sure enough left behind. 
+  F#m                D                 A 
+ The cops came in and took him by surprise. 
+                 Bm                       D 
+ That night when Sally really showed her game. 
+                       Bm              D 
+ The neighborhood would never be the same. 
+            G                  E 
+ Poor old Jefferson got the blame. 
+ 
+               D          A 
+ Oh, I'm gonna pray for Jefferson. 
+ D          A           E 
+ Pray for Jefferson's soul... 
+ 
+            C                 G 
+ I do believe he didn't do wrong. 
+             D                     C 
+ I say a prayer for someone I care for. 
+            Em                C 
+ I do believe he didn't do wrong. 
+              G                   D 
+ I say a prayer for someone I care for. 
+ 
+Solo: C G C G D  (2x) 
+ 
+               Bm                     D 
+That night when Sally really gave it all. 
+             Bm                      D 
+ And made us small boys look quite tall. 
+             G                  E 
+ Poor old Jefferson left the ball. 
+ 
+                E          B
+
+ Yeah, I'm gonna pray for Jefferson. 
+  E         B           F# 
+ Pray for Jefferson´s soul... 
+           E          B 
+ I´m gonna pray for Jefferson. 
+  E         B            F# 
+ Pray for Jefferson´s soul...my my my 
+           E           B 
+ I´m gonna pray for Jefferson. 
+  E         B           F# 
+ Pray for Jefferson´s soul... 
+           E          B 
+ I´m gonna pray for Jefferson. 
+ E          B          F# 
+ Pray for Jefferson´s soul... 
+ 
+     B      F# 
+ Aaa... Aaa...  (2x)

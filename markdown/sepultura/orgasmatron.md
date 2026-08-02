@@ -1,0 +1,32 @@
+Sepultura - Orgasmatron 
+ 
+ 
+E5 
+I am the one, Orgasmatron, the outstretched grasping hand 
+My image is of agony, my servants rape the land 
+A5 
+Obsequious and arrogant, clandestine and vain 
+E5 
+Two thousand years of misery, of torture in my name 
+C#5                       F#5 
+Hypocrisy made paramount, paranoia the law 
+E5                          C5        D5           E5 
+My name is called religion, sadistic, sacred whore 
+ 
+I twist the truth, I rule the world, my crown is called  
+deceit 
+I am the emperor of lies, you grovel at my feet 
+I rob you and I slaughter you, your downfall is my gain 
+And still you play the sycophant and rebel in your pain 
+And all my promisses are lies, all my love is hate 
+I am the politician, and I decide your fate 
+ 
+SOLO 
+ 
+I march before a martyred world, an army for the fight 
+I speak of great heroic days, of victory and might 
+I hold a banner drenched in blood, I urge you to be brave 
+I lead you to your destiny, I lead you to your grave 
+Your bones will build my palaces, your eyes will stud my  
+crown 
+For I am Mars the god of war, and I will cut you down.

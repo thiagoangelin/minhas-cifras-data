@@ -1,0 +1,64 @@
+Green Day - No Pride 
+ 
+Lyrics: Billie Joe Armstrong 
+Music: Green Day 
+Tuning: 1/2 step down (sounds a semitone lower than written here) 
+Notes: Another very easy song from this album. 
+ 
+h = hammer-on 
+p = pull-off 
+b = bend 
+/ = slide up 
+\ = slide down 
+5 = power chord 
+ 
+Chorus 
+   D#5  C#5 G#5 D#5  (x2)  G#5  C5   C#5  D#5   G#5  D#5 
+ 
+Order 
+ 
+Intro 
+Verse 1 
+Chorus 
+Intro chords x2 
+Verse 2 
+Chorus 
+Intro chords x6 
+Chorus 
+Intro chords x4  ("I got no pride") 
+ 
+Lyrics 
+ 
+Well I am just a mutt 
+And nowhere is my home 
+Where dignity's a land mine 
+In the school of lost hope              (Verse 1) 
+I've panhandled for life 
+Because I'm not afraid to beg 
+Hand me down your lost and founds 
+Of second hand regrets 
+ 
+Better swallow your pride 
+Before you choke on it 
+Better digest your values                
+Because they turn to shit               (Chorus) 
+Honour's gonna knock you down 
+Before your chance 
+To stand up and fight 
+Well I know I'm not the one 
+I got no pride 
+ 
+Sects of disconnection 
+And traditions of lost faith 
+No culture's worth a stream of piss 
+Or bullet in my face 
+To hell with unity                      (Verse 2) 
+Separation'll kill us all 
+Torn to shreds and disjointed 
+Before the final fall 
+ 
+(Chorus) 
+(Intro) 
+(Chorus) 
+ 
+I got no pride

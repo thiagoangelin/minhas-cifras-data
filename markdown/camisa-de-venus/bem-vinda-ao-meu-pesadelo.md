@@ -1,0 +1,60 @@
+Camisa De Venus - Bem Vinda Ao Meu Pesadelo 
+ 
+(Marcelo Nova/Karl Franz Hummel) 
+ 
+Intro:Am 
+ 
+ :  
+R:    E 
+e:Bem-vinda ao meu pesadelo                           
+f:      D                                          (2 vezes) 
+r:É por ele que eu ando quando estou acordado         
+ã:   C               E 
+o:Portanto não tenha medo  
+ 
+   A 
+Soprando areia nos meus olhos 
+  C    G       A 
+A cada vez que eu acordo 
+      A 
+Seus lábios sugam a minha memória  
+    C    G    A              (A G C A / A) 
+De quase nada me recordo 
+ 
+  A 
+Tomo café e anfetaminas 
+    C     G     A 
+Desperto pra sobreviver 
+     A 
+Mais cedo ao peso dos meu sonho 
+     C      G       A        (A G C A / A) 
+Bem cedo a luz do amanhecer  
+ 
+REFRÃO. 
+ 
+solo: (A / G A C A / A) 
+ 
+   A 
+O seu poder vem das entranhas 
+    C     G     A 
+De mil demônios do inferno 
+    A 
+Me faz sonhar que ando acordado 
+   C       G      A            (G A C A / A) 
+Vivendo o meu castigo eterno 
+   A 
+Oh deusa de todos os sonhos  
+    C       G     A 
+Meu sono é morte como o seu 
+   A 
+Então me beije e abrace forte  
+   C       G           A       (G A C A / A) 
+E corte o que o tempo esqueceu 
+ 
+REFRÃO. 
+ 
+solo: (A / G A C A / A) 
+ 
+Bem-vinda ao meu pesadelo 
+Bem-vinda ao meu pesadelo 
+Oh, bem-vinda ao meu pesadelo!

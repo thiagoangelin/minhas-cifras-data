@@ -1,0 +1,58 @@
+Seu Jorge - Juizo Final 
+ 
+  Gm   Ab                        D7/F# 
+O sol     há de brilhar mais uma vez 
+  Cm   Eb7                    D7 
+A luz      há de chegar aos corações 
+   Gm   Ab                   D7/F# 
+Do mal     será queimada a semente 
+   Cm   Eb7       D7        Gm 
+O amor      será eterno novamente 
+   Cm   Eb7       D7        Gm 
+O amor      será eterno novamente 
+ 
+  Gm   Ab                        D7/F# 
+O sol     há de brilhar mais uma vez 
+  Cm   Eb7                    D7 
+A luz      há de chegar aos corações 
+   Gm   Ab                   D7/F# 
+Do mal     será queimada a semente 
+   Cm   Eb7       D7        Gm    G7 
+O amor      será eterno novamente 
+ 
+Cm          D7        Eb7                D7 
+É o Juízo Final, a história do bem e do mal 
+Cm                  D7        Eb     Eb7   D7 
+Quero ter olhos pra ver, a maldade desaparecer 
+ 
+  Gm   Ab                        D7/F# 
+O sol     há de brilhar mais uma vez 
+  Cm   Eb7                    D7 
+A luz      há de chegar aos corações 
+   Gm   Ab                   D7/F# 
+Do mal     será queimada a semente 
+   Cm   Eb7       D7        Gm 
+O amor      será eterno novamente 
+   Eb   D7                 Gm 
+O amor     será eterno novamente 
+   Eb   D7                 Gm 
+O amor     será eterno novamente 
+   Eb   D7                 Gm 
+O amor     será eterno novamente 
+Novamente 
+ 
+  Gm   Ab                        D7/F# 
+O sol     há de brilhar mais uma vez 
+  Cm   Eb7                      D7 
+A luz      há de chegar aos corações 
+   Gm   Ab                   D7/F# 
+Do mal     será queimada a semente 
+   Cm   Eb7       D7        Gm 
+O amor      será eterno novamente 
+   Eb   D7                  Gm 
+O amor      será eterno novamente 
+   Eb   D7                  Gm 
+O amor      será eterno novamente 
+Novamente 
+ 
+Será eterno novamente, novamente

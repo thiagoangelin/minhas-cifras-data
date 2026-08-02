@@ -1,0 +1,37 @@
+John Lennon - Aint That A Shame 
+ 
+           G   G             G 
+You made me cry when you said goodbye 
+G7             C 
+Ain't that a shame 
+                    G 
+My tears fell like rain 
+G7             C 
+Ain't that a shame 
+                    D 
+You're the one to blame 
+ 
+You broke my heart when you said we're part 
+Ain't that a shame 
+My tears fell like rain 
+Ain't that a shame 
+You're the one to blame 
+ 
+Solo:   G  C  G  C  D 
+ 
+Farewell, goodbye, although I'll cry 
+Ain't that a shame 
+My tears fell like rain 
+Ain't that a shame 
+You're the one to blame 
+ 
+Solo:   G  C  G  C  D 
+ 
+Ain't that a shame 
+Ain't that a shame 
+ 
+You made me cry when you said goodbye 
+Ain't that a shame 
+My tears fell like rain 
+Ain't that a shame 
+You're the one to blame

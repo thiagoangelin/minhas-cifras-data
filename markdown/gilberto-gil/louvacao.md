@@ -1,0 +1,125 @@
+Gilberto Gil - Louvacao 
+ 
+[Intro] A  D  G  A  D  G  A  D  G  A 
+ 
+                       D    G         A 
+Vou fazer a louvação, louvação, louvação 
+                          A      D            E 
+Do que deve ser louvado, ser louvado, ser louvado 
+                          D    G        A 
+Meu povo, preste atenção, atenção, atenção 
+                  E7 
+Repare se estou errado 
+ 
+   A6          C#7/G#   F#m7          B7/13          F#m7 
+Louvando o que  bem   merece,  deixo o que é ruim de lado 
+  B7/13         E7/9    A6            B7/13          F#m7  
+Louvando o que  bem   merece,  deixo o que é ruim de lado 
+ B7/13  Em7/9  A7/13  D7+ 
+ 
+ 
+  Em7/9      A7/13   D6/9    Am7          D7/9-   G7+ 
+E louvo pra começar,      da vida o que é bem maior 
+          E7        C#m7  F#m7   Bm7(11)  E7       A 
+Louvo a esperança da gente,   na vida pra ser melhor 
+       G7    C7/9    F#m7   B7/13-        E7/9     
+Quem espera sempre alcança,    três vezes salve a  
+ A7   D6 
+esperança 
+       G7    C7/9    F#m7   B7/13-        E7/9     
+Quem espera sempre alcança,    três vezes salve a  
+ A7   D6 
+esperança 
+ 
+ Am7         D7/9   G7+   Bm7        E7      A7+ 
+Louvo quem espera sabendo que pra melhor esperar 
+  Cm7/11   F7        Bb       Bbm7/11  Eb7/9     Ab6 
+Procede bem quem não pára de sempre mais   trabalhar 
+   Abm7  Db7/9   Gb6          A7/13   D7/9   G   E   A 
+Que só espera sentado quem se acha   conformaaaaaaaaado 
+ 
+                        D     G        A 
+Vou fazendo a louvação, louvação, louvação 
+                          A      D           E 
+Do que deve ser louvado, ser louvado, ser louvado 
+                         D    G        A 
+Quem tiver me escutando, atenção, atenção 
+                     E7 
+Que me escute com cuidado 
+ 
+   A6          C#7/G#   F#m7          B7/13          F#m7 
+Louvando o que  bem   merece,  deixo o que é ruim de lado 
+  B7/13         E7/9    A6            B7/13          F#m7  
+Louvando o que  bem   merece,  deixo o que é ruim de lado 
+ B7/13  Em7/9  A7/13  D7+ 
+ 
+ 
+      Em7/9    A7/13  D6/9        Am7   D7/9-   G7+ 
+Louvo agora e louvo sempre, o que grande sempre é 
+     E7/9       C#m7  F#m7   Bm7(11)  E7       A 
+Louvo a força do homem e  a  beleza   da mulher 
+        G7    C7/9       F#m7   B7/13-  E7/9        A7     
+Louvo a paz pra haver na terra, louvo o amor que espanta a 
+   D6 
+ guerra 
+        G7    C7/9       F#m7   B7/13-  E7/9        A7     
+Louvo a paz pra haver na terra, louvo o amor que espanta a 
+   D6 
+ guerra
+
+  Am7      D7/9     G7+   Bm7    E7/9         A7+ 
+Louvo a amizade do amigo, que comigo há de morrer 
+ Cm7/11  F7       Bb      Bbm7/11   Eb7/9   Ab6 
+Louvo a vida merecida, de quem morre pra viver 
+  Abm7    Db7/9   Gb6     A7/13    D7/9    G    E    A 
+Louvo a luta repetida, da vida pra não morreeeeeeeeeeer 
+ 
+                         D    G         A 
+Vou fazendo a louvação, louvação, louvação 
+                          A      D            E 
+Do que deve ser louvado, ser louvado, ser louvado 
+                       D    G        A 
+De todos peço atenção, atenção, atenção 
+                E7 
+Falo de peito lavado 
+ 
+   A6          C#7/G#   F#m7          B7/13          F#m7 
+Louvando o que  bem   merece,  deixo o que é ruim de lado 
+ B7/13         E7/9    A6            B7/13          F#m7   
+Louvando o que  bem   merece,  deixo o que é ruim de lado 
+B7/13  Em7/9  A7/13  D7+ 
+ 
+ 
+        Em7/9  A7/13  D6/9      Am7     D7/9-   G7+ 
+Louvo a casa onde se mora,  de junto da companheira 
+         E7/9         C#m7  F#m7    Bm7/11    E7    A 
+Louvo o jardim que se planta, pra ver  crescer a roseira 
+          G7   C7/9     F#m7  B7/13-  E7/9   A7   D6 
+Louvo a canção que se canta,   pra chamar a primavera 
+          G7   C7/9     F#m7  B7/13-  E7/9   A7   D6 
+Louvo a canção que se canta,   pra chamar a primavera 
+ 
+ Am7        D7/9        G7+    Bm7       E7/9     A7+ 
+Louvo quem canta e não canta, porque não sabe cantar 
+ Cm7/11     F7      Bb    Bbm7/11    Eb7/9    Ab6 
+Mas que cantará na certa, quando enfim se apresentar 
+ Abm7  Db7/9      Gb6     A7/13  D7/9      G    E    A 
+O dia certo e preciso, de toda a gente cantaaaaaaaaaaar 
+ 
+                         D    G         A 
+E assim fiz a louvação, louvação, louvação 
+                            A      D           E 
+Do que vi pra ser louvado, ser louvado, ser louvado 
+                           D    G        A 
+Se me ouviram com atenção, atenção, atenção 
+                    E7 
+Saberão se estive errado 
+ 
+   A6          C#7/G#   F#m7       B7/13          F#m7 
+Louvando o que  bem   merece,  deixando  ruim de lado 
+  B7/13         E7/9    A6        G               A   G    
+Louvando o que  bem   merece,  deixando o ruim de lado 
+A 
+ 
+    G             A    G   A      G               A   G 
+Deixando o ruim de lado,      deixando o ruim de lado

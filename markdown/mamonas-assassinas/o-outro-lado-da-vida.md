@@ -1,0 +1,75 @@
+Mamonas Assassinas - O Outro Lado Da Vida 
+ 
+A                  E 
+Vejam as pessoas que me cercam 
+ D                  E 
+Tudo é alegres entre eles 
+A                  E 
+Sinto que me falta algo 
+           D                         E 
+Para que eu possa sentir esse outro lado da vida  
+ 
+A               E 
+Minha vida tem varias faces 
+ D                   E 
+Mas eu me encontro tão só  
+A                   E 
+Sinto que vivo uma cópia 
+ D                    E 
+De um sofrimento que nunca senti  
+ 
+A                  E 
+Se não tivesse me iludido 
+       D                 E 
+Teria sido melhor pra mim 
+A                E 
+Nem tudo que passou  
+    D            E 
+Se pode explicar  
+ 
+A                  E 
+Minha mente está confusa 
+      D                E 
+Tudo gira dentro de mim  
+A    E         D    E 
+Como uma tempestade  
+ 
+( A  E  D  E ) 
+ 
+A             E 
+E o dia se torna tão chato  
+ D                     E 
+Fico a falar com as paredes  
+A                   E 
+Os meus amigos não podem me ver  
+        D 
+Como é difícil encontrar  
+           E 
+Esse outro lado da vida  
+ 
+A                   E 
+Talvez não seja só sofrimento  
+ D                 E 
+Fico sonhando acordado 
+A                    E 
+Mas meus amigos não podem me ver  
+        D 
+Como é difícil encontrar  
+           E 
+Esse outro lado da vida  
+ 
+A                  E 
+Se não tivesse me iludido 
+       D                 E 
+Teria sido melhor pra mim 
+A                E 
+Nem tudo que passou  
+    D            E 
+Se pode explicar
+
+A                  E 
+Minha mente está confusa 
+      D                E 
+Tudo gira dentro de mim  
+A    E         D    E  A 
+Como uma tempestade

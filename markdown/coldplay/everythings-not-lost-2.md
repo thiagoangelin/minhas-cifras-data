@@ -1,0 +1,157 @@
+Coldplay - Everythings Not Lost 2 
+ 
+E      Emaj7         E7     
+When I counted up my demons 
+E      Emaj7         E7 
+Saw there was one for every day 
+E        Emaj7     E7 
+With the good ones on my shoulders 
+E        A        B 
+I drove the other ones away 
+ 
+=-=-=-= 
+Chorus: 
+=-=-=-= 
+ 
+E         Emaj7     E7        E 
+So if you ever feel neglected  
+E         Emaj7       E7         E 
+And if you think that all is lost 
+E         Emaj7     E7         A 
+I'll be counting up my demons, yeah 
+       B                E 
+Hoping everything's not lost 
+ 
+=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=- 
+[Little Solo]: like 6 times I think. 
+With a slide finger. 
+With delay and echo. 
+=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=- 
+ 
+E|-|--12-12-12-12-12-12-12-12/4h5/12-12-12-12-12-12-12-12/4h5--
+|-| 
+B|-|-----------------------------------------------------------|-| 
+G|-|-----------------------------------------------------------|-| 
+D|-|-----------------------------------------------------------|-| 
+A|-|-----------------------------------------------------------|-| 
+e|-|-----------------------------------------------------------|-| 
+ 
+E|-|--12-12-12-12-12-12-12-12/4h5/12-12-12-12-12-12-12-12/4h5--
+|-| 
+B|-|-----------------------------------------------------------|-| 
+G|-|-----------------------------------------------------------|-| 
+D|-|-----------------------------------------------------------|-| 
+A|-|-----------------------------------------------------------|-| 
+e|-|-----------------------------------------------------------|-| 
+ 
+Another 6 times. 
+ 
+=-=-= 
+Verse: 
+=-=-= 
+ 
+When you thought that it was over 
+You could feel it all around 
+And everybody's out to get you 
+Don't you let it drag you down 
+ 
+=-=-=-= 
+Chorus: 
+=-=-=-= 
+ 
+'Coz if you ever feel neglected 
+And if you think that all is lost 
+I'll be counting up my demons, yeah 
+Hoping everything's not lost 
+ 
+=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=- 
+[Little Solo]: With some variations. 
+With delay and echo.
+
+=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=- 
+ 
+E|-|--12-12-12-12-12-12-12-12/4h5/12-12-12-12-12-12-12-12/4h5--
+|-| 
+B|-|-----------------------------------------------------------|-| 
+G|-|-----------------------------------------------------------|-| 
+D|-|-----------------------------------------------------------|-| 
+A|-|-----------------------------------------------------------|-| 
+e|-|-----------------------------------------------------------|-| 
+ 
+E|-|--12-12-12-12-12-12-12-12/16h17/12-12-12-12-12-12-12-
+12/16h17--|-| 
+B|-|---------------------------------------------------------------|-| 
+G|-|---------------------------------------------------------------|-| 
+D|-|---------------------------------------------------------------|-| 
+A|-|---------------------------------------------------------------|-| 
+e|-|---------------------------------------------------------------|-| 
+ 
+E|-|--12-12-12-12-12-12-12-12/16h17/12-12-12-12-12-12-12-
+12/16h17--|-| 
+B|-|---------------------------------------------------------------|-| 
+G|-|---------------------------------------------------------------|-| 
+D|-|---------------------------------------------------------------|-| 
+A|-|---------------------------------------------------------------|-| 
+e|-|---------------------------------------------------------------|-| 
+ 
+=-=-=-= 
+Chorus: 
+=-=-=-= 
+ 
+E         Emaj7     E7        E 
+So if you ever feel neglected  
+E         Emaj7       E7         E 
+And if you think that all is lost 
+E         Emaj7     E7         A 
+I'll be counting up my demons, yeah 
+       B                E 
+Hoping everything's not lost 
+ 
+=-= 
+End: 
+=-= 
+ 
+Singing out 
+E               E7 
+Oh, oh, oh, yeah 
+             E 
+Oh, oh, yeah 
+             E7 
+Oh, oh, yeah 
+Everything's not lost 
+ 
+So come on, yeah 
+Oh, oh, yeah 
+Come on, yeah 
+And everything's not lost 
+ 
+1' Guitar with second solo over this. 
+ 
+Oh, oh, yeah 
+Oh, oh, yeah 
+Oh, oh, yeah 
+And everything's not lost 
+ 
+Come on, yeah 
+Oh, oh, yeah 
+Come on, yeah 
+ 
+Come on, yeah 
+Oh, oh, yeah
+
+Come on, yeah 
+And everything's not lost 
+ 
+Sing out, yeah 
+Oh, oh, yeah 
+Come on, yeah 
+And everything's not lost 
+ 
+=-=-=-=-=-=-=-=-=-=- 
+Just voice and piano: 
+=-=-=-=-=-=-=-=-=-=- 
+ 
+Come on, yeah 
+Oh, oh yeah 
+Sing out, yeah 
+And everything's not lost

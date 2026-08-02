@@ -1,0 +1,167 @@
+Oasis - Its Better People 
+ 
+[intro]   D A4 Em7 G 
+[verse]   D A4 Em7 G 
+It's better people love one another 
+'Cause livin' your life can be tough 
+It's better people speak to each other 
+Your shame is not enough 
+If everybody came alive 
+And stayed alive 
+And lived their lives instead, yeah 
+So come outside 
+And feel the light 
+It's cold inside 
+But it's lonely in your bed 
+In your bed 
+ 
+[pre-chorus]   E G A 
+And though we might be 
+But what you heard before 
+Was only sleepin' in your brain 
+But if you came with me 
+The days'd never end 
+Would never be the same 
+ 
+[chorus]   E G A 
+They'd never be the same 
+They'd never be the same 
+Never be the same 
+ 
+[verse] 
+[pre-chorus] 
+[chorus] 
+ 
+It's Better People, written by Noel Gallagher, performed  
+by Oasis 
+Song can be found on the "Roll With It" single, and is  
+another of Noel's 
+wonderful acoustic tunes. 
+There's a whole lot of fiddling around on each chord, with 
+ more than one 
+guitar being used in this song. The following is simply  
+the basic chords, 
+however. 
+ 
+Chords used: 
+ 
+E       (079997) 
+A       (577655) 
+F#      (244322) 
+F#m     (244222) 
+B       (799877) 
+ 
+E       B       F#m     A 
+ 
+[NOTE: same chord progression is used in all verses] 
+ 
+     E              B         F#m 
+It's better people love one another, 
+     A                      E           B       F#m     A 
+cos livin' your life can be tough 
+It's better people speak to each other 
+Your shame is not enough 
+ 
+If everybody came alive and stayed alive 
+And lived their lives instead, yeah 
+So come outside and feel the light 
+It's cold outside but it's lonely in your bed, in your bed
+
+F#                      B 
+   You thought we might be 
+                      A 
+But what your heard before 
+                          F# 
+Was only sleepin' in your brain 
+F#                      B 
+   But if you came with me 
+                 A 
+the days'd never end 
+                   F# 
+Would never be the same 
+ 
+B    A      F# 
+Saaa-aaaaaa-ame, they'd never be the 
+B    A      F# 
+Saaa-aaaaaa-ame, never be the 
+B    A      F# 
+Saaa-aaaaaa-ame 
+ 
+[REPEAT VERSE 1, using same chord progression] 
+ 
+[PRE-CHORUS] 
+ 
+They'd never be the same 
+They'd never ne the same 
+They'd just go by a different name 
+They'd never be the same 
+ 
+Here is Better People from the CD single "Roll With It"  
+and the Amercian 
+release "Morning Glory" single. 
+"Better People" by OASIS has got to be the 2nd best 
+Song they perform besides WonderWall.  Sure wish 
+this would have been a single release.  Anyway here 
+it is, in the correct way it is supposed to be 
+played. 
+ 
+Place Capo on second fret(listen real close and you 
+           can tell that the song has a capo), and play 
+           standard chord patterns of D, A, Em, G, E, 
+           but they will be transposed up one 
+           whole step. 
+ 
+/ or \ = Slide so that you get a good fret sound as you 
+                slide up or down. 
+ 
+m      = muted note 
+ 
+[capo behind 2nd fret] 
+E       [xx2454] 
+B       [x24442] 
+F#m     [244222] 
+A       [543355] 
+F#      [244322] 
+ 
+E              B          F#m          A 
+better people love one another cause living your life 
+         E-B-F#m - A 
+can be tuff 
+E                    B             F#m             A 
+it's better people speak to each other because saying 
+           E-B-F#m - A 
+is not anough 
+E               B              F#m              A 
+if everybody came alive and stayed alive and lived 
+                E-B-F#m - A 
+their lives instead (yea) 
+E                    B                    F#m 
+so come outside and feel the light it's cold inside
+
+            A            E-B-F#m - A 
+but it's lonely in your bed (in your bed) 
+F#                       B                       A 
+and you thought we might be but what you heard before 
+                             F# 
+was only sleeping in your brain 
+F#                    B                       A 
+but if you came with me the days would never end 
+                 F# 
+would never be same 
+ 
+SAME 
+                  B-A-F# 
+never be the     SAME 
+                  B-A-F# 
+never be the     SAME 
+go by a differnt NAME     [2nd time only] 
+                   B-A-F# 
+never be the     SAME 
+                   B-A-F# 
+never be the     SAME (yea) 
+ 
+[E-B- F#m - A]2x bridge 
+ 
+[repeat song] 
+ 
+[outro]

@@ -1,0 +1,74 @@
+Biquini Cavadao - Coronel 
+ 
+ 
+E 
+Quero dizer  
+A 
+Meu caro amigo 
+E 
+Que você não está 
+        A 
+com nada nesse umbigo 
+E 
+Não tem o rei  
+A 
+Que pensa levar consigo 
+E                        
+Porque não desce  
+       A 
+deste seu pedestal 
+F#m 
+Não sei de onde você  
+A 
+tirou a idéia  
+             E 
+De que não é normal 
+F#m 
+Não sei de onde  
+          A 
+Você tirou a idéia  
+              E7     A7 
+De que é especial   ooo 
+E 
+E realmente 
+A 
+Normal você não é, não 
+E                   A 
+Não que seja um super dotado 
+E 
+Pelo contrário 
+    A 
+Parece até um demente 
+E 
+Com a pose 
+            A 
+de um coronel reformado 
+F#m 
+Não sei de onde  
+          A 
+Você tirou a idéia  
+              E 
+De que não é normal 
+F#m 
+Não sei de onde você  
+A 
+tirou a idéia  
+ 
+     C#m7 
+De que outras pessoas 
+ 
+          F#m7 
+valem menos que você 
+C#m7 
+De que todos devem  
+          F#7 
+se curvar ao seu poder 
+A          B 
+Dizem que cego é aquele  
+ C#m7          F#7 
+que não quer ver      - eeer
+
+A           
+Mais cego ainda 
+        B 
+é aquele que não se vê

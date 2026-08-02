@@ -1,0 +1,62 @@
+Charlie Brown Jr - Eu Vim De Santos Sou Charlie 
+Brown 
+ 
+ 
+ 
+(Ouça a música e pegue a batida - quatro primeiras cordas) 
+ 
+Charlie Brown... Santos 
+ 
+A vida te pede mas a vida não te dá 
+Devagar com meu skate um dia eu cheguei lá 
+Eu não sei como se escreve mas sei como se faz 
+Minha fé é meu escudo pra tanto leve e traz 
+"Conceitos" se descobrem num mundo globalizado 
+Eu tô na fé, tô legal, menos um revoltado 
+Os que correram comigo continuam do meu lado 
+Tenho poucos amigos mas não foram comprados 
+O Brasil é o grande rei do "nhê nhê nhê" 
+Que embala seu delírio num grande vai e vem 
+Eu sou cabeça forte melhor do que ninguém 
+Muito menos pior o tempo prova quem é quem 
+ 
+Então vai, vai jogando bomba 
+vai pensando que tá bom que um dia eu mando a conta 
+Eu sou bola de Snooker, não whisky barato 
+Pra mordida de cobra tem veneno pra rato 
+ 
+C C  (DUAS BATIDAS) 
+ 
+Eu sempre tirei onda com dinheiro e sem dinheiro 
+meu dinheiro, minha loucura, minha loucura, meu dinheiro 
+Malokeiro SK8 board que as minas pagam um pau 
+Eu vim de Santos, sou Charlie Brown 
+ 
+(A partir daqui volta a batida do início) 
+ 
+Uh! huhuhu... olha só, eu não quero conversar 
+Se você quizer uma coisa então vai ter que liberar 
+Uh! huhuhu... olha só, eu não quero conversar 
+Vou direto até o assunto, eu vou fazer você pirar 
+ 
+Aqui quem menos corre, voa, aqui não tem marcha-lenta 
+Aqui só tem cientista, o que não existe nós inventa 
+ 
+Eu sempre tirei onda com dinheiro e sem dinheiro 
+meu dinheiro, minha loucura, minha loucura, meu dinheiro 
+Eu vim de Santos, sou Charlie Brown 
+E as minas pagam um pau 
+ 
+Eu sempre tirei onda com dinheiro e sem dinheiro 
+meu dinheiro, minha loucura, minha loucura, meu dinheiro 
+Malokeiro SK8 board que as minas pagam um pau 
+Eu vim de Santos, sou Charlie Brown 
+ 
+Eu sempre tirei onda com dinheiro e sem dinheiro 
+meu dinheiro, minha loucura, minha loucura, meu dinheiro 
+Eu vim de Santos, sou Charlie Brown 
+Eu vim de Santos, sou Charlie Brown 
+ 
+Eu vim de Santos, sou Charlie Brown 
+É só no que acredito 
+E se tiver do meu lado pode crer que é boa gente

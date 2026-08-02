@@ -1,0 +1,15 @@
+Elvis Presley - As We Travel Along 
+ 
+[nc]          E                    B7 
+     As you travel along on the Jericho Road 
+ 
+     (Elvis: "I would take young Johnny Cash to do this") 
+ 
+      B7                                         E 
+     Does the road seem all long and heavy your load 
+     E                                        
+     Just take it to Christ your sins all confess 
+                    E   (tacet)             E        A       E 
+     On the Jericho Road your heart He will bless 
+                    B7        E 
+     On the Jericho Road

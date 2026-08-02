@@ -1,0 +1,104 @@
+Linkin Park - Crawling 
+ 
+Introdução: (Riff 1 - 4x) 
+ 
+  C#5/G#         A5 
+Crawling in my skin 
+       E5                   B5  G#5 
+These wounds they will not heal 
+ C#5/G#        A5 
+Fear is how I fall 
+    E5             B5  G#5 
+Confusing what is re___al 
+ 
+(Riff 1 - 2x) 
+ 
+Primeira Parte: 
+ 
+There's something inside me 
+That pulls beneath the surface 
+Consuming, confusing 
+This lack of self control 
+I fear is never ending 
+Controlling, I can't seem 
+ 
+Segunda Parte: 
+ 
+(Riff 2 - 8x) 
+ 
+To find myself again 
+My walls are closing in 
+Without a sense of confidence 
+And I'm convinced 
+That there's just too much pressure to take 
+I've felt this way before, so insecure 
+ 
+Primeiro Refrão: 
+ 
+  C#5/G#         A5 
+Crawling in my skin 
+       E5                   B5  G#5 
+These wounds they will not heal 
+ C#5/G#        A5 
+Fear is how I fall 
+    E5             B5  G#5 
+Confusing what is real 
+ 
+Terceira Parte: 
+ 
+Discomfort, endlessly 
+Has pulled itself upon me 
+Distracting, reacting 
+Against my will I stand 
+Beside my own reflection 
+It's haunting, how I can't seem 
+ 
+Quarta Parte: 
+ 
+(Riff 2 - 9x) 
+ 
+To find myself again 
+My walls are closing in 
+Without a sense of confidence 
+And I'm convinced 
+That there's just too much pressure to take 
+I've felt this way before, so insecure 
+ 
+Segundo Refrão: 
+ 
+  C#5/G#         A5
+
+Crawling in my skin 
+       E5                   B5  G#5 
+These wounds they will not heal 
+ C#5/G#        A5 
+Fear is how I fall 
+    E5             B5  G#5 
+Confusing what is real 
+ 
+  C#5/G#         A5 
+Crawling in my skin 
+       E5                   B5  G#5 
+These wounds they will not heal 
+ C#5/G#        A5 
+Fear is how I fall 
+    E5         B5         G#5     C#5/G# 
+Confusing, confusing what     is real 
+ 
+Final: 
+ 
+There's something inside me 
+      A5 
+That pulls beneath the surface 
+E5 
+   Consuming 
+    B5         G#5     C#5/G# 
+Confusing what     is real 
+ 
+This lack of self control 
+   A5 
+I fear is never ending 
+E5 
+   Controlling 
+    B5                G#5 
+Confusing what is re__al

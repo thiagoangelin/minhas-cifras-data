@@ -1,0 +1,30 @@
+Luiz Gonzaga - Sao Joao Do Carneirinho 
+ 
+[Intro]  Eb  G#   A#  Eb 
+ 
+                     G# 
+Eu plantei meu milho todo 
+                A# 
+No dia de são josé 
+Cm                  F 
+ Se me ajuda a providência 
+A#                   Eb 
+Vamos ter milho à grané 
+ 
+Vou "coiê" pelos meus "caico" 
+ 
+20 espiga em cada pé 
+                     G#           A#          Eb 
+Pelos "caico" eu vou "coiê" 20 espiga em cada pé 
+         G# 
+Ai são joão, são joão do carneirinho 
+ 
+Você é tão bonzinho 
+              A# 
+Fale com são josé 
+G#              A# 
+Fale lá com são josé 
+G#              A# 
+Peça pra ele me ajudar 
+               G#                  A#   Eb 
+Peça pra meu milho dá 20 espiga em cada pé

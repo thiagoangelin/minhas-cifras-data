@@ -1,0 +1,45 @@
+Guns N Roses - My World 
+ 
+   A# 
+You want to step into my world? 
+       A# 
+It's a socio-psychotic state of bliss 
+        A# 
+You've been delayed in the real world 
+         A# 
+How many times have you hit and missed? 
+       A# 
+Your cat-scan shows dis-figuration 
+       A# 
+I want to laugh myself to death 
+        A# 
+With a misfired synapse, with a bent configuration 
+         A# 
+I'll hold the line, while you gasp for breath 
+ 
+[Chorus] 
+    D# 
+You wanna talk to me? So talk to me 
+    D# 
+You wanna talk to me? So talk to me 
+     D# 
+You wanna talk to me? So talk to me 
+       D# 
+You wanna talk to me? You can't talk to me 
+        D# 
+You wanna talk to me? Don't understand your sex 
+         D# 
+You wanna talk to me? You ain't been mind-fucked yet 
+ 
+       (No Guitar Is Played On This Verse) 
+[Outro] 
+    N.C. 
+Let's do it 
+       N.C. 
+Let's do it 
+         N.C. 
+Let's do it 
+            N.C. 
+Oh, my distorted smile 
+    A#        G# 
+Guess what I'm doing now

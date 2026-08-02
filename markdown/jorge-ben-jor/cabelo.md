@@ -1,0 +1,38 @@
+Jorge Ben Jor - Cabelo 
+ 
+(Bb D Gm C - F) 
+ 
+Cabelo, cabeleira 
+Cabeluda, descabelada 
+Cabelo, cabeleira 
+Cabeluda, descabelada 
+ 
+Quem disse que o cabelo 
+Não sente 
+Quem disse que o cabelo  
+Não gosta de pente 
+Cabelo quando cresce é tempo 
+Cabelo embaraçado é vento 
+Cabelo vem lá de dentro 
+Cabelo é como pensamento 
+Quem pensa que cabelo é mato 
+Quem pensa que cabelo é pasto 
+Cabelo com orgulho é crina 
+Cilindros de espessura fina 
+Cabelo quer ficar prá cima 
+Laque, fixador, gomalina 
+ 
+Cabelo, cabeleira 
+Cabeluda, descabelada 
+Cabelo, cabeleira 
+Cabeluda, descabelada 
+Quem quer a força de Sansão 
+Quem quer a juba de leão 
+Cabelo pode ser cortado 
+Cabelo pode ser comprido 
+Cabelo pode ser trançado 
+Cabelo pode ser tingido 
+Aparado ou escovado 
+Descolorido, descabelado 
+Cabelo pode ser bonito 
+Cruzado, seco ou molhado

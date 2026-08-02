@@ -1,0 +1,100 @@
+Capital Inicial - O Bem O Mal E O Indiferente 
+ 
+Intro : B5 / C#5 / D5 / E5 
+ 
+Riff 
+ 
+          B5 
+Tenho uma história pra contar 
+G5 
+Das coisas que eu vi 
+   A5 
+Os desertos escaldantes 
+  B5             F#5 
+O paraíso é logo ali 
+ 
+B5 
+As guerras que lutei 
+   G5 
+As batalhas que venci 
+A5 
+O ouro que eu roubei 
+  B5          F#5 
+O amor que eu perdi 
+ 
+G5               A5 
+Os homens que eu sou 
+D5            E 
+Sem lógica ou razão 
+G5            A5 
+Em cada gesto meu 
+          B5 
+Cem anos, sem perdão 
+G5           A5 
+Não pergunte quem eu sou 
+       D5          E5 
+Eu sou você, a sua voz 
+G5       A5 
+O herói, o covarde 
+  B5 
+O inimigo dentro de nós 
+ 
+Riff 
+ 
+B5 
+As marcas do meu corpo 
+G5 
+A morte eu vi de frente 
+A5 
+No fundo do olhar 
+B5               F#5 
+O bem, o mal e o indiferente 
+ 
+B5 
+O mundo é todo meu 
+G5 
+Por isso é assim 
+A5 
+Renasço a cada dia 
+B5                   F#5 
+As estrada é longa e não tem fim 
+ 
+G5                 A5 
+Eu trago em minhas costas 
+D5                  E5 
+As montanhas que eu movi 
+G5         A5 
+O acaso me empurrou 
+B5 
+Até chegar aqui
+
+ 
+G5           A5 
+Não pergunte quem eu sou 
+D5                 E5 
+Eu sou você, a sua voz 
+G5         A5 
+O herói, o covarde 
+B5 
+O inimigo dentro de nós 
+ 
+Intro : B5 / C#5 / D5 / E5 
+ 
+G5           A5 
+Não pergunte quem eu sou 
+D5                 E5 
+Eu sou você, a sua voz 
+G5       A5 
+O herói, o covarde 
+B5 
+O inimigo dentro de nós 
+G5           A5 
+Não pergunte quem eu sou 
+D5                 E5 
+Eu sou você, a sua voz 
+G5       A5 
+O herói, o covarde 
+B5 
+O inimigo dentro de nós 
+ 
+Riff

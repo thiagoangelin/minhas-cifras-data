@@ -1,0 +1,66 @@
+Legiao Urbana - A Whiter Shade Of Pale 
+ 
+  A                    F#m   D 
+We skipped the light fandango 
+                             Bm    E7 
+turned cartwheels 'cross the floor 
+      E             C#m     E7  A 
+I was feeling kinda seasick 
+                             F#m   D 
+but the crowd called out for more 
+                     Bm     E7 
+The room was humming harder 
+       E            C#m   E7  A 
+as the ceiling flew away 
+                               F#m   D 
+When we called out for another drink 
+                     Bm 
+the waiter brought a tray 
+ 
+E7  E  E7 A    E    F#m    D 
+And so it was  that later 
+                       Bm   E7 
+as the miller told his tale 
+         E        E7         C#m     E 
+that her face, at first just ghostly          
+         A     D          A   E7 
+turned a whiter  shade of pale 
+ 
+    A                 F#m    D 
+She said, There is no reason 
+                          Bm   E7 
+and the truth is plain to see 
+      E                   C#m          E7  A 
+But I wandered through my playing cards 
+                      F#m   D 
+and would not let her be 
+                      Bm      E7 
+one of sixteen vestal virgins 
+         E               C#m   E7  A 
+who were leaving for the coast 
+                          F#m   D 
+and although my eyes were open 
+                                  Bm 
+they might have just as well been closed 
+ 
+E7  E  E7 A    E    F#m    D 
+And so it was  that later 
+                       Bm   E7 
+as the miller told his tale 
+         E        E7         C#m     E 
+that her face, at first just ghostly 
+         A     D          A   E7 
+turned a whiter  shade of pale 
+ 
+[Solo]  A  F#m  D  Bm  E  C#m  E  A  D  E 
+ 
+E7  E  E7 A    E    F#m    D 
+And so it was  that later 
+                       Bm   E7 
+as the miller told his tale 
+         E        E7         C#m     E 
+that her face, at first just ghostly 
+         A     D          A   E7 
+turned a whiter  shade of pale 
+ 
+[Solo]  A  F#m  D  Bm  E  C#m  E  A  D  E

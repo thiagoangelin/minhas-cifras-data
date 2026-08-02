@@ -1,0 +1,39 @@
+Marisa Monte - Pernambucobucolismo 
+ 
+        Bm 
+Eu vou fazer 
+         F# 
+Um movimento, amor 
+        F#7                    Bm 
+Uma canção para inventar o nosso amor 
+ 
+         Bm 
+Eu vou fazer 
+       F# 
+Uma revolução 
+        F#7 
+Eu vou pra Londres, vou pra longe 
+  Bm 
+Sei que vou 
+   Em 
+Onde luar 
+       Bm 
+Não há igual aqui 
+     F# 
+Igual aqui não há 
+    Bm 
+Outro lugar 
+ 
+        F# 
+Eu sinto bucolismo 
+        F#7 
+Eu sinto bucolismo 
+ 
+     F# 
+Pernambucobucolismo 
+      F#7 
+Pernambucobucolismo 
+       F# 
+Pernambucobucolismo 
+ 
+(Bm)

@@ -1,0 +1,22 @@
+Adriana Calcanhotto - O Outro 
+ 
+Obs.: O Autor é o contemporâneo de Fernando Pessoa: Mário de 
+Sá 
+Carneiro - este é um poema musicado pela Adriana Calcanhotto 
+ 
+Am 
+Eu não sou eu 
+                Em 
+Nem sou outro 
+Am 
+Sou qualquer coisa 
+              Em 
+De intermédio 
+Am 
+Pilar 
+                    Em 
+Da ponte de tédio 
+ Am                              Em 
+Que vai de mim para o outro 
+ 
+Vocalização: Am Em

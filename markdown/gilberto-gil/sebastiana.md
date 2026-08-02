@@ -1,0 +1,24 @@
+Gilberto Gil - Sebastiana 
+ 
+G                    D7 
+Convidei a comadre Sebastiana 
+                            G 
+Pra dançar um xaxado na Paraíba 
+                               D7 
+||: Ela veio com uma dança diferente 
+                        G 
+E pulava que nem uma guariba :|| 
+                  D7  C   G 
+||: E gritava A E I O U ipslone :|| 
+      C 
+Já cansada no meio da brincadeira 
+                      G 
+E dançando fora do compasso 
+Segurei a 'Bastiana pelo braço 
+        D7 
+E gritei  não faça sujeira no xaxado 
+Esquentou na gafieira 
+                             G 
+Sebastiana não veio mais pra casa 
+                  D7  C   G 
+||: E gritava A E I O U ipslone :||

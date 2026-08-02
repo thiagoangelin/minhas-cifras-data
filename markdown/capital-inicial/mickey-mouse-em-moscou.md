@@ -1,0 +1,57 @@
+Capital Inicial - Mickey Mouse Em Moscou 
+ 
+Intro: (E5)4X B5 
+ 
+(E5 Db5 D5) 
+Eu vejo eles dançando 
+em cima do muro 
+no meio do mundo 
+no meio do mundo dividido 
+ 
+(B5) 
+Spielberg, Eisenstein 
+Vodka, CIA 
+Las Vegas, Kremlin 
+Tolstoi, John Wayne 
+Champagne, Caviar 
+Mickey Mouse em Moscou 
+Batman, Trotsky 
+Bolshoi, Rock'n'roll 
+ 
+(E5 Db5 D5) 
+Quem são estes homens 
+que vivem atrás da cortina 
+quem são estes homens 
+ 
+E5 
+Ninguém mais vai jogar 
+G5 
+flores mortas no muro 
+E5 
+ninguém mais vai pichar 
+G5 
+frases fortes no escuro 
+ 
+(B5) 
+ 
+(E5 Db5 D5) 
+Em cima do muro 
+no meio do mundo 
+no meio do mundo dividido 
+ 
+Spielberg... 
+ 
+(E5 Db5 D5) 
+Um raio atravessa a nação 
+e cem anos passam num dia 
+Eu nunca pensei que fosse ver 
+Eu nunca pensei que fosse ver 
+ 
+E5 
+Ninguém mais vai jogar 
+G5 
+flores mortas no muro 
+E5 
+ninguém mais vai pichar 
+G5 
+frases fortes no escuro

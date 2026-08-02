@@ -1,0 +1,76 @@
+Johnny Cash - Six White Horses 
+ 
+D  
+ 
+Some folks drink and some folks smoke  
+ 
+Some folks love and some folks don't  
+ 
+Some folks laugh and some folks frown  
+ 
+Some folks here that'll gun you down.  
+ 
+G A7  
+ 
+Goodbye John {goodbye John}  
+ 
+D  
+ 
+Six White Horses come to take you home  
+ 
+G A7  
+ 
+Goodbye John {goodbye John}  
+ 
+D  
+ 
+They took you away before you sang your song.  
+ 
+Some preach wrong and some preach right  
+ 
+Some preach love and some preach fight  
+ 
+Takes every kind to make the world go round  
+ 
+Takes one to gun you down  
+ 
+Goodbye Martin {goodbye Martin}  
+ 
+Six White Horses come to take you home  
+ 
+Goodbye Reverend {goodbye Reverend}  
+ 
+They took you away before you sang your song.  
+ 
+Some people stick pretty close to home  
+ 
+Others are born with that urge to roam  
+ 
+Welcome to our town  
+ 
+Hope nobody tries to gun you down  
+ 
+Goodbye Bobby {goodbye Bobby}  
+ 
+Six White Horses come to take you home  
+ 
+Goodbye Robert {goodbye Robert}  
+ 
+They took you away before you sang your song.  
+ 
+G  
+ 
+Goodbye John {goodbye John}  
+ 
+A7  
+ 
+Goodbye Martin {goodbye Martin}  
+ 
+G
+
+ 
+Goodbye Bobby {goodbye Bobby}  
+ 
+A7 D  
+ 
+They took you away before you sang your song.

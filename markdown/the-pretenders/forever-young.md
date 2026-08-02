@@ -1,0 +1,93 @@
+The Pretenders - Forever Young 
+ 
+  G                                
+MAY GOD BLESS YOU AND KEEP YOU ALWAYS 
+  Bm                      
+MAY YOUR WISHES ALL COME TRUE 
+  C 
+MAY YOU ALWAYS DO FOR OTHERS 
+  D 
+AND LET OTHERS DO FOR YOU 
+  G 
+MAY YOU BUILD A LADDER 
+  Bm 
+TO THE STARS 
+  C 
+AND CLIMB ON EVERY RUNG 
+  D 
+AND MAY YOU STAY 
+  G 
+FOREVER YOUNG 
+ 
+          D    D7 
+FOREVER YOUNG 
+          Em   Em7 
+FOREVER YOUNG 
+          G    D 
+MAY YOU STAY 
+         G 
+FOREVER YOUNG 
+ 
+  G 
+MAY YOU GROW UP 
+  Bm 
+TO BE RIGHTEOUS 
+  C 
+MAY YOU GROW UP TO BE TRUE 
+  D 
+MAY YOU ALWAYS KNOW THE TRUTH 
+  G 
+AND SEE THE LIGHTS SURROUNDING YOU 
+  Bm 
+MAY YOU ALWAYS BE COURAGEOUS 
+  C 
+STAND UP RIGHT AND BE STRONG 
+  D 
+AND MAY YOU STAY 
+  G 
+FOREVER YOUNG 
+ 
+          D    D7 
+FOREVER YOUNG 
+          Em   Em7 
+FOREVER YOUNG 
+          G    D 
+MAY YOU STAY 
+         G 
+FOREVER YOUNG 
+ 
+  G 
+MAY YOUR HANDS ALWAYS BE BUSY 
+  Bm 
+MAY YOUR FEET ALWAYS BE SWIFT 
+  C 
+MAY YOU HAVE A STRONG FOUNDATION 
+  D 
+WHEN THE WINDS OF CHANGES SHIFT 
+  G 
+MAY YOUR HEART ALWAYS BE JOYFUL 
+  Bm
+
+MAY YOUR SONG ALWAYS BE SUNG 
+  C          D 
+MAY YOU STAY 
+  G 
+FOREVER YOUNG 
+ 
+          D    D7 
+FOREVER YOUNG 
+          Em   Em7 
+FOREVER YOUNG 
+          G    D 
+MAY YOU STAY 
+         Em    Em7 
+FOREVER YOUNG 
+ 
+          D    D7 
+FOREVER YOUNG 
+          Em   Em7 
+FOREVER YOUNG 
+          G    D 
+MAY YOU STAY 
+         G 
+FOREVER YOUNG

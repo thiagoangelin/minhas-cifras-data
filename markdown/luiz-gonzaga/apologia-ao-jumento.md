@@ -1,0 +1,26 @@
+Luiz Gonzaga - Apologia Ao Jumento 
+ 
+[Intro] Dm  F  Gm  A 
+        Dm  F  Gm  A 
+ 
+ Dm               A 
+É verdade, meu senhor 
+                   Dm 
+Essa história do sertão 
+                A 
+Padre Vieira falou 
+ 
+Que o jumento é nosso irmão 
+Dm  F  Gm  A  Dm  F  Gm  A 
+Ão ão ão ão ão ão 
+ 
+( Dm  F  Gm  A ) 
+ 
+Dm             A                      Dm 
+Agora, meu patriota, em nome do meu sertão 
+                  Gm      A               Dm 
+Acompanho o seu vigário, nesta eterna gratidão 
+                  A 
+Aceita nossa homenagem 
+                   Dm   F   Gm  A   Dm  F   Gm  A 
+Ó jumento, nosso irmão, ão, ão, ão, ão, ão, ão, ão

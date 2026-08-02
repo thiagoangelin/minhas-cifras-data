@@ -1,0 +1,42 @@
+Tim Maia - Amigo Verdadeiro 
+ 
+               A7+         Bm       Bm/A 
+Hei de estar aqui se a saudade lhe doer 
+     F#m                            D 
+Ou a sorte lhe faltar, eu hei de estar 
+               A7+      Bm           Bm/A 
+Hei de estar aqui, te rever com alegria 
+      F#m            D 
+E emoção eu hei de estar 
+             F#m         C#m7 
+E sempre haverá em minha vida um lugar 
+       Bm           Bm/A  D           E7 
+Pra você, gente de casa, amigo do coração 
+              A7+       Bm              Bm/A 
+hei de estar aqui na alegria ou na tristeza 
+       F#m             D 
+Tanto faz, eu hei de estar 
+              A7+         Bm          Bm/A 
+Hei de estar aqui só pra ver a tua estrela 
+ F#m                        D 
+Iluminar o céu, eu hei de estar 
+               F#m        C#m 
+Você vai conseguir, logo chega lá 
+    Bm               D 
+E assim amigo velho a vida continua 
+       D                   C#m 
+Vai ar pé, boa sorte companheiro 
+                Bm                A7+ 
+É difícil encontrar um amigo verdadeiro 
+       Dm        G7          C 
+Muita luz, muita paz o teu caminho 
+      Am              Dm           G7         A5+/7 
+Mesmo longe, estou contigo, não te deixarei sozinho 
+        D                    C#m 
+Vai dar pé, boa sorte companheiro 
+                Bm                 A7+ 
+É difícil encontrar um amigo verdadeiro 
+       Dm        G7           C 
+Muita luz, muita paz no teu caminho 
+      Am          Dm               G7       A5+/7 
+Mesmo longe estou contigo, não te deixarei sozinho

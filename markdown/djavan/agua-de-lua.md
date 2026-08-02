@@ -1,0 +1,58 @@
+Djavan - Agua De Lua 
+ 
+Djavan 
+ 
+Intro.: ( A7(9)  A7 ) 
+ 
+A7(9)   A7  A7(9)   A7(9)/E  A7 
+Faca de ponta, peixeira 
+       A7(9)    A7   A7(9)/E 
+Pau na moleira, espingarda 
+D7(9)   C#7(#9)    C7(9)   Bm7(#9) 
+Cano comprido estampido no ar 
+             Bb7(#11) 
+Clarão da espada afiada 
+  E7(9)           D7(9)     (A7(9)  A7) 
+A morte um dia há de chegar 
+ 
+A7(9)  A7    A7(9)  A7 
+Fogo cuspiu, labareda 
+A7(9)  A7  A7(9)   A7 
+Flora  no mato, vereda 
+  D7(9)   C#7(#9)       C7(9)    Bm7(#9) 
+Prata boiando nas águas do luar 
+            Bb7(#11) 
+Clarão da espada afiada 
+   E7(9)           D7(9)      ( A7(9)  A7 ) 
+ A morte um dia há de chegar 
+ 
+A7          A7(#11) 
+Eu me criei no molhado 
+A7       A7(13) 
+Areia e pedras do lado 
+D7(9)    C#7(#9)    ( A7  G7  C7(9)  A7 ) 
+Berço de uma sereia 
+A7          A7(#11) 
+Eu me criei no molhado 
+A7       A7(13) 
+Areia e pedras do lado 
+D7(9)    C#7(#9)   ( A7  G7  C7(9)  ) 
+Berço de uma sereia 
+ 
+Todos os acordes: 
+ 
+A7(9)    - X 0 5 6 0 X 
+A7         - X 0 5 6 5 X 
+A7(9)/E  - 0 X 5 6 0 X 
+D7(9)      - X 5 4 5 5 X 
+C#7(#9)  - X 4 3 4 5 X 
+C7(9)      - X 3 2 3 3 X 
+Bm7(#9)  - X 2 0 2 3 X 
+Bb7(#11) - 6 X 6 7 5 X 
+E7(9)    - X 7 6 7 7 X 
+A7(#11)  - 5 X 5 6 4 X 
+A7(13)   - 5 X 5 6 7 X 
+ 
+_____________________________________________________
+__ 
+Contribuição: ()

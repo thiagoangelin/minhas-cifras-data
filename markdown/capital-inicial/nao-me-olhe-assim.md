@@ -1,0 +1,83 @@
+Capital Inicial - Nao Me Olhe Assim 
+ 
+[Intro] Bb  F 
+        Bb  C  Dm 
+        Gm 
+ 
+Bb 
+Não me olhe assim 
+F 
+Não me queira mal 
+Bb                    c           Dm 
+Tô correndo e eu não sei onde eu vou 
+Bb 
+Não me veja assim 
+F 
+Não me trate mal 
+       Gm 
+Como alguém que o tempo levou 
+ 
+Gm 
+Tão normais 
+Dm 
+Distantes 
+Gm 
+Nada mais 
+Dm 
+Nos move 
+Gm 
+Tanto faz 
+Dm 
+Estranhos 
+       C 
+Tão iguais 
+ 
+F 
+Não me olhe assim (Na, nana, na, na, na) 
+Am 
+Não me veja assim (Na, nana, na, na, na) 
+Dm 
+Não me queira mal (Na, nana, na, na, na) 
+         Bb 
+Não me deixa assim 
+ 
+( Bb  F ) 
+( Bb  C  Dm ) 
+ 
+Bb 
+Não me esqueça assim 
+F 
+Não me deixe só 
+Bb                C       D 
+Como um barco perdido no mar 
+Bb 
+Se esse for o fim 
+F 
+Sempre vai haver 
+     Gm 
+Uma luz que não vai apagar 
+ 
+Gm 
+Os sinais 
+Dm 
+Que não vimos 
+Gm 
+Tão reais 
+Dm 
+Não sentimos 
+Gm 
+Ideais
+
+Dm 
+Impossíveis 
+       C 
+Foi demais 
+ 
+F 
+Não me olhe assim (Na, nana, na, na, na) 
+Am 
+Não me veja assim (Na, nana, na, na, na) 
+Dm 
+Não me queira mal (Na, nana, na, na, na) 
+         Bb 
+Não me deixa assim

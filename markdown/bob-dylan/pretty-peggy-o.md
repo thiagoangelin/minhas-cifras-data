@@ -1,0 +1,20 @@
+Bob Dylan - Pretty Peggy O 
+ 
+        G 
+Well, as we marched down, as we marched down 
+                              D 
+Well, as we marched down to Fennerio' 
+          G                           C 
+Well, our captain fell in love with a lady like a dove 
+    D                            G 
+the name that she had was Pretty Peggy-O 
+ 
+Live version (Albany, NY April 18 1998) 
+D             G                  D 
+As we marched out, to Fennario 
+   D          Bm          F#m 
+As we marched out, to Fennario 
+          G               D                      G 
+Well, our captain fell in love with a lady like a dove 
+                                 D 
+And he called her by name Pretty Peggy-O

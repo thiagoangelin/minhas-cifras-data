@@ -1,0 +1,37 @@
+Pink Floyd - Embryo 
+ 
+Em       Em9     Em    Em9 
+All this love is all I am 
+  Em      Em9   Em 
+A ball is all I am 
+Em     Em9    Em         Em9 
+I'm so new compared with you 
+    Em   Em9  Em 
+And I am very small 
+ 
+Bm 
+Warm glow, moon glow 
+                          Em 
+Always need a little more room 
+Bm 
+Waiting here seems like years 
+Em             B7       Em 
+Never seen the light of day 
+ 
+Em   Em9     Em           Em9 
+All around I hear strange sounds 
+     Em       Em9   Em 
+Come gurgling in my ear 
+Em      Em9       Em       Em9 
+Red the light and dark the night 
+  Em      Em9     Em 
+I feel my dawn is near 
+ 
+Bm 
+Warm glow, moon glow 
+                          Em 
+Always need a little more room 
+Bm 
+Whisper low, here I go 
+Em             B7       Em 
+I will see the sunshine show

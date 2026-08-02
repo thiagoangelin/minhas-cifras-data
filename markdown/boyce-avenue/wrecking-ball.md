@@ -1,0 +1,110 @@
+Boyce Avenue - Wrecking Ball 
+ 
+    C#m                    E 
+We clawed, we chained our hearts in vain 
+    B             F#m 
+We jumped never asking why 
+    C#m                      E 
+We kissed, I fell under your spell. 
+    B               F#m 
+A love no one could deny 
+ 
+A                  C#m 
+Don't you ever say I just walked away 
+E              A 
+I will always want you 
+A                   C#m 
+I can't live a lie, running for my life 
+E              A 
+I will always want you 
+ 
+                  E           B 
+I came in like a wrecking ball 
+                C#m         A 
+I never hit so hard in love 
+                    E               B 
+All I wanted was to break your walls 
+                    C#m             A 
+All you ever did was wreck me 
+               C#m          A 
+Yeah, you, you wreck me 
+ 
+  C#m              E 
+I put you high up in the sky 
+    B                F#m 
+And now, you're not coming down 
+   C#m                E 
+It slowly turned, you let me burn 
+    B                 F#m 
+And now, we're ashes on the ground 
+ 
+A                  C#m 
+Don't you ever say I just walked away 
+E              A 
+I will always want you 
+A                   C#m 
+I can't live a lie, running for my life 
+E              A 
+I will always want you 
+ 
+                  E           B 
+I came in like a wrecking ball 
+                C#m         A 
+I never hit so hard in love 
+                    E               B 
+All I wanted was to break your walls 
+                    C#m             A 
+All you ever did was wreck me 
+                  E           B 
+I came in like a wrecking ball 
+                      C#m           A 
+Yeah, I just closed my eyes and swung 
+                      E             B 
+Left me crashing in a blazing fall 
+                    C#m             A 
+All you ever did was wreck me 
+               C#m          A 
+Yeah, you, you wreck me 
+ 
+E                       C#m
+
+  I never meant to start a war 
+                      E 
+I just wanted you to let me in 
+                      G#m 
+And instead of using force 
+                           A 
+I guess I should've let you win 
+                 B      C#m 
+I never meant to start a war 
+                           E 
+I just wanted you to let me in 
+                          G#m 
+I guess I should've let you win 
+ 
+A                  C#m 
+Don't you ever say I just walked away 
+E              A 
+I will always want you 
+ 
+                  E           B 
+I came in like a wrecking ball 
+                C#m         A 
+I never hit so hard in love 
+                    E               B 
+All I wanted was to break your walls 
+                    C#m             A 
+All you ever did was wreck me 
+ 
+                  E           B 
+I came in like a wrecking ball 
+                      C#m           A 
+Yeah, I just closed my eyes and swung 
+                      E             B 
+Left me crashing in a blazing fall 
+                    C#m             A 
+All you ever did was wreck me 
+               C#m          A 
+Yeah, you, you wreck me 
+               C#m          A 
+Yeah, you, you wreck me

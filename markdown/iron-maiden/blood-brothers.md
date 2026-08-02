@@ -1,0 +1,81 @@
+Iron Maiden - Blood Brothers 
+ 
+ 
+ Interlúdio: 
+ 
+ Base: 
+ 
+ Solo 1: 
+ 
+ Solo 2: 
+ 
+ Solo 3: 
+ 
+ Solo 4: 
+ 
+ Refrão: 
+ 
+ Dedilhado: 
+ 
+Letra: 
+ 
+Intro 
+Interlúdio 
+ 
+(E5 G5 C5 D5) 
+And if you're taking a walk through the garden of life 
+What do you think you'd expect you would see? 
+Just like a mirror reflecting the moves of your life 
+And in the river reflections of me 
+Just for a second a glimpse of my father I see 
+And in a movement he beckons to me 
+And in a moment the memories are all that remain 
+And all the wounds are reopening again 
+ 
+Refrão: 
+We're blood brothers x4 
+ 
+(E5 G5 C5 D5) 
+And as you look all around at the world in dismay 
+What do you see, do you think we have learned 
+Not if you're taking a look at the war torn affraid 
+Out in the streets where the babies are burned 
+ 
+[Refrão] 
+[Iterlúdio] 
+ 
+(E5 G5 C5 D5) 
+There are times when I feel I'm afraid for the world 
+There are times I'm ashamed of us all 
+When you're floating on all the emotion you feel 
+And reflecting the good and the bad. 
+Will we ever know what the answer to life really is? 
+Can you really tell me what life is? 
+Maybe all the things that you know that are precious to  
+you 
+Could be swept away by fate's own han 
+ 
+[Refrão] 
+[Iterlúdio] - (distorcido) 
+[Solo 1] 
+[Solo 2] 
+[Dedilhado] 
+[Solo 3] 
+ 
+[Solo 3] 
+When you think that we've used all our chances 
+And the chance to make everything right, 
+Keep on making the same old mistakes 
+Makes untipping the balance so easy
+
+When we're living our lives on the edge 
+Say a prayer on the book of the dead 
+ 
+[Solo 3] - (distorcido) 
+[Solo 4] 
+[Refrão] 
+ 
+[Final] 
+And if you're taking a walk through the garden of life 
+ 
+ Final:

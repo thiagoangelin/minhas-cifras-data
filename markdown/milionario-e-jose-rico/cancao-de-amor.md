@@ -1,0 +1,21 @@
+Milionario E Jose Rico - Cancao De Amor 
+ 
+Bolero  A E A E A D E A 
+ 
+A                              E7 Bm 
+Quantas vezes eu chorei por você 
+          E7                          A 
+Eu confesso que não sou nada quero dizer 
+                      A7                  D 
+Eu recordo aquele dia em que disseste assim: 
+                      A                E7       A 
+Não sofras mais meu bem, não chores tanto por mim 
+ 
+A                              E7 
+Eu não sei se é verdade o que diz 
+                                 A 
+Eu só penso que um dia serei feliz 
+             A7                  D 
+Ao teu lado acalmará toda minha dor 
+                    A           E7      A 
+Eu te escrevi meu bem, esta canção de amor

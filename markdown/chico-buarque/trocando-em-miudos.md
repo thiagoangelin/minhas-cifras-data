@@ -1,0 +1,47 @@
+Chico Buarque - Trocando Em Miudos 
+ 
+[Intro] C7M  C7(13)  D/C  Fm6/C 
+        C7M  C/Bb  Am6  Fm6/Ab 
+ 
+C7M          C7/Bb              F/A         Fm6/Ab 
+Eu vou lhe deixar a medida do Bonfim,     não me valeu 
+C7M            C7/Bb                F/A   Fm6/Ab 
+Mas fico com o disco do Pixinguinha, sim, o resto é seu 
+Cm7         Cm7/Bb           Am7(5-) 
+Trocando em miúdos, pode guardar 
+             Abm6            Cm7 
+As sobras de tudo que chamam lar 
+             Cm7/Bb          D7(4) 
+As sombras de tudo que fomos nós 
+               D7               G7M/D 
+As marcas do amor nos nossos lençóis 
+          G7(9-) 
+As nossas melhores lembranças 
+ 
+C7M         C7/Bb              F/A        Fm6/Ab 
+Aquela esperança de tudo se ajeitar, pode esquecer 
+C7M       C7/Bb             F/A     Fm6/Ab 
+Aquela aliança você pode empenhar ou derreter 
+Cm7       Cm7/Bb              Am7(5-) 
+Mas devo dizer que não vou lhe dar 
+            Abm6              Cm7 
+O enorme prazer de me ver chorar 
+              Cm7/Bb          D7(4)  D7 
+Nem vou lhe cobrar pelo seu estra...go 
+    D7(4) D7      G7(4)  G7(9)   G7(4)   G7(9-) 
+Meu pei...to tão   di.....la....cera......do 
+ 
+  C7M  C7/Bb                         F/A           Fm6/Ab 
+Aliás, aceite uma ajuda do seu futuro amor,     pro aluguel 
+C7M         C7/Bb             F/A         Fm6/Ab 
+Devolva o Neruda que você me tomou     e nunca leu 
+Cm7         Cm7/Bb                Am7(5-) 
+Eu bato o portão sem fazer alarde 
+             Abm6               Cm7 
+Só levo a carteira de identidade 
+             Cm7/Bb       Am7(5-) 
+Uma saideira,      muita saudade 
+              Abm6                  Cm7(9) Abº/C 
+E a leve impressão    de que já vou tarde 
+ 
+[Final] Cm7(9)  Abº/C

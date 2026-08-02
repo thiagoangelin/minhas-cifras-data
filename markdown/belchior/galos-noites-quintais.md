@@ -1,0 +1,44 @@
+Belchior - Galos Noites Quintais 
+ 
+[Intro] A  E  A  F#m  E4/7  E 
+ 
+  E 
+Quando eu não tinha o olhar lacrimoso 
+     F# 
+Que hoje eu trago e tenho 
+  A7 
+Quando adoçava o meu pranto e o meu sono 
+      E                 E7 
+No bagaço de cana de engenho 
+ 
+  E 
+Quando eu ganhava esse mundo de meu Deus 
+            F# 
+Fazendo eu mesmo o meu caminho 
+ A7 
+Por entre as fileiras do milho verde que ondeiam 
+        E                   E7 
+Com saudades do verde marinho 
+ 
+   A 
+Eu era alegre como um rio 
+    F#m 
+Um bicho, um bando de pardais 
+         Bm7          E7 
+Como um galo, quando havia 
+              Bm7                 E7 
+Quando havia galos, noites e quintais 
+ 
+     A 
+Mas veio o tempo negro e a força fez 
+   F#m 
+Comigo o mal que a força sempre faz 
+     D                    E7 
+Não sou feliz, mas não sou mudo 
+                     A   F#m 
+Hoje eu canto muito mais 
+ 
+     D                    E7 
+Não sou feliz, mas não sou mudo 
+                     A   
+Hoje eu canto muito mais

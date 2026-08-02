@@ -1,0 +1,47 @@
+Rita Lee - Refestanca 
+ 
+INTRODUÇÃO: (G Bm D) 
+ 
+D                       C 
+TCHÁ, TCHÁ, TCHÁ, TCHÁ, TCHÁ, TCHÁ, TCHÁ. 
+D                     C                D 
+TCHÁ, TCHÁ,TCHÁ, TCHÁ, TCHÁ, TCHÁ, TCHÁ, É, É, É. 
+G7 
+REFESTANÇA DANÇA, DANÇA, DANÇA, DANÇA. 
+ 
+QUEM PODE DANÇAR. 
+C7 
+REFESTANÇA CANTA, CANTA, CANTA, CANTA. 
+ 
+QUEM PODE CANTAR. 
+D    G 
+NA HORA QUE AGORA QUANDO A BANDA TOCAR. 
+E7 
+SENHORAS E SENHORES, CRIANÇAS VAMOS VOAR. 
+ A 
+VOAR, VOAR, PODEM DESATAR OS CINTOS DE 
+SEGURANÇA. 
+ D 
+QUE A ESPERANÇA, QUE A BONANÇA. 
+ 
+QUE A VONTADE É AMAR, AH, AH, AH. 
+G7 
+REFESTANÇA DANÇA, DANÇA, DANÇA, DANÇA. 
+ 
+QUEM PODE DANÇAR. 
+C7 
+REFESTANÇA CANTA, CANTA, CANTA, CANTA. 
+ 
+QUEM PODE CANTAR. 
+C7                     F 
+SÓ NÃO PODE QUEM NÃO QUISER. 
+A#                       D# 
+VER QUE O CÉU DA TERRA É AZUL. 
+G# 
+VER QUE O VERDE É VERDE. 
+G 
+QUE A VIDA VIAJA. 
+ C                     D 
+QUE COM A VIDA A GENTE VAI, VAI, VAI, VAI. 
+ 
+ESTRIBILHO

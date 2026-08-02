@@ -1,0 +1,45 @@
+Coldplay - Reign Of Love 
+ 
+Intro: 
+D (até ouvir ele falar 1, 2, 3...)  
+D A D 
+G D A 
+D A D 
+G D A 
+D A D 
+Bm F#m/D G 
+G A D 
+G A D 
+ 
+D    A    D 
+Reign of love 
+G        D   A 
+I canÂ't let go 
+D     A     D           G   D    A 
+To the sea I offer this heavy load 
+D   A    D 
+Locust wind 
+Bm  F#/D  G   
+Lift me   up 
+G     A   D              G    A    D  
+I'm just a prisoner in a reign of love 
+ 
+[Intro] 
+ 
+D    A  D 
+Locust wind 
+Bm  F#/D  G 
+...  
+G   A     D 
+How I wish I'd spoken up 
+G    A        D 
+To a reign of love 
+ 
+D     A     D        G     D     A 
+Reign of love by the church we're waiting 
+D     A   D          G     D     A 
+Reign of love on my kness go praying 
+D     A   D     Bm  F#/D  G 
+How I wish I'd spooooken up 
+G     D     A         G     D  A 
+Away get carried on a reign of love

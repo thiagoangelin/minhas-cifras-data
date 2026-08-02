@@ -1,0 +1,36 @@
+Gal Costa - De Amor Eu Morrerei 
+ 
+Intro: (Gm F D# D7 Gm F D# D7 Gm F D# D7 D#) 
+ 
+Gm             Dm 
+Nos acordes da sanfona 
+Gm           Dm     C13 
+Vou tentando esquecer 
+Gm          F    D#     D7 
+Quem eu amo está tão longe 
+D7       D#             D7 
+E eu não sei quando vou ver 
+ 
+Vocalização Junto com a introdução.  
+ 
+Gm           Dm       Gm 
+Foi embora pra bem longe 
+Dm        Gm          C13 
+E não deixou nem um adeus 
+Gm      F    D#     D7 
+E meus olhos sempre choram 
+D#             D7 
+Ao lembrar dos olhos teus 
+ 
+Vocalização junto com a introdução 
+ 
+Gm           Dm 
+Vou chorando minhas mágoas 
+Gm         Dm       C13 
+Até quando eu não sei 
+Gm        F   D#        D7 
+Se é verdade que o amor mata 
+D#             D7 
+Ai, de amor eu morrerei. 
+ 
+Segui vocalização e introdução juntos no final da musica.

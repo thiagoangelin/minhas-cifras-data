@@ -1,0 +1,24 @@
+Ira - No Universo Dos Seus Olhos 
+ 
+(B D E G) 
+No universo dos seus olhos 
+Existem seres invisíveis 
+Existem astros e estrelas 
+                  A 
+Que ninguém nunca viu 
+(B D E G) 
+No universo dos seus olhos 
+O mundo cabe em sua pupila 
+A noite passa e vem o dia 
+                          A 
+Em brancas nuvens sobre o sol 
+(E D A) 
+No universo dos seus olhos 
+Crianças brincam de adultos 
+Adultos brincam que são deuses 
+Deuses da destruição 
+(B5 G5 A5 E5) 
+Num grão de areia 
+Na folha da palmeira 
+Ao alcance 
+Dos seus olhos

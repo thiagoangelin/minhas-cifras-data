@@ -1,0 +1,79 @@
+Chitaozinho E Xororo - Meus Direitos 
+ 
+Intro: D  Bm  G  A 
+ 
+    D 
+Eu sou tudo que a vida tem pra me oferecer 
+ 
+Meu Deus a força que hoje brota no meu peito 
+                                            A 
+Luto pelos meus direitos, quero este amor aqui 
+Em                                      A 
+Aqui, onde a semente está prá desabrochar 
+           Em                           A 
+Chegando a flor ganhando vida e seu lugar 
+                                    D    A 
+Tudo renasce no mistério deste céu e mar 
+D 
+Aqui, onde as plantas lutam pra sobreviver 
+ 
+O mesmo amor que tenho pela natureza 
+ 
+Deus me deu e com certeza, 
+                  A 
+Juro, tenho por você 
+Em                                                 A 
+Assim o sol sorri quando ele despe pro teu despertar 
+      Em                                A 
+A lua branca se escondendo neste madrugar 
+ 
+Vejo os teus olhos espreguiçando 
+        D 
+Para me olhar 
+    A7                                   D 
+E assim. A gente planta uma flor pra admirar    
+        Bm                           Em 
+Ela dá frutos a gente torna a plantar 
+          A 
+Vem outro alguém rouba as sementes 
+          D 
+E nos faz chorar 
+        A                                             D 
+Vem pra mim que eu te planto de uma vez dentro do peito 
+        Bm                            Em 
+Pois eu duvido que lá fora dêem um jeito 
+         A                          D 
+Você é minha, quero ver alguém roubar 
+ 
+Intro: D  Bm  G  A7 
+ 
+    D 
+Eu sei que há momentos em que penso em desistir 
+ 
+Noutros lugares a saudade me acompanha 
+ 
+Solidão eu te proíbo 
+                   A 
+De querer me perseguir 
+Em                                        A 
+Assim, nada me importa quando não está aqui 
+           Em                      A 
+Bem lá no fundo me incomoda esta dor 
+                                  D 
+Mas no amor eu acho forças para prosseguir 
+ 
+    A7                                   D 
+E assim. A gente planta uma flor pra admirar 
+       Bm                            Em 
+Ela dá frutos a gente torna a plantar 
+           A
+
+Vem outro alguém rouba as sementes 
+          D 
+E nos faz chorar 
+        A                                           D 
+Vem pra mim que eu te planto de uma vez dentro do peito 
+            Bm                        Em 
+Pois eu duvido que lá fora dêem um jeito 
+         A                          D G Gm D 
+Você é minha, quero ver alguém roubar...

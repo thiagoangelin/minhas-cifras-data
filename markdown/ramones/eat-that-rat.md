@@ -1,0 +1,45 @@
+Ramones - Eat That Rat 
+ 
+ 
+ 
+( E  G  A ) x2 
+ 
+E      G    A     E      G     A 
+You don't want to share with anyone else 
+You got all the money, you got all the wealth 
+You got all the buildings and the factories 
+You got all the power and the ceremonies 
+ 
+( A  Bb  F  C ) x2 
+You wanna play a game of cat and mouse 
+With the President in the White House 
+This is a hungry world, there are months to feed 
+There are millionaires with more than they need 
+ 
+( A  Bb  F  C ) x2 
+ 
+E   G    A 
+Eat that rat 
+Eat that rat 
+Eat that rat 
+Eat that rat 
+ 
+( E  C  D ) x2 
+( D  C  D  C  G ) 
+ 
+Don't believe what you've been told 
+You can't change a turd into gold 
+Somehow we get all these creeps in control 
+It makes me throw up in the toilet bowl 
+ 
+( A  Bb  F  C ) x2 
+You thieving whore, you hustle for bucks 
+You take the money and you shoot it up 
+That's the breaks, it's the chance you take 
+Get it together for your children's sake 
+ 
+( A  Bb  F  C ) x2 
+Eat that rat... 
+ 
+( E  C  D ) x2 
+( E  G  A ) x4

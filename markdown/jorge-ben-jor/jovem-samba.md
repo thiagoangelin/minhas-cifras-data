@@ -1,0 +1,63 @@
+Jorge Ben Jor - Jovem Samba 
+ 
+[Intro] G7  F#7  F7  Em 
+        G7  F#7  F7  Em 
+        G7  F#7  F7  Em  B7 
+ 
+              E     F#m7 A7 
+Eu sou da jovem samba  
+                 E     F#m7 A7 
+A minha linha é de bamba  
+                E           B7 
+O meu caso é viver bem com todo mundo  
+             E                F#m7 A7 
+E com você também na paz de Deus  
+                 E                 F#m7 A7 
+Quero trabalhar em paz, na paz de Deus  
+                  E                 F#m7 A7 
+Quero amar, amar em paz, na paz de Deus  
+                      B7 
+Quero sambar, sambar em paz  
+   A7        E            F#m7 A7 
+Porque amanhã é outro dia  
+                      E          F#m7 A7 
+E eu não sei se vai vim com alegria  
+                   E 
+Mas se você gostar de mim meu bem  
+ B7                  E        F#m7          A7 
+Vem pra jovem samba também então na paz de Deus  
+                 E              F#m7        A7 
+Vamos trabalhar em paz, então na paz de Deus  
+                  E           F#m7         A7 
+Vamos amar, amar em paz, então na paz de Deus  
+                      B7     A7 
+Vamos sambar, sambar em paz porque  
+ 
+  G7            F#7       F7         Em 
+La la ra... la ra la ra la ra la ra la ra  
+  G7      F#7        F7     Em 
+La la ra ra... ra ra ra ra ra ra   
+  G7            F#7       F7        Em 
+La la ra... la ra la ra la ra la ra la ra  
+  G7      F#7        F7     Em 
+La la ra ra... ra ra ra ra ra ra 
+ 
+   G7         F#7 
+Eu sou da jovem samba  
+   F7             Em 
+A minha linha de bamba  
+   G7         F#7 
+Eu sou da jovem samba  
+   F7             Em 
+A minha linha de bamba  
+   G7         F#7 
+Eu sou da jovem samba  
+   F7             Em 
+A minha linha de bamba  
+ 
+ G7          F#7        F7         Em 
+La la ra... la ra la ra la ra la ra la ra 
+  G7      F#7        F7     Em 
+La la ra ra... ra ra ra ra ra ra 
+  G7 F#7 F7 Em 
+La

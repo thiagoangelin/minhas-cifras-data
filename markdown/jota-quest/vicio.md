@@ -1,0 +1,51 @@
+Jota Quest - Vicio 
+ 
+INTRO: (Gm7/9) 2x 
+ 
+          |     Gm7 
+(PRIMEIRA | Te ver assim tão perto 
+  PARTE)  | Me deixa as vezes indeciso 
+          |    Eb/G 
+          | Se vou me entregar 
+          |               F/G 
+          | Por tudo largar 
+          |             Gm7/9 
+          | Correr o risco 
+          |  
+          | Te ver todo dia só faz aumentar o meu vício 
+          |     Eb/G 
+          | De te conquistar  
+          | Querer te tocar 
+          |     F/G 
+          | Entrar no teu mundo um dia 
+ 
+INTRO: (Gm7/9) 1x 
+REPETE PRIMEIRA PARTE 
+ 
+(REFRÃO) | Cm7   F7 
+         | Essa noite não termina 
+         | Dm7            Gm7 F7 
+         | Antes de eu saber 
+         | Eb       Gm7 
+         | Como te conhecer 
+         |  
+         | Cm7   F7 
+         | Essa noite não termina 
+         | Dm7             Gm7 F7 
+         | Antes de eu querer 
+         | Eb     Gm7/9 
+         | A lua sabe o quê 
+ 
+INTRO: (Gm7/9) 1x 
+REPETE PRIMEIRA PARTE 
+REPETE REFRÃO 
+ 
+INTRO: (Gm7/9) 1x 
+SOLO:  (Gm7/9) 1x 
+REPETE REFRÃO 
+ 
+INTRO: (Gm7/9) 1x 
+ 
+Gm7/9 
+Vício de querer te conquistar 
+Querer você...

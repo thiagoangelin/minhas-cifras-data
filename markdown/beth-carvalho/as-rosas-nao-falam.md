@@ -1,0 +1,41 @@
+Beth Carvalho - As Rosas Nao Falam 
+ 
+[Intro] Em  Am  Bb°  B7  
+        Em  Am  B7  Em   
+        F#7  Am  B7  Em 
+        E7  Am  B°  Em   
+        F#7  Am  B7  Em  
+        Am  Bb°  B7  Em 
+ 
+Em 
+Bate outra vez 
+                F#7 
+Com esperanças o meu coração 
+                 Am      B7 
+Pois já vai terminando o verão 
+Em  Am  B7 
+Emfim 
+Em 
+Volto ao jardim 
+                     F#7 
+Com a certeza de que devo chorar 
+                       Am 
+Pois bem sei que não queres voltar 
+B7     Em  E7 
+  Para mim 
+   Am 
+Queixo-me as rosas mas que bobagem 
+   Em 
+As rosas não falam 
+                Bb° 
+Simplesmente as rosas exalam 
+Am                      B7 
+O perfume que roubam de ti 
+         Em 
+Devias vir 
+                          F#7 
+Para ver os meus olhos tristonhos 
+           Am               B7 
+E quem sabe sonhavas meus sonhos 
+Em 
+Por fim

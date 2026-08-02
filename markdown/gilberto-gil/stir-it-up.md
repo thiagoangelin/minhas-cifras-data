@@ -1,0 +1,67 @@
+Gilberto Gil - Stir It Up 
+ 
+Intro: A D E 
+ 
+A          D     E 
+Stir it up, oh darling 
+ 
+Stir it up 
+ 
+A          D       E 
+Stir it up, oh little darling     REFRÃO 
+ 
+A 
+It's been a long, long time 
+ 
+D     E      A 
+Since I've got you on my mind 
+ 
+A E D 
+ 
+A 
+But now there I am here 
+ 
+D       E 
+It's so clear to see 
+ 
+A 
+What we can do togehter baby 
+ 
+D    E 
+Me and you, you and me 
+ 
+REFRÃO 
+ 
+A 
+ 
+I push the world 
+ 
+D            E 
+ 
+I blaze your fire 
+ 
+A 
+ 
+Thought I satisfy you 
+ 
+D            E 
+ 
+Your all disires 
+ 
+A 
+ 
+Thought I keep stirring 
+ 
+D            E 
+ 
+Every minute,all the time 
+ 
+A 
+ 
+All I've got to do 
+ 
+D          E 
+ 
+Is keep it stirring 
+ 
+REFRÃO

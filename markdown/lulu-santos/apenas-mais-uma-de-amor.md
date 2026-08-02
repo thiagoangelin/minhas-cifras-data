@@ -1,0 +1,108 @@
+Lulu Santos - Apenas Mais Uma De Amor 
+ 
+ 
+ 
+[Primeira Parte] 
+ 
+    G 
+Eu gosto tanto de você 
+      C9 
+Que até prefiro esconder 
+G/B                            D4  D   
+    Deixo assim ficar subentendi__do 
+ 
+[Segunda Parte] 
+ 
+           Am      G/B  C      
+Como uma ideia que e___xiste  
+ D    G      D9 
+Na cabeça e não 
+        Am       G/B  C      
+Tem a menor obriga___ção 
+ D   G   C9  G  C9  G 
+De acontecer 
+ 
+[Primeira Parte] 
+ 
+   G 
+Eu acho tão bonito isso 
+C9 
+   De ser abstrato, baby 
+G/B                       D4  D   
+    A beleza é mesmo tão fu__gaz 
+ 
+[Segunda Parte] 
+ 
+           Am      G/B  C      
+Como uma ideia que e___xiste  
+ D    G      D9 
+Na cabeça e não 
+         Am     G/B  C      
+Tem a menor preten__são  
+     D    G  C9  G 
+De acontecer 
+ 
+[Refrão] 
+ 
+C9               D 
+   Pode até parecer fraqueza 
+          G       F6(9)   C9  G/B 
+Pois que seja fraqueza então 
+Am7             G4/B  C 
+    A alegria que me dá 
+      D            G  G7M  G7 
+Isso vai sem eu dizer 
+ 
+C                    D 
+  Se amanhã não for nada disso 
+     G       F6(9)    C9  G/B 
+Caberá só a mim esquecer 
+Am7                 G4/B      C 
+    O que eu ganho, o que eu perco 
+     D  G     C9     G  C9  G 
+Ninguém   precisa saber 
+ 
+[Primeira Parte] 
+ 
+    G 
+Eu gosto tanto de você 
+      C9
+
+Que até prefiro esconder 
+G/B                            D4  D   
+    Deixo assim ficar subentendi__do 
+ 
+[Segunda Parte] 
+ 
+           Am      G/B  C      
+Como uma ideia que e___xiste  
+ D    G      D9 
+Na cabeça e não 
+         Am     G/B  C      
+Tem a menor preten__são  
+     D    G  C9  G 
+De acontecer 
+ 
+[Refrão] 
+ 
+C9               D 
+   Pode até parecer fraqueza 
+          G       F6(9)   C9  G/B 
+Pois que seja fraqueza então 
+Am7             G4/B  C 
+    A alegria que me dá 
+      D            G  G7M  G7 
+Isso vai sem eu dizer 
+ 
+C                    D 
+  Se amanhã não for nada disso 
+     G       F6(9)    C9                 
+Caberá só a mim esquecer,  
+               G/B 
+Eu vou sobreviver 
+Am7                 G4/B      C 
+    O que eu ganho, o que eu perco 
+     D  G     C9     G  C9  G 
+Ninguém   precisa saber 
+ 
+[Tab - Final]

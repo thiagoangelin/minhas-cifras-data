@@ -1,0 +1,28 @@
+Queen - Polar Bear 
+ 
+E 
+ 
+E            D       A         Asus ** 
+In a bright shop window sits a polar bear 
+E             D         A           Asus 
+makes the childrens eyes light up tp see him there 
+D     D7            F#m      A   E 
+Amongst the tinsel he gives everyone a smile 
+D 
+but see him as you see a star 
+E 
+love him from where you are 
+A         F#m       D      A 
+He's not for, not for, not for sale 
+Past an open window walks the pretty girl 
+Does she see me at her feet it's hard to tell 
+But if I ask her she might turn her smile away 
+To see her as I'd see a star 
+Love her from where you are 
+She's not for, not for, not for sale 
+I guess I'll learn to look 
+Without a grasping hand 
+Minor contentment wears a smile 
+I love her from where I lie 
+He's not for, not for, not for sale 
+Not for sale

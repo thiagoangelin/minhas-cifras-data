@@ -1,0 +1,114 @@
+U2 - Youre The Best Thing About Me 
+ 
+          F# 
+When you look so good 
+     C#m          E             F#  F#4  F# 
+The pain in your face doesn't show 
+          F# 
+When you look so good 
+     C#m       E           F#  F#4  F# 
+And baby, you don't even know 
+ 
+          F# 
+When the world is ours 
+         C#m               E        F#  F#4  F# 
+But the world is not your kind of thing 
+          F# 
+Full of shooting stars 
+  C#m                E        F#  F#4  F# 
+Brighter as they're vanishing 
+ 
+     F# 
+Oh, you've seen enough 
+               C#m      E  F#   F#4  F# 
+To know it's children who teach 
+         F# 
+You're still free enough 
+    C#m       E           F#  F#4  F# 
+To wake up on a bed or a beach 
+ 
+ G          D 
+You're the best thing about me 
+     A                    Bm 
+The best thing that ever happened a boy 
+ G          D 
+You're the best thing about me 
+         A                    Bm 
+I'm the kind of trouble that you enjoy 
+ 
+ G          D 
+You're the best thing about me 
+     A              Bm 
+The best things are easy to destroy 
+ G          D 
+You're the best thing about me 
+  A 
+The best thing about me 
+ 
+( F#  C#m  E  F# ) 
+ 
+         F# 
+I been crying out 
+         C#m   E         F#  F#4  F# 
+How bad can a good time be 
+Shooting off my mouth 
+         C#m           E          F#  F#4  F# 
+That's another great thing about me 
+I have everything 
+       C#m       E         F#  F#4  F# 
+But I feel like nothing at all 
+There's no risky thing 
+       C#m         E           F#  F#4  F# 
+For a man who's determined to fall 
+ 
+ G          D 
+You're the best thing about me 
+     A                    Bm 
+The best thing that ever happened a boy 
+ G          D 
+You're the best thing about me
+
+         A                    Bm 
+I'm the kind of trouble that you enjoy 
+ 
+ G          D 
+You're the best thing about me 
+     A              Bm 
+The best things are easy to destroy 
+ G          D 
+You're the best thing about me 
+ 
+  A    Bm 
+Why am I 
+          G 
+Why am I walking away? 
+(Walking away) 
+          F# 
+Why am I walking away?  
+ 
+( G  D/F#  A  Bm ) 
+( G  D/F#  A  Bm ) 
+ 
+   G         D/F# 
+I can see it all so clearly 
+   A            Bm 
+I can see what you can't see 
+   G           D/F# 
+I can see you love her loudly 
+  A                  Bm 
+When she needs you quietly 
+ 
+ G          D 
+You're the best thing about me 
+     A              Bm 
+The best things are easy to destroy 
+ G          D 
+You're the best thing about me 
+ 
+  A    Bm 
+Why am I 
+          G 
+Why am I walking away? 
+(Walking away) 
+          F# 
+Why am I walking away?

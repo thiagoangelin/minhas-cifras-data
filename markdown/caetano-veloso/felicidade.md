@@ -1,0 +1,42 @@
+Caetano Veloso - Felicidade 
+ 
+[Intro] C G C 
+ 
+     C            F 
+Felicidade foi se embora 
+                    G/F         Em 
+E a saudade no meu peito ainda mora 
+                  Am             Dm 
+E é por isso que eu gosto lá de fora 
+                     G          C 
+Porque sei que a falsidade não vigora 
+ 
+   C              F 
+Felicidade foi se embora 
+                    G/F           Em 
+E a saudade no meu peito ainda mora 
+                  Am             Dm 
+E é por isso que eu gosto lá de fora 
+                     G          C 
+Porque sei que a falsidade não vigora 
+ 
+         C                       F 
+A minha casa fica lá de traz do mundo 
+                   G                       C 
+Onde eu vou em um segundo quando começo a cantar 
+   C                                F 
+O pensamento parece uma coisa à toa 
+                     G                   C 
+Mas como é que a gente voa quando começa a pensar 
+ 
+[Solo] C F G/F Em Am Dm G C 
+       C F G/F Em Am Dm G C 
+ 
+         C                       F 
+A minha casa fica lá de traz do mundo 
+                   G                       C 
+Onde eu vou em um segundo quando começo a cantar 
+   C                                F 
+O pensamento parece uma coisa à toa 
+                     G                   C 
+Mas como é que a gente voa quando começa a pensar

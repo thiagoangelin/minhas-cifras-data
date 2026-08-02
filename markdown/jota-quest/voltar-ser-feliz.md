@@ -1,0 +1,32 @@
+Jota Quest - Voltar Ser Feliz 
+ 
+(Cm , Dm) 
+A nossa dor tem sangue negro  
+Índio, branco, e tem você e eu  
+O grito é berro, o canto é forte  
+Tem bumbo, caixa, e tem fé em deus  
+Dizem que ele é brasileiro  
+Mas não manda dinheiro não  
+O sol é quente, o santo é forte  
+O nosso verde tem mais vida, mais amor  
+ 
+(F , Bb , G7 , Cm) 
+Tem malícia, tem tambores  
+Até discos voadores  
+Pousam sempre por aqui  
+Mil talentos, mil defeitos  
+E a gente sempre dá um jeito  
+De voltar a ser feliz  
+ 
+(Cm , Dm) 
+Liberdade ainda que tarde, e o sonho... 
+Agora é realidade, meu irmão 
+Pois confiança no futuro  
+Nunca pode ser pior que o que passou  
+ 
+(F , Bb, G7 , Cm) 
+Tem malícia, tem tambores  
+Até discos voadores / pousam sempre por aqui 
+Impunidades e segredos  
+Mas a gente sempre dá um jeito  
+De voltar a ser feliz

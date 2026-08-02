@@ -1,0 +1,137 @@
+Raimundos - Mulher De Fases 
+ 
+[Intro] 
+ 
+[Primeira Parte] 
+ 
+G5                 D5 
+   Que mulher ruim 
+              C5         E5 
+Jogou minhas coisas fora 
+                  A5 
+Disse que em sua cama 
+           C5         G5 
+Eu não deito mais não 
+ 
+               D5 
+A casa é minha 
+          C5       E5 
+Você que vá embora 
+                    A5 
+Já pra saia da sua mãe 
+                    C5 
+E deixa meu colchão 
+ 
+                A5 
+Ela é pró na arte 
+                  E5 
+De pentelhar e aziar 
+             G5 
+É campeã do mundo 
+C5 
+A raiva era tanta 
+        G5 
+Que eu nem reparei 
+       D5 
+Que a Lua diminuía 
+ 
+G5         D5           C5            E5 
+   A doida    tá me beijando há horas 
+                     A5 
+Disse que se for sem eu 
+            C5          G5 
+Não quer viver mais não 
+ 
+Me diz, Deus     
+D5                 C5         E5 
+   O que é que eu faço agora? 
+                     A5 
+Se me olhando desse jeito 
+                  C5 
+Ela me tem na mão 
+             G5 
+Meu filho aguenta 
+               D5 
+Quem mandou você gostar 
+ 
+Dessa mulher de fases 
+ 
+[Refrão] 
+ 
+G5        C5           G5 
+   Complicada e perfeitinha 
+   D5         E5 
+Você me apareceu 
+     A5             C5 
+Era tudo que eu queria 
+ 
+Estrela da sorte
+
+G5           C5           G5 
+   Quando a noite ela surgia 
+     D5           E5 
+Meu bem você cresceu 
+       A5           C5 
+Meu namoro é na folhinha 
+ 
+Mulher de fases 
+ 
+[Riff 1] 
+ 
+[Segunda Parte] 
+ 
+ E5 
+Põe fermento, põe as bombas 
+ 
+Qualquer coisa que aumente 
+     G5 
+E a deixe bem maior que o Sol 
+ E5 
+Pouca gente sabe que na noite 
+                            A5 
+O frio é quente e arde e eu   acendi 
+ 
+C5              A5 
+   Até sem luz dá pra te enxergar 
+      E5                 G5 
+O lençol fazendo congo-blue 
+   C5                 G5 
+É pena, eu sei, a manhã já vai miar 
+      D5 
+Se aguente, que lá vem chumbo quente 
+ 
+[Segundo Refrão] 
+ 
+G5        C5           G5 
+   Complicada e perfeitinha 
+   D5         E5 
+Você me apareceu 
+     A5             C5 
+Era tudo que eu queria 
+ 
+Estrela da sorte 
+ 
+G5           C5           G5 
+   Quando a noite ela surgia 
+     D5           E5 
+Meu bem você cresceu 
+       A5           C5 
+Meu namoro é na folhinha 
+ 
+Mulher de fases 
+ 
+[Riff 2] 
+ 
+Complicada e perfeitinha 
+ 
+Você me apareceu 
+ 
+Era tudo que eu queria 
+ 
+Estrela da sorte 
+ 
+Quando a noite ela surgia 
+ 
+Meu bem você cresceu 
+ 
+Meu namoro é na folhinha

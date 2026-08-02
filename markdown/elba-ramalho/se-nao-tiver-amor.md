@@ -1,0 +1,82 @@
+Elba Ramalho - Se Nao Tiver Amor 
+ 
+G            E7           Am       
+Se não tiver amor não tem graça 
+D7                         G  
+Se não tiver amor não dá certo 
+G            E7            Am 
+Se não tiver amor nem cachaça 
+D7                      G 
+Se não tiver amor nem aperto 
+G            G7         C  
+Mas se tiver amor eu me lanço 
+D7                         G  
+Quando se tem amor é tão lindo 
+G            E7       Am  
+Amor é nossa última chance 
+D7                         G  
+Amor, ai meu amor, bem-vindo 
+ 
+G             E7         Am 
+Se não tiver amor eu me esqueço 
+D7                         G  
+Se não tiver amor já me esqueça 
+G             E7      Am 
+Se não tiver amor enlouqueço 
+D7                     G  
+Se não tiver amor, paciência 
+ 
+G            G7         C  
+Mas se tiver amor o sol chega 
+D7                       G  
+Quando se tem amor de verdade 
+G             E7       Am 
+Amor é nossa última entrega 
+D7                    G  
+Amor, ai meu amor, saudade 
+ 
+G             E7          Am 
+Se não tiver amor não tem graça 
+D7                        G  
+Se não tiver amor não dá certo 
+G             E7       Am 
+Se não tiver amor nem cachaça 
+D7                      G  
+Se não tiver amor nem aperto 
+ 
+G            G7         C  
+Mas se tiver amor eu me lanço 
+D7                         G  
+Quando se tem amor é tão lindo 
+G             E7     Am 
+Amor é nossa última chance 
+D7                     G  
+Amor, ai meu amor, bem-vindo 
+ 
+G             E7        Am 
+Se não tiver amor eu me esqueço 
+D7                         G  
+Se não tiver amor já me esqueça 
+G             E7        Am 
+Se não tiver amor enlouqueço 
+D7                     G 
+Se não tiver amor, paciência 
+ 
+G            G7           C  
+Mas se tiver amor o sol chega 
+D7                       G 
+Quando se tem amor de verdade 
+G             E7      Am
+
+Amor é nossa última entrega 
+D7                    G 
+Amor, ai meu amor, saudade 
+ 
+G            G7          C  
+Mas se tiver amor eu me lanço 
+D7                         G 
+Quando se tem amor é tão lindo 
+G             E7      Am 
+Amor é nossa última chance 
+D7                     G 
+Amor, ai meu amor, bem-vindo

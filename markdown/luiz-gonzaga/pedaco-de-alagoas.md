@@ -1,0 +1,53 @@
+Luiz Gonzaga - Pedaco De Alagoas 
+ 
+[Intro] Gm  D  Gm  Eb  D  Gm 
+ 
+Gm     D             Gm 
+Areia branca à beira-mar 
+          Eb 
+Ai que saudade 
+              D             Gm 
+Qualquer dia desse eu volto lá 
+ 
+Gm                         Cm 
+Quem é que não gosta de carinho 
+                D            Gm 
+Quem é que não gosta de um xodó 
+                        Eb 
+Quem é que não sente saudade 
+              D          Gm 
+De um dia de sol em Maceió 
+ 
+Gm                            Cm 
+Num passeio de barco ou de jangada 
+              D              Gm 
+E a velha piscina do meio do mar 
+                Eb 
+Levar sua namoradinha 
+              D        Gm 
+Pra um dia feliz regressar 
+                         Cm 
+Num domingo de sol bem cedinho 
+              D          Gm 
+Passear na Lagoa de Mundaú 
+                      Eb 
+Tomar uma cachaça no broma 
+              D         Gm 
+E pedir tira-gosto de caju 
+ 
+                       Cm 
+Tomar banho na Bica da Pérola 
+         D            Gm 
+Rever a Praia do Francês 
+                    Eb 
+E a Barra de São Miguel 
+                 D         Gm 
+Em conchinha voltar outra vez 
+                         Cm 
+Cururipe tem praias tão lindas 
+           D           Gm 
+Que se confundem com o mar 
+                       Eb 
+São José do Poxim, abençoe 
+          D                Gm 
+Lagoa do Pau, Tambaú, Jequiá

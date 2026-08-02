@@ -1,0 +1,67 @@
+Bob Dylan - Beyond The Horizon 
+ 
+ 
+           F      Bbm            Fmaj7/A 
+Beyond the horizon, behind the sun 
+Gm                c                     F        (F) 
+At the end of the rainbow life has only begun 
+                     F       Bbm                     
+In the long hours of twilight 'neath the stardust  
+Fmaj7/A 
+above 
+           C            C7        F 
+Beyond the horizon it is easy to love 
+ 
+Gm                  F 
+My wretched heart's pounding 
+Gm                F 
+I felt an angel's kiss 
+Gm              F 
+My memories are drowning 
+Bb        C 
+In mortal bliss 
+ 
+               F       Bbm               F 
+Beyond the horizon, in the Springtime or Fall 
+           C                       F 
+Love waits forever for one and for all 
+ 
+Beyond the horizon across the divide 
+'Round about midnight, we'll be on the same side 
+Down in the valley the water runs cold 
+Beyond the horizon someone prayed for your soul 
+ 
+I'm touched with desire 
+What don't I do? 
+I'll throw the logs on the fire 
+I'll build my world around you 
+ 
+Beyond the horizon, at the end of the game 
+Every step that you take, I'm walking the same 
+ 
+Beyond the horizon the night winds blow 
+The theme of a melody from many moons ago 
+The bells of St. Mary, how sweetly they chime 
+Beyond the horizon I found you just in time 
+ 
+It's dark and it's dreary 
+I ponder in vain 
+I'm weakened, I'm weary 
+My repentance is plain 
+ 
+Beyond the horizon o'er the treacherous sea 
+I still can't believe that you've set aside your love for  
+me 
+ 
+Beyond the horizon, 'neath crimson skies 
+In the soft light of morning I'll follow you with my eyes 
+Through countries and kingdoms and temples of stone 
+Beyond the horizon right down to the bone 
+ 
+It's late in the season 
+Never knew, never cared 
+Whatever the reason 
+Someone's life has been spared 
+ 
+Beyond the horizon the sky is so blue 
+I've got more than a lifetime to live lovin' you

@@ -1,0 +1,113 @@
+Lenine - A Raposa E As Uvas 
+ 
+E                    B 
+Lembro com muita saudade 
+            C#m 
+Daquele bailinho 
+              G#m 
+Onde a gente dançava 
+           A 
+Bem agarradinho 
+                 B7 
+Onde a gente ía mesmo 
+              E      ( B  A  G#m  F#m )  
+É prá se abraçar 
+E                    B 
+Você com laquê no cabelo 
+               C#m 
+E um vestido rodado 
+           G#m 
+E aquelas anáguas 
+              A 
+Com tantos babados 
+              B7 
+E você se sentava 
+              E     E7 
+Só prá me mostrar 
+ 
+A                     B 
+E tudo que a gente transava 
+                 C#m 
+Eram três quatro cubas 
+           F#m 
+Eu era a raposa 
+             E 
+Você era as uvas 
+             B 
+Eu sempre querendo 
+              E    E7 
+Teu beijo roubar 
+ 
+A                    
+E por mais que você 
+        B 
+Se esquivasse 
+            C#m   
+Eu tinha certeza 
+              F#m 
+Que no fim do baile 
+            E 
+Na minha lambreta 
+               B7 
+Aquele broto bonito 
+             E   ( B  A  G#m  F#m )  
+Ia me abraçar 
+ 
+E 
+Quando a orquestra 
+   B           C#m 
+Tocava "Besame Mucho" 
+           G#m 
+Eu lhe apertava 
+             A 
+E olhava seu busto 
+              B7 
+Dentro do corpete 
+            E    ( B  A  G#m  F#m )  
+Querendo pular 
+ 
+   E
+
+Eu todo cheiroso 
+       B 
+À "lancaster" 
+              C#m 
+E você à "chanel" 
+            G#m 
+Eu era um menino 
+              A 
+Mas fazia o papel 
+               B7 
+Do homem terrível 
+                 E   E7 
+Só prá lhe guardar 
+ 
+E                  B 
+E ao chegar em tua casa 
+                C#m 
+Em frente ao portão 
+              G#m 
+Um beijo, um abraço 
+               A 
+Minha mão, tua mão 
+               B7 
+Com medo que o velho 
+             E     ( B  A  G#m  F#m )          
+Pudesse acordar 
+ 
+E                B 
+A pílula já existia 
+             C#m 
+Mas nem se falava 
+                   G#m 
+Pois nos muitos conselhos 
+               A 
+Que tua mãe te dava 
+               B7 
+Tinha um que dizia 
+                 E      E7 
+"Só depois de casar" 
+A                      B 
+Tudo o que a gente transava 
+                   C#m 
+Eram três, quatros cubas

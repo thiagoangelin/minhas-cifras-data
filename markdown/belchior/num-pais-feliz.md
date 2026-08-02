@@ -1,0 +1,28 @@
+Belchior - Num Pais Feliz 
+ 
+G                  C 
+Ainda não se ouvia o ai do sabiá 
+C         Bm     Am       G        D 
+E nem Jaci sabia que ele assobiava lá 
+G                C 
+O índio ia indo, inocente e nu 
+C      Bm     Am       G                D 
+E no cauim ninguém sentia a essência do caju 
+C                  D 
+Não navegavam naus abaixo do equador 
+C                     D 
+Aqui sem sonhos maus, não há anhanguá, nem cruz nem dor. 
+G                  C 
+E o índio ia indo, inocente e nu 
+C           Bm  Am           G                     D 
+Sem rei, sem lei, sem mais, ao som do sol e do uirapuru 
+G                  C 
+Não navegavam naus abaixo do equador 
+C          Bm    Am   G                  D 
+E à terra chã, tupã descia sem pam de tambor 
+C                  D 
+Ainda não se ouvia o dó das juritis 
+C                          D                    G C Bm Am G 
+E eu já sonhava com a cor e o tom de algum país 
+D        G 
+Num país feliz.

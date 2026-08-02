@@ -1,0 +1,94 @@
+Michael Jackson - Dont Walk Away 
+ 
+Intro: A Bm7 A9/C# C6 Bm7 E7sus E7 
+ 
+            A   Bm7 
+Don't walk away 
+      A9/C#                C6            Bm7 
+See I just can't find the right thing to say 
+  E7sus             E7               A  Bm7 
+I tried but all my pain gets in the way 
+        A9/C#          C6           Bm7 
+Tell me what I have to do so you'll stay 
+         E7sus           E7 
+Should I get down on my knees and pray 
+ 
+    D               E 
+And how can I stop losing you 
+F#m7       F6 
+How can I begin to say 
+              Bm7            E7sus        D   A/C# A/E E7sus E7 
+When there's nothing left to do but walk away 
+ 
+            A   Bm7 
+I close my eyes 
+        A9/C#            C6            Bm7 
+Just to try and see you smile one more time 
+         E7sus            E7           A  Bm7 
+But it's been so long now all I do is cry 
+         A9/C#              C6        A   Bm7 
+Can't we find some love to take this away 
+           E7sus               E7 
+'Cause the pain gets stronger every day 
+ 
+D          E 
+How can I begin again 
+F#m7         F6 
+How am I to understand 
+              Bm7            E7sus        D   A/C# A/E E7sus E7 
+When there's nothing left to do but walk away 
+ 
+        Dmaj7 D6 
+See now why 
+C#m7 
+All my dreams been broken 
+  Dmaj7 
+I don't know where we're going 
+Em7            A7             Dmaj9 
+Everything we said and all we done now 
+      C#m7 Bm7        E7sus 
+Don't let go, I don't wanna walk away 
+ 
+( A Bm7 A9/C# C6 Bm7 E7sus E7 ) (2x) 
+ 
+    Dmaj7 D6 
+Now why 
+C#m7 
+All my dreams been broken 
+Dmaj7 
+Don't know where we're going 
+Em7         A7              Dmaj9 
+Everything begins to set us free 
+      C#m7 Bm7         E7sus  E7 
+Can't you see, I don't wanna walk away 
+ 
+Dmaj9  A9/C#        Bm7            C#m7 
+If you go, I won't forget you girl 
+Dmaj9     A9/C#    Bm7                C#m7 
+Can't you see that you will always be 
+Dmaj9 A9/C#   F#m7              F6
+
+Even though I had to let you go 
+         Bm7            E7 
+There's nothing left to do 
+Don't walk away 
+ 
+Dmaj9  A9/C#        Bm7            C#m7 
+If you go, I won't forget you girl 
+Dmaj9     A9/C#    Bm7                C#m7 
+Can't you see that you will always be 
+Dmaj9 A9/C#   F#m7              F6 
+Even though I had to let you go 
+         Bm7            E7 
+There's nothing left to do 
+Don't walk away 
+ 
+Dmaj9  A9/C#        Bm7            C#m7 
+If you go, I won't forget you girl 
+Dmaj9     A9/C#    Bm7                C#m7 
+Can't you see that you will always be 
+Dmaj9 A9/C#   F#m7              F6 
+Even though I had to let you go 
+         Bm7            E7 
+There's nothing left to do 
+Don't walk away

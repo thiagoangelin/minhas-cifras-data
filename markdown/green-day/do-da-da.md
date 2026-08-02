@@ -1,0 +1,74 @@
+Green Day - Do Da Da 
+ 
+Intro: A5 - 1 batida                  | 
+       E5 (segunda casa) - 2 batidas  | 3x 
+       E5* (sétima casa) - 2 batidas  | 
+       D5 E5 (4 batidas cada) 
+ 
+(Se a intro estiver confusa, escute a música pra entender). 
+ 
+A5             E5* 
+Every time I'm falling down 
+    D5            A5 E5* 
+You take the repercussions 
+A5              E5* 
+Headaches and anxieties 
+  D5             A5 E5* 
+Advancing my frustrations 
+ 
+F#5         D5 
+  Rush into my depression 
+F#5         A5   E5* 
+  Sacrifice everything 
+F#5             D5 
+  Waste with me into nothing 
+F#5               A5         E5* 
+  Well now you're stuck with me 
+  A5         E5* 
+  stuck with me 
+  A5         E5* 
+  stuck with me ohw! 
+ 
+A5                E5*  
+Hand up your soul to my wrist 
+    D5                A5 E5* 
+And I'll vow my trust to you 
+A5              E5* 
+Moving on and I always thought 
+  D5              A5 E5* 
+I realized you've imagined 
+ 
+F#5         D5 
+  Rush into my depression 
+F#5         A5   E5* 
+  Sacrifice everything 
+F#5             D5 
+  Waste with me into nothing 
+F#5               A5         E5* 
+  Well now you're stuck with me 
+  A5         E5* 
+  stuck with me 
+  A5         E5* 
+  stuck with me! 
+ 
+Base do solo: 
+ 
+(A5 E5* D5 A5 E5*) 2x 
+ 
+Solo: 
+ 
+F#5         D5 
+  Rush into my depression 
+F#5         A5   E5* 
+  Sacrifice everything 
+F#5             D5 
+  Waste with me into nothing 
+F#5               A5         E5* 
+  Well now you're stuck with me 
+  A5         E5* 
+  stuck with me
+
+  A5         E5*  A5 
+  stuck with me! 
+ 
+(By Ju).

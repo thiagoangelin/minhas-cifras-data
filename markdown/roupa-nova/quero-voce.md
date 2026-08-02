@@ -1,0 +1,69 @@
+Roupa Nova - Quero Voce 
+ 
+Album: Vida Vida; ano: 1994 
+Compositores: Michael Sullivan / Paulo Massadas 
+ 
+Intro: Am7 D7 Am7 D7/4 (x5) 
+G Em C D (x1) 
+ 
+[Parte 1:] 
+G   Em  C 
+Wo wo wo 
+D             G      Em C D 
+Quero no sol me queimar 
+G   Em  C 
+Wo wo wo 
+D             G  Em C D 
+No teu corpo viajar 
+ 
+***Repetir parte 1*** 
+ 
+[Parte 2:] 
+Am7                 D7 
+Quando despertar a luz da manhã  
+Am7               D7 
+E dourar meu coração 
+Am7                   D7 
+Vou sentir na pele arder o calor 
+Am                  C 
+Feito o fogo da paixão 
+ 
+***Repetir parte 1*** 
+ 
+[Parte 3:] 
+Am7                       D7 
+Vou te amar na praia em pleno verão 
+Am7                D7 
+No teu corpo enroscar 
+Am7                    D7 
+Vou brincar na areia até cansar 
+Am                   C 
+E depois correr pro mar 
+ 
+[Refrão 1:] 
+       Em      C  D 
+Minha Vida 
+       Em      C  D 
+Vida, Vida 
+       Em                       C 
+Ser feliz é sempre estar com você 
+                   D 
+Sem ver o tempo passar 
+ 
+[Refrão 2:] 
+       Em      C  D 
+Minha Vida 
+       Em      C  D 
+Vida, Vida 
+       Em                   C 
+Ser feliz é ver a noite correr 
+                D 
+E com você clarear 
+ 
+***Repetir parte 1, depois intro para tocar o solo*** 
+ 
+***Repetir parte 1, parte 2 e refrão*** 
+ 
+***Repetir Parte 1 (2x)*** 
+ 
+G  Em  C  D

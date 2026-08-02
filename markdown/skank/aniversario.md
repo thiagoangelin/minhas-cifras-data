@@ -1,0 +1,71 @@
+Skank - Aniversario 
+ 
+INTRO: F# B F# 
+ 
+F# 
+        É primavera 
+                B                    F# 
+        Escute só Saturno se anunciar 
+ 
+        É festa de Reis 
+ 
+        Respire fundo 
+                B                       F# 
+        Agora é hora do brilho se espalhar 
+B F# 
+ 
+F# 
+        Em cada passo 
+                  B                     F# 
+        Mais uma chama serpenteia no olhar 
+ 
+        De quem se aproximar 
+ 
+        Entregue ao mundo 
+                     B                  E 
+        E a tudo que a vida te presentear 
+A                                       E B 
+        O universo sopra em sua direção 
+A                                  E 
+        Onda prateada que vem da luz do seu dom 
+            B           A                         F# 
+        Pra onde você for a estrela já te abençoou 
+F# 
+        Começo de era 
+                  B                  F# 
+        Oxóssi ouvia a voz da intuição 
+ 
+        Num canto de sereia 
+ 
+        Cada palavra 
+                B               F# 
+        A sinfonia ecoa na multidão 
+B F# 
+ 
+F# 
+        Em sintonia 
+                B                   F# 
+        A maré cheia sob a luz do luar 
+ 
+        Este é o mistério do mar 
+ 
+        Está escrito 
+                   B                        E 
+        A sorte é pra quem sabe se aventurar 
+A                                       E B 
+        O universo sopra em sua direção 
+A                                  E 
+        Onda prateada que vem da luz do seu dom 
+            B           A                         F# 
+        Pra onde você for a estrela já te abençoou 
+A                                       E B 
+        O universo sopra em sua direção 
+A                                  E 
+        Onda prateada que vem da luz do seu dom 
+            B           A                         F# 
+        Pra onde você for a estrela já te abençoou 
+ 
+A A E B
+
+A A E B 
+A A / C# F# B F#

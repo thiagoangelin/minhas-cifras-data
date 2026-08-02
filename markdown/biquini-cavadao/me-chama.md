@@ -1,0 +1,85 @@
+Biquini Cavadao - Me Chama 
+ 
+  
+G7M          C7M 
+Nem sempre se pode sonhar 
+G7M                 C7M 
+Com aquilo que não se pode ter 
+G7M          C7M 
+Mas que regra mais idiota 
+G7M          C7M 
+Pois quando a gente sonha 
+Am7              D7 
+É exatamente com o que não temos 
+Am7 
+E quase sempre  
+           D7 
+com o que mais queremos 
+ 
+G7M          C7M 
+E o meu controlador de sonhos 
+G7M          C7M 
+Anda meio encabulado 
+G7M            C7M 
+Eu quis tantas coisas esse ano 
+G7M             C7M 
+Mas quase tudo ficou jogado 
+Am7            D7 
+Às traças do meu coração 
+Am7                  D7 
+que esconde sonhos irrealizados 
+ 
+  C     D           G 
+Mesmo assim eu não esqueço 
+      Em7           Am7      D4,7  D7 
+as promessas que eu fiz para mim 
+        Em    G 
+Não quero me desapontar 
+  C     D             G       Em 
+Mesmo assim eu não me canso de querer 
+        Am        D4,7 D7 
+o que é bom pra mim 
+ 
+G7M          C7M 
+E quando menos se percebe 
+G7M          C7M 
+O tempo passa como febre 
+G7M              C7M 
+E aquele sonho que parecia 
+G7M          C7M 
+Tão jovem e moderno 
+Am7                  D7 
+Não passa de um retrato na lembrança 
+Am7                  D7 
+Não passa de um desejo de criança 
+G7M             C7M 
+E como fruta que amadurece 
+G7M            C7M 
+E necessita de alguém que coma 
+G7M              C7M 
+a sua polpa que por dentro cresce 
+G7M              C7M 
+lhe dando corpo e aroma 
+Am7             D7 
+Os sonhos também apodrecem 
+Am7                  D7 
+se com o tempo ninguém os reclama 
+ 
+  C     D           G 
+Mesmo assim eu não esqueço
+
+      Em7           Am7      D4,7  D7 
+as promessas que eu fiz para mim 
+        Em    G 
+Não quero me desapontar 
+  C     D             G       Em 
+Mesmo assim eu não me canso de querer 
+        Am        D4,7 D7 
+o que é bom pra mim 
+ 
+      Em         A7 
+Não importa se ficar 
+     Em        A7 
+Como algo que ficou 
+      C       D            G 
+Para se realizar mas não vingou

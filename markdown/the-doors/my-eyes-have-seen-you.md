@@ -1,0 +1,88 @@
+The Doors - My Eyes Have Seen You 
+ 
+MY EYES HAVE SEEN YOU 
+Tabbed by Nostedamus 
+ 
+Used Tab Symbols 
+##################### 
+ h  = Hammer On 
+  b  = Bend Up 
+ hb  = Bend Halfway 
+ /  = Slide Up 
+ x  = Muted Note 
+ br = bend and release 
+##################### 
+ 
+Bass 
+    MI 
+ 
+Guitar 
+  MI 
+ 
+ EYES HAVE SEEN YOU            MY EYES HAVE SEEN YOU       
+      MY 
+ 
+  EYES HAVE SEEN YOU    STANDINYOURDOOR  MEET 
+INSIDE 
+  MI (w/dist) 
+ 
+  SHOW ME SOME MORE   SHOM ME SOME MORE  SHOW ME 
+SOME MORE 
+ 
+ EYES HAVE SEEN YOU            MY EYES HAVE SEEN YOU       
+      MY 
+ 
+  EYES H SEEN Y             TURN AND STARE FIXYOUR HAIR 
+ 
+  MOVE UP STAIRS      MOVE UP STAIRS     MOVE UP STAIRS 
+ 
+Guitar solo 
+  MI 
+ 
+ EYES HAVE SEEN YOU            MY EYES HAVE SEEN YOU       
+      MY 
+ 
+ EYES H SEEN Y        FREE FROM DISGUISE  GAZING ON A 
+CITY 
+ UNDER 
+ 
+  TELEVISION SKY      TELEVISION SKY     TELEVISION SKY 
+ 
+  MY EYES HAVE SEEN Y                       MY EYES H SEEN 
+ YOU 
+ 
+MY EYES H SEEN Y LET THEM PHOTOGRAPH Y SOUL  
+MOEMORIZE Y  
+ALLEYS ON 
+ 
+   ENDLESS ROLL                             ENDLESS ROLL   
+       (Repeat al lib) 
+ 
+MY EYES HAVE SEEN YOU   I MIEI OCCHI TI HANNO VISTA 
+ 
+MY EYES HAVE SEEN YOU      I MIEI OCCHI TI HANNO VISTA 
+STAND IN YOUR DOOR         FERMA SULLA TUA SOGLIA 
+MEET INSIDE                INCONTRIAMOCI DENTO 
+SHOW ME SOME MORE          MOSTRAMI DI PIù 
+ 
+MY EYES HAVE SEEN YOU      I MIEI OCCHI TI HANNO VISTA 
+TURN AND STARE             GIRARTI E SQUADRARMI
+
+FIX YOUR HAIR              SISTEMARTI I CAPELLI 
+MOVE UPSTAIRS              ANDIAMO DI SOPRA 
+ 
+MY EYES HAVE SEEN YOU      I MIEI OCCHI TI HANNO VISTA 
+FREE FROM DISGUISE         SENZA TRAVESTIMENTI 
+GAZING ON A CITY           IN CONTEMPLAZIONE DI UNA 
+CITTA' 
+UNDER TELEVISION SKIES     SOTTO CIELI TELEVISIVI 
+TELEVISION SKIES           CIELI TELEVISIVI 
+ 
+MY EYES HAVE SEEN YOU      I MIEI OCCHI TI HANNO VISTA 
+LET THEM PHOTOGRAPH        LASCIA CHE FOTOGRAFINO LA 
+YOUR SOUL                  TUA ANIMA 
+MEMORIZE YOUR ALLEYS       SU UN ETERNO RULLINO 
+ENDLESS ROLL               ETERNO RULLINO 
+ 
+Tabbed by Stefano Gamba 
+For any question

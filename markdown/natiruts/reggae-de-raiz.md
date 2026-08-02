@@ -1,0 +1,35 @@
+Natiruts - Reggae De Raiz 
+ 
+(Intro)  Bm7 C#m7 F#7 
+ 
+Bm7                               C#m7      F#7 
+Magia que envolve segredos de um grande amor 
+Bm7                                 C#m7           F#7 
+Nos fazem pensar que nossa liberdade é igual ao céu 
+Bm7                              C#m7   F#7 
+Imensidão azul criada pelos raios de sol 
+Bm7                                    C#m7 F#7 
+Protegida dos homens que não sabem admirar 
+Bm7                                      C#m7 F#7 
+O contraste das cores das nuvens ao entardecer 
+Bm7                           C#m7              F#7 
+E a sinceridade de velhos amigos ouvindo seu som 
+Bm7                               C#m7     F#7 
+Toda emoção nos versos de um reggae de raíz 
+Bm7                                   C#m7         F#7 
+E ter a ilusão que basta ser honesto para ser feliz 
+ 
+Bm7        Dm7                                 C#m7 
+Hoje estou consciente da trilha que devo seguir 
+        F#7 
+Pra encontrar o meu lugar 
+  Bm7      Dm7                             C#m7 
+Não acabou, ela foi embora mas pode voltar, 
+           F#7 
+Falo da esperança e da fé 
+Bm7      Dm7                               C#m7 
+Meu amor até em um deserto posso sobreviver 
+                  F#7 
+Pois hoje encontrei a minha paz 
+ 
+( Bm7   C#m7   F#7 )

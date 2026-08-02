@@ -1,0 +1,51 @@
+Ney Matogrosso - Trepa No Coqueiro 
+ 
+ 
+ D 
+Oi, trepa coqueiro  
+       A  
+Tira coco 
+ 
+Xipe, xipe, nheco, nheco 
+               D 
+No coqueiro orirá 
+ 
+Oi, trepa coqueiro  
+       A 
+Tira coco 
+ 
+Xipe, xipe, nheco, nheco 
+               D 
+No coqueiro orirá 
+             A 
+Papai cadê Maria 
+              D 
+Maria foi passear 
+             A 
+Papai cadê Maria 
+             D 
+Maria foi passear 
+                A 
+Os passeios de Maria  
+                   D 
+Faz papai, mamãe chorar 
+                 A  
+Os passeios de Maria  
+                    D 
+Faz papai, mamãe chorar 
+              A 
+Maria é moça nova 
+                   D 
+Solteira não tem juízo 
+              A 
+Maria é moça nova 
+                   D 
+Solteira não tem juízo 
+                 A 
+Os passeios de Maria 
+                 D 
+Só podem dar prejuízo 
+                 A 
+Os passeios de Maria 
+                 D  
+Só podem dar prejuízo

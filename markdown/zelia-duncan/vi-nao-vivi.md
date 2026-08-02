@@ -1,0 +1,57 @@
+Zelia Duncan - Vi Nao Vivi 
+ 
+Introdução  - E   B   F# 
+              E   B   F#  
+ 
+G#m        E 
+Primeira vez que eu te vi 
+     B             F# 
+Meu coração não fez clique 
+G#m          E 
+Se ouvi ou vi, não vivi 
+    B                F# 
+Seu pique, seu trique-trique 
+G#m         E    
+Não vi sushi, sashimi 
+    B             F# 
+Nem Eros nem Afrodite 
+G#m        E 
+Primeira vez que eu te vi 
+    B               
+Primeiro vi seus limites 
+ 
+REFRÃO 
+F# 
+Vi, não vivi 
+                    C# 
+Não senti onda por ti, não senti 
+                D#m                  B 
+Nem o menor apetite, não senti tremelique, senti 
+                    F# 
+Não me deu onda por ti, não vivi 
+         C# 
+Não senti frenesi 
+                D#m                  B 
+Nem o menor apetite, não senti tremelique, senti 
+ 
+Não vi nenhum colibri, não vi sua "bad trip” 
+ 
+Sino batendo, não ouvi, nem vi se havia convite 
+ 
+Sol, Búzios, nós dois ali, com ares de casal vinte 
+ 
+Nem com os olhos comi, nem veni, 
+ 
+Nem vidi, nem vici 
+ 
+Refrão 
+ 
+Primeira vez que eu te vi 
+ 
+Contive os meus palpites 
+ 
+Falei de Rilke e Liminski 
+ 
+Assim que vi seus grafites 
+ 
+Refrão

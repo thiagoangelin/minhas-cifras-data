@@ -1,0 +1,97 @@
+Rem - Try Not Breathe Cifra Completa 
+ 
+        D   Am   C   G 
+        D   Am   C   G 
+D               Am 
+I will try not to breathe, 
+      C        G               D        Am 
+I can hold my head still with my hands at my knees 
+C          G          D   Am   C 
+These eyes are the eyes of the old, 
+G            D Am C G 
+shiver and fold 
+ 
+D               Am 
+I will try not to breathe, 
+   C     G               D         Am 
+This decision is mine I have lived a full life 
+       C        G      Asus2          Em 
+and these are the eyes that I want you to remember 
+ 
+G D G D 
+Oh 
+Asus2            G       D          G   D 
+I need something to fly over my grave again 
+Asus2                Em 
+I need something to breathe 
+ 
+D               Am           C    G 
+I will try not to burden, I can hold these inside 
+        C        G                D         Am 
+I will hold my breath until all these shivers subside 
+C             G    D Am C 
+Just look in my eyes 
+ 
+D               Am          C           G      D         
+I will try not to worry you, I have seen things that you 
+  Am 
+ will never see 
+     C         G            D         Am 
+Leave it to memory me, shudder to breathe 
+Asus2            Em 
+I want you to remember 
+G  D G D 
+Oh 
+Asus2 (you will never see) 
+I need something to fly            (something to fly) 
+G      D       G   D 
+Over my grave again                (you will never see) 
+Asus2               Em 
+I need something to breathe        (something to breathe) 
+Asus2 
+Baby Don't shiver now, 
+G      D       G   D 
+Why do you shiver now              (I will see things you  
+will never see) 
+Asus2 
+I need something to fly            (something to fly) 
+G      D       G   D 
+Over my grave again                (I will see things you  
+will never see) 
+Asus2               Em 
+I need something to breathe 
+ Am    Em   Am  Em 
+ 
+D               Am          C           G      D         
+I will try not to worry you, I have seen things that you 
+  Am 
+ will never see 
+     C         G              D        Am
+
+Leave it to memory me, don't dare me to breath 
+Asus2            Em 
+I want you to remember 
+G  D G D 
+Oh 
+Asus2 (you will never see) 
+I need something to fly            (something to fly) 
+G      D       G   D 
+Over my grave again                (you will never see) 
+Asus2               Em 
+I need something to breathe        (something to breathe) 
+Asus2 
+Baby Don't shiver now, 
+G      D       G   D 
+Why do you shiver now              (I will see things you  
+will never see) 
+Asus2 
+I need something to fly            (something to fly) 
+G      D       G   D 
+Over my grave again                (I will see things you  
+will never see) 
+Asus2               Em 
+I need something to breathe           (something to  
+breathe) 
+ Asus2           Em 
+I want you to remember 
+G

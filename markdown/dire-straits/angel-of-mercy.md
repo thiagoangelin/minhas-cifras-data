@@ -1,0 +1,57 @@
+Dire Straits - Angel Of Mercy 
+ 
+E          D    C 
+Well there's a Peter Pan moon, sheherd's delight  
+           E          D           C 
+I got the dragon at noon, yes and I won the fight  
+      E           D      C                            D 
+Now i want my reward in heaven tonight, just like you promised  
+E        D             C 
+Angel of mercy you'll come to no harm  
+E        D                 C 
+Angel of mercy, there's no need for alarm  
+    E             D               C 
+The knight in his armour wants a night in your arms  
+               D 
+You know he's honest  
+ 
+C               G              D                     G 
+Angel of mercy, angel delight, give me my reward in heaven 
+tonight  
+           C                          G 
+And if I give up my sword, won't you give me the right  
+         D 
+Sweet angel  
+ 
+Well now it's too late for talkin', we can talk later on  
+Let the saxophone play us till the Chorus of dawn  
+And I need is a little oblivion, you don't need protection  
+Well now here come the moonlight down on your bed  
+Angel of mercy let your heart rule your head  
+I don't want your money, I want you instead  
+Don't need rejection yeah  
+ 
+Angel of mercy, angel delight, give me my reward in heaven 
+tonight  
+And if I give up my sword, won't you give me the right  
+Angel of mercy, give me heaven tonight  
+ 
+             D 
+Well, if you cross your heart  
+                                           G 
+And spit and swear upon the grave of your mother  
+         D                                                     C     D 
+You gotta get into it, You gotta tell me that I'm more than a lower  
+ 
+(Solo over verse)  
+ 
+And if I give up my sword, won't you give me the right  
+Angel of mercy, give me heaven tonight  
+ 
+(Solo over Chorus)  
+ 
+And if I give up my sword, won't you give me the right  
+Angel of mercy, give me heaven tonight  
+ 
+And if I give up my sword, won't you give me the right  
+Angel of mercy, give me heaven tonight

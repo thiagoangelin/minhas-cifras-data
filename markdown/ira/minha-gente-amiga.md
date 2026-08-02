@@ -1,0 +1,30 @@
+Ira - Minha Gente Amiga 
+ 
+Intro: (Am D) 
+ 
+(Am D) 
+Salve, salve minha gente amiga 
+Como é bom ver tanta gente 
+Bem em volta da minha vida 
+Eu peço licença eu quero ficar 
+Eu vou me apresentar 
+Eu sou um homem. Um homem comum 
+Atrás do dinheiro, atrás do amor 
+ 
+(Am D) 
+Meus desejos são até bem simples 
+E também minhas necessidades 
+Estão ligadas ao século XX 
+Não adianta pedir um pedaço do céu 
+Pois só o mundo vão me entregar 
+Eu sou um homem , um homem comum 
+Atrás do dinheiro, atrás do amor 
+ 
+(Am D) 
+Salve, salve minha gente amiga 
+Como é bom ver tanta gente 
+Bem em volta da minha vida 
+Eu peço licença prá me despidir 
+Muito prazer em conhecer 
+Gente comum, comum como eu 
+Atrás do dinheiro, atrás do amor

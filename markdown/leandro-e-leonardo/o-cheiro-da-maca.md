@@ -1,0 +1,104 @@
+Leandro E Leonardo - O Cheiro Da Maca 
+ 
+[Intro] D  D#º  A   
+        E  F#m  Bm  
+        E  A  D 
+ 
+        A 
+Toda a noite é a mesma coisa 
+                        E 
+Eu procuro e você não quer 
+                          Bm  E 
+Faz de conta que está dormindo 
+                           A  A4 
+Nem parece que é minha mulher 
+ 
+A 
+Tão cansada vira pro lado 
+         A7              D 
+E eu na cama sofrendo calado 
+                    A 
+Quatro horas da manhã 
+                     E 
+Sinto o cheiro da maçã 
+                      A  A7 
+E o perfume do seu corpo 
+ 
+D                 A 
+Vejo tudo se perdendo 
+                   E 
+Você fria me esquecendo 
+                    A   E  F#m  E 
+Pela cama pouco a pouco 
+ 
+  A 
+E bate uma vontade louca de beijar 
+                        E 
+Sua boca e matar seus desejos 
+  Bm              E7 
+Outra noite de castigo sem tocar seu corpo 
+             A 
+Sem ganhar seus beijos 
+ 
+Já começa um novo dia 
+            A7              D 
+Minha fantasia ficou na saudade 
+                     A 
+Outra vez eu vou sofrer 
+                    E 
+Sem carinho sem você 
+  Bm                   E 
+Outra noite estou perdido 
+                              A 
+Eu passei batido e não amei você 
+ 
+( D  D#º  A ) 
+( E  F#m  Bm ) 
+( E  A  D ) 
+ 
+  A 
+E bate uma vontade louca de beijar 
+                        E 
+Sua boca e matar seus desejos 
+  Bm              E7 
+Outra noite de castigo sem tocar seu corpo 
+             A 
+Sem ganhar seus beijos 
+ 
+Já começa um novo dia 
+            A7              D
+
+Minha fantasia ficou na saudade 
+                     A 
+Outra vez eu vou sofrer 
+                    E 
+Sem carinho sem você 
+  Bm                   E 
+Outra noite estou perdido 
+                              A 
+Eu passei batido e não amei você 
+ 
+  A 
+E bate uma vontade louca de beijar 
+                        E 
+Sua boca e matar seus desejos 
+  Bm              E7 
+Outra noite de castigo sem tocar seu corpo 
+             A 
+Sem ganhar seus beijos 
+ 
+Já começa um novo dia 
+            A7              D 
+Minha fantasia ficou na saudade 
+                     A 
+Outra vez eu vou sofrer 
+                    E 
+Sem carinho sem você 
+  Bm                   E 
+Outra noite estou perdido 
+                              A 
+Eu passei batido e não amei você 
+ 
+( D  D#º  A ) 
+( E  F#m  Bm ) 
+( E  A  D )

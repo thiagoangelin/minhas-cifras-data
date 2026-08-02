@@ -1,0 +1,91 @@
+Aerosmith - We All Fall Down 
+ 
+Intro: Bm  E4  G   Bm  E4  G 
+ 
+Bm         E4        G 
+When your heart is breakin' 
+Bm         E4              G 
+When your faith has been shaken 
+Bm         E4         G 
+When the road you're takin' 
+                     Em 
+Takes you nowhere at all 
+         G             C 
+When it all, seems to all go wrong 
+             Em                    G 
+Remember, nobody, can always be strong 
+ 
+We all fall down... 
+ 
+D                               Am/E 
+I will catch you, never let you go 
+                                 G 
+I won't let you, go through it alone 
+                                     C 
+So don't feel left out, we all fall down 
+             D 
+We all fall down 
+Bm         E4        G 
+When your dreams are shattered 
+Bm              E4        G 
+When you feel broken and battered 
+Bm           E4         G 
+When every step on the ladder 
+                       Em 
+Takes you nowhere but down 
+          G                     C 
+And you loose ground, like you can't hold on 
+             Em                    G 
+Remember, nobody, can always be strong. 
+We all fall down... 
+ 
+D                               Am/E 
+I will catch you, never let you go 
+                                 G 
+I won't let you, go through it alone 
+                                D 
+So don't feel left out, we all fall 
+                                 Am/E 
+I will lift you, high above the rain 
+                                   G 
+I'll be with you, we all feel the pain 
+                                 C 
+So don't feel left out, we all fall down 
+              D 
+We all fall down 
+  A/E       C9 
+Everyone breaks 
+            G                       A/E 
+You'll get hurt sometimes, in this life 
+            C9                  G 
+You fly so high, you crash and burn sometimes 
+                                  F 
+And want you to know 
+ 
+You were not alone 
+       G    A     D 
+We all fall dawn 
+ 
+D                               Am/E
+
+I will catch you, never let you go 
+                                 G 
+I won't let you, go through it alone 
+                                D 
+So don't feel left out, we all fall 
+                                 Am/E 
+I will lift you, high above the rain 
+                                   G 
+I'll be with you, we all feel the pain 
+                                 C 
+So don't feel left out, we all fall down 
+              D 
+We all fall down 
+D 
+I will catch you. 
+Am/E 
+I wont' let you. 
+G                           C 
+So don't feel left out, we all fall down 
+             D 
+We all fall down

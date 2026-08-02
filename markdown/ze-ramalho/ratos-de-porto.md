@@ -1,0 +1,67 @@
+Ze Ramalho - Ratos De Porto 
+ 
+(intro) A13  A7 
+ 
+      D7M 
+Se depois 
+                   Cdim 
+Que essa transa acabar 
+                 Em7 
+Você ainda me chamar 
+                A     Asus4  A 
+De bicho muito louco 
+Em7                A         Asus4  A 
+Com essas calças de pescador 
+F#m7              Bm7 
+Os olhos presos em minha boca 
+Em7                 A             A13  A 
+Eu posso até ser um rato do porto 
+     D7M 
+E deixar o navio 
+ 
+(passagem) D7M  Dadd9  D7M  Cdim  Cm6  Cdim 
+           Em7  A  Asus4  A  A7  A13  A7 
+ 
+        D7M 
+Sendo assim 
+                 Cdim 
+Eu vou ter que chamar 
+               Em7 
+Você de minha linda 
+Louca, 
+   A         Asus4  A 
+Menina vadia 
+Em7           A         Asus4  A 
+Com essa pele desbotada 
+F#m7           Bm7 
+Unhas ferradas em minha roupa 
+Em7 
+Eu posso até ser o Rei 
+     A          A13  A 
+E você a Rainha 
+       D7M 
+Desse imenso mar 
+ 
+C#m7     F#7 
+Só peço desculpas 
+        Bm7 
+Por parecer tão vadio 
+Em7            A          Asus4  A 
+Algo assim como um ladrão 
+Em7                  A           Asus4  A 
+Meu rato, meu queijo, meu porão 
+C#m7  F#7 
+Mais você também 
+          Bm7 
+deve ser mais coerente 
+Em7                       A     A13  A 
+Me cante, não conte, não tente 
+   D7M     Cdim 
+Me enganar. 
+ 
+Em7                       A     A13  A 
+Me cante, não conte, não tente 
+   D7M     Cdim 
+Me enganar 
+Em7           G       Gm7  D7M 
+Me cante, não conte...

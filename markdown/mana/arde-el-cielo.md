@@ -1,0 +1,111 @@
+Mana - Arde El Cielo 
+ 
+Intro: C#m,A,B,G#m   (4x)  
+ 
+  C#m      A            E  
+   Nos fue tragando la rutina  
+          B           C#m     A E B  
+   Fue llenando de vacios  
+  C#m        A           E  
+   Fuimos ahogando la palabra  
+         B           C#m      A E B  
+   Y explotando en puros líos  
+ 
+  C#m   E           B  
+   Te deseo suerte amor  
+          F#m        C#m   A E B  
+   Ya me voy al olvido  
+C#m  E            B  
+   Solo le pido a dios,  
+   F#m     C#m   A E B  
+   Darte alivio  
+ 
+   F#m,F#m, G#m A  
+ 
+   C#m  A  
+   Arde  
+   B         G#m        C#m   A  
+   Arde el cielo y el dolor  
+   B          G#m  
+   Arde mi espiritu  
+   C#m        A        B  
+   Arde el amor y la luz  
+    G#m            C#m   A B G#m   C#m  
+   Arde el cielo amor  
+ 
+  C#m          A  
+   Salio el halcon  
+              E  
+   Salio el demonio  
+         B             C#m   A E B  
+   Un infierno, un manicomio  
+   C#m         A              E  
+   Gritos, violencia, platos rotos  
+         B          C#m   A E B  
+   Como ciega la demencia  
+ 
+ C#m    E            B  
+   Solo yo te pido amor  
+         F#m          C#m   A E B  
+   Que nunca te abandones  
+C#m  E            B  
+   Solo le pido a dios,  
+   F#m     C#m   A E B  
+   Darte alivio  
+ 
+    F#m,F#m, G#m A  
+ 
+   C#m  A  
+   Arde  
+   B         G#m        C#m   A  
+   Arde el cielo y el dolor  
+   B          G#m  
+   Arde mi espiritu  
+   C#m        A        B  
+   Arde el amor y la luz  
+    G#m            C#m   A B G#m  
+   Arde el cielo amor  
+ 
+   C#m   A  B        G#m     C#m    A
+
+   Sangra, sangra el cielo y la luz  
+     B          G#m  
+   Sangra mí espiritu  
+   C#m        A        B  
+   Arde el amor y la luz  
+    G#m            C#m   A B G#m  
+   Arde el cielo amor  
+ 
+ SOLO:G#m,B,F#m,C#m (4x) 
+      F#m,F#m, G#m A.....  C#m,A,B,G#m   (2x)  
+ 
+   C#m  A  
+   Arde  
+   B         G#m        C#m   A  
+   Arde el cielo y el dolor  
+   B          G#m  
+   Arde mi espiritu  
+   C#m        A        B  
+   Arde el amor y la luz  
+    G#m            C#m   A B G#m  
+   Arde el cielo amor  
+ 
+   C#m     A  
+   Sangra  
+   B           G#m        C#m  
+   Sangra el cielo, el dolor  
+   B            G#m  
+   Sangra mí espiritu  
+   C#m     A          B  
+   Arde y se quema la luz  
+   G#m            C#m A  
+   Arde el cielo amor  
+ 
+   B          G#m       C#m  
+  Trozos del cielo en ardor  
+   B          G#m       C#m  
+  Trozos del cielo en ardor  
+       B                G#m    C#m   A B G#m  
+   Se esta quemando el cielo yaaa....  
+ 
+ C#m   A B G#m  (3x)  C#m

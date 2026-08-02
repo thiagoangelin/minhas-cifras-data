@@ -1,0 +1,47 @@
+Jackson Do Pandeiro - Valsa Nenem 
+ 
+D7/A G/B C/E G9 
+Oi eu valsei, valsei, valsei  
+Valsa nenem  
+C/E               G9 
+Todo mundo vai valsá  
+C/E      G9 
+Valsa nenem  
+D/C   G/B  C/E G9 
+Olha ai todo mundo valsa e dança  
+Valsa nenem  
+D7/A G/B C/E G9 
+Só meu bem num qué valsá  
+Valsa nenem  
+D7/A G/B C/E G9 
+Alicrim da beira d'água  
+Valsa nenem  
+D/C   G/B  C/E G9 
+Deu um vento está pendendo  
+Valsa nenem  
+D7/A G/B C/E G9 
+Amigos e camaradas  
+Valsa nenem  
+D/C   G/B  C/E G9 
+Por de trás tão me vendendo  
+Valsa nenem  
+ 
+Ei eu velsei, valsei, valsei  
+Valsa nenem  
+Todo mundo vai valsá  
+Valsa nenem  
+ 
+É que todo mundo valsa e dança  
+Valsa nenem  
+Só meu bem não qué valsá  
+Valsa nenem  
+ 
+E quem tivé raiva de mim  
+Valsa nenem  
+Que não pudé se vingá  
+Valsa nenem  
+ 
+Bote a corda no pescoço  
+Valsa nenem  
+E de-me a ponta pra puxa  
+Valsa nenem

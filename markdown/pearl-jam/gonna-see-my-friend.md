@@ -1,0 +1,99 @@
+Pearl Jam - Gonna See My Friend 
+ 
+ 
+(the chorus I play E5 with my index finger only  and use  
+my middle finger to 
+hammer on to the G  3rd fret sixth string) 
+ 
+    I'm gonna   see my friend… 
+ 
+(intro) B  A  B  A  A 
+ 
+B5                  F#5 
+Do you want to hear something sad? 
+           B5           F#5 
+we are but victims of desire 
+B5                   F#5 
+I'm gonna shake this day 
+                   B5              F#5 
+I wanna shake this day before I retire 
+ 
+E5       (E5/G) 
+I'm gonna see my friend 
+         (E5/G                  (E5/G)     C5 D5 
+I'm gonna see my friend  make it go away 
+E5         (E5/G) 
+I'm sick of everything 
+         (E5/G)                 (E5/G)     C5 D5 
+I'm gonna see my friend  make it go away 
+ 
+B5                 F#5                     B5            
+Well I said I... I won't be long before we all walk off  
+    F#5 
+the wire 
+     B5               F#5                      B5 
+     F#5 
+Well I'm gonna see my friend  I'm gonna see my friend for  
+what I require 
+B5            F#5 
+Well I said I will come in quick 
+              B5              F#5 
+don't want my flame to get no higher 
+ 
+E5        (E5/G) 
+I'm gonna see my friend 
+          (E5/G)                (E5/G)     C5 D5 
+I'm gonna see my friend  make it go away 
+E5          (E5/G) 
+I'm sick of everything 
+          (E5/G)                (E5/G)     C5 D5 
+I'm gonna see my friend  make it go away 
+E5        (E5/G) 
+I'm gonna see my friend 
+          (E5/G)                (E5/G)     C5 D5 
+gonna see my friend  make it go away 
+ 
+( A5  A5  G5  F#5  E5 ) 
+ 
+A5 
+Wanna leave it all 
+G5 
+Wanna give it up 
+F#5          E5 
+Wanna see it gone once and for all 
+ 
+A5 
+Wanna feel withdrawl 
+G5 
+Want an overhaul 
+F#5
+
+Wanna be there 
+E5        E5 E5   E5         E5 E5 
+Hard as a statue  black as a tattoo 
+E5 
+Never to wash away 
+ 
+B5               F#5 
+Gonna take me an astral plane 
+          B5                F#5 
+I'm gonna tunnel through denial 
+    B5                   F#5 
+But I'm gonna shake this thing 
+                   B5                F#5 
+I wanna shake this thing before I retire 
+ 
+E5        (E5/G) 
+I'm gonna see my friend 
+          (E5/G)                 (E5/G)     C5 D5 
+I'm gonna see my friend  make it go away 
+E5          (E5/G) 
+I'm sick of everything 
+          (E5/G)                 (E5/G)     C5 D5 
+I'm gonna see my friend  make it go away 
+E5        (E5/G) 
+I'm gonna see my friend 
+          (E5/G)                 (E5/G)     C5 D5 
+I'm gonna see my friend  make it go away 
+ 
+( B  B  A  A  B  B  A  A )

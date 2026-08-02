@@ -1,0 +1,46 @@
+Jorge Ben Jor - Oe Oe Faz O Carro De Boi Na Estrada 
+ 
+Introdução: Gm7 Cm7 
+ 
+ (Gm7 Cm7) 
+Oé oé, faz o carro de boi na estrada 
+Oé oé, faz o carro de boi na estrada 
+ 
+(Gm7  C7/9  Cm7  F7/9) 
+Bota pou...ca carga mas rica carga 
+Pois o boi nem o carro são de carga 
+O boi e o carro são de estimação 
+Preparar eles para exposição 
+Não esquecendo de passar carvão na roda 
+Nem de lavar o carro, nem de enfeitar o boi 
+ 
+Gm            C7/9        Cm7              F7/9 
+Pois eu quero ver o boi mugir e o carro cantar 
+ 
+(Gm7   Cm7) 
+Oé oé, faz o carro de boi na estrada 
+Oé oé, faz o carro de boi na estrada 
+ 
+(Gm7 C7/9  Cm7   F7/9) 
+Bota pou...ca carga mas rica carga 
+Pois o boi nem o carro são de carga 
+O boi e o carro são de estimação 
+Preparar eles para exposição 
+Não esquecendo de passar carvão na roda 
+Nem de lavar o carro, nem de enfeitar o boi 
+ 
+Gm7           C7/9     Cm7        F7/9 
+Pois eu quero ver esse carro campeão 
+Gm7               C7/9             Cm7        F7/9 
+Pois eu quero ver todo o pessoal dizer com emoção 
+              Gm7 
+Que carro de boi! 
+     C7/9    Cm7  F7/9 
+Bom é o gemedor 
+             Gm7 
+Que carro de boi! 
+    C7/9     Cm7  F7/9 
+Bom é o cantador 
+ 
+Oé oé, faz o carro de boi na estrada 
+Oé oé, faz o carro de boi na estrada

@@ -1,0 +1,43 @@
+Joaquim E Manuel - Som De Cristal 
+ 
+[Intro] Am  D  G  C  B7  Em 
+ 
+ Em                        E7                Am 
+A casa noturna se mantém a noite em clima de festa 
+            D                                       G 
+De longe se ouve vários instrumentos de cordas e metais 
+G7          C                                      B7 
+  Boêmios bebendo cantando e dançando ao som da orquestra 
+                                                   Em 
+Um som estridente que lhe deu o nome de som de cristal 
+                       E7                 Am 
+A casa noturna boate falada lugar de má fama 
+               D                                    G 
+Com as portas abertas durante a noite entra quem quiser 
+G7             C                                    B7 
+  Porém nesta noite sem que eu esperasse entrou uma dama 
+           C                 B7              E 
+Fiquei abismado porque se tratava da minha mulher 
+ 
+          B7              A                    E 
+Ela se cansou de dormir sozinha esperando pôr mim 
+                           B7         A                 E 
+E nesta noite resolveu dar fim na sua longa e maldita espera 
+E7             A                              E 
+  Ela não quis mais levar a vida de mulher honrada 
+                           B7 
+Se na verdade não adiantou nada 
+              A                 E  E7 
+Ser mulher direita conforme ela era 
+        A                          E 
+Ela decidiu abandonar o papel de esposa 
+                        B7 
+Para viver entre as mariposas 
+           A               E  E7 
+Que fazem ponto naquele local 
+         A                                  E 
+A minha vida muito mais errante agora continua 
+                                  B7 
+Transformei a esposa em mulher da rua 
+             A       B7      E    A  E 
+A mais nova dama do som de cristal

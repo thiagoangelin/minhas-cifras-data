@@ -1,0 +1,27 @@
+John Lennon - Power To The People 
+ 
+ 
+     D     G      D             Em      D 
+    Power to the people, power to the people. (2x) 
+ D     G      D             Em      D 
+Power to the people, power to the people 
+ D     G      D                    Em            D 
+Power to the people, power to the people right on. 
+        Em                                                
+1. You say you want a revolution,  
+ 
+    we'd better get on right away. 
+    Well, let's get on your feet, end of the street, singing 
+    + REFRAIN  
+              Em 
+2. A million workers working for nothing, 
+ 
+    you better give them what they really own. 
+    We gotta put you down when we come into town,  singing   
+    + REFRAIN  
+            Em 
+3. I gonna ask you comrades and brothers, 
+ 
+    how do you treat your old woman back home. 
+   She's gotta be herself, so she can give us help, singing 
+    + REFRAIN

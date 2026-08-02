@@ -1,0 +1,47 @@
+Falamansa - Homem De Aco 
+ 
+Intro: D 
+ 
+D 
+Todo herói tem um medo 
+Na hora do medo 
+Um ranger os dentes 
+Estalar o dedo 
+D 
+E revelar para o mundo 
+Um pequeno descuido 
+De meio segundo 
+                Em 
+Estranho segredo 
+        G               Em 
+Que não pode te contar 
+        G              A 
+A verdade é que o herói 
+       D 
+Tem medo 
+                 Em 
+De amar tem medo 
+      G              A 
+A verdade é que o herói 
+        D 
+Tem medo 
+D 
+Nem o calor mais profundo 
+Derrete este chumbo 
+Que é o coração 
+Do homem aço 
+Gira em torno do mundo 
+Em meio segundo            Em 
+Mas algo lhe causa embaraço 
+   G                 Em 
+Que não pode te contar 
+  G                  A 
+A verdade é que o herói 
+        D 
+Tem medo 
+                Em 
+De amar tem medo 
+         G            A 
+A verdade é que o herói 
+     D 
+Tem medo

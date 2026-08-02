@@ -1,0 +1,29 @@
+Michael Jackson - 2000 Watts 
+ 
+Intro: Gm  Cm  Gm  Cm  Gm 
+ 
+Bass note, treble, stereo control, how low you go 
+Just enough to make your juices flow 
+Press play, don't stop, rotate, too hot 
+You feel I'm real 
+I'm everything you need, so tell me what's the deal 
+ 
+Gm 
+2000 Watts, 8 ohms, 200 volts, real strong 
+ 
+Too much of that, fuse blown 
+Cm                               Gm 
+Be careful what you say don't overload 
+ 
+2000 Watts, 8 ohms, 200 volts, real strong 
+Cm 
+Too much of that, fuse blown 
+                                 Gm 
+Be careful what you say don't overload 
+ 
+3D, high speed, feedback, Dolby 
+Release two or three, when I reach I can go 'til I hit my peak 
+Compact steelo, chico, D-Lo, highpost lady 
+Shorty really wanna be there for me... 
+ 
+Passagem:  Gm  F/A  Gm/Bb  F/C  Gm  F/A  Gm  Cm/G  Gm

@@ -1,0 +1,22 @@
+Bon Jovi - I Dont Want To Live Forever 
+ 
+G Em C D 
+ 
+Frank Sinatra died today   G D 
+I came home and found my mama crying   Em C 
+The TV had so much to say   G D 
+Somehow I was thinking about dying   Em C 
+I'm seventeen and thinking about dying    D 
+ 
+I don't wanna live forever   G ( Em ) 
+Just want to know that I'm alive   C D 
+Don't want to live forever   G ( Em ) 
+Just until the day I die   C D 
+ 
+And it's scaring me to death   C G C G C ( G ) 
+I don't want to get that way    C G C G D 
+ 
+You can see the glass half-empty  Em C 
+You can see the glass half-full   C D 
+But all I see is shattered dreams   Em C 
+Around this neighborhood   Em D

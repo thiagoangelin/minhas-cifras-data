@@ -1,0 +1,69 @@
+Raul Seixas - Carimbador Maluco Plunct Plact Zum 
+ 
+Introdução com feedbak de guitarra e rufo de bateria e Lá maior 
+ 
+(G7(9)     Dm7) 
+Sempre que eu lhe dou a mão 
+Você segura no meu pé 
+Eu faço tudo por você 
+ 
+A  A7  A 
+Tudo o que você quiser 
+ 
+     G 
+Eu quero uma colher de chá 
+ 
+    Bb 
+No grande jogo do xadrez 
+ 
+F         C          Dm7     (2x) 
+Não quero ver você chorar 
+ 
+(G7(9)     Dm7) 
+Tou aqui pro que vier 
+Eu danço o que você tocar 
+É só dar corda no boneco 
+ 
+A  A7  A 
+Tango, Rock ou tcha tcha tcha 
+ 
+     G 
+Não tenho nada a perder 
+ 
+    Bb 
+Aquilo que pintar eu tô 
+ 
+F         C          Dm7     (2x) 
+Porque eu gosto de você 
+ 
+Bb9                             F 
+Essa vida inteira é uma brincadeira 
+ 
+Bb9                             F 
+É só ficar quieto e não dar bandeira 
+ 
+C                         Bb9 
+Você chupou a manga até o fim 
+ 
+                            C 
+E só deixou o caroço para mim 
+ 
+                           E7 
+E melhor que isso só carnaval 
+ 
+(G7(9)     Dm7) 
+Pegue essa motocicleta 
+E vá mostrar quem é você 
+Bota o seu blusão de couro 
+ 
+A  A7  A 
+Agora é que eu quero ver 
+ 
+     G 
+Na arrancada do futuro 
+ 
+ Bb 
+Sem nunca pedir arrego 
+ 
+F          C          Dm7 
+Nos olhos cegos do morcego

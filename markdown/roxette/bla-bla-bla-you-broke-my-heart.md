@@ -1,0 +1,72 @@
+Roxette - Bla Bla Bla You Broke My Heart 
+ 
+G            D                     Em 
+You promised me it would last forever 
+G            D                    Em 
+You said there's no way it could die 
+G          D          Em                    Am     C 
+Everything you ever told me was a bunch of lies 
+G          D                 Em 
+Hey mom I'm back to the outside 
+G          D                   Em 
+You know that's not where I belong, No ! 
+G          D                      Em 
+Every truth everything I believed in 
+                  Am C 
+Has turned out wrong 
+ 
+G                   D      Em 
+It's all bla bla bla bla bla 
+              G        D     Em 
+You broke my heart so many times 
+G                   D      Em 
+A lot of bla bla bla bla bla 
+              Am  C  D 
+You broke my heart 
+ 
+G        D                              Em 
+It's so clear when you scratch on the surface 
+G        D          Em 
+Goin deeper deeper down 
+G        D                     Em 
+All I wanted was to make you happy 
+ 
+                       Am 
+But baby what's that sound? 
+                       C     D 
+Well baby what's that sound? 
+               G       D       Em 
+Hey it's all bla bla bla bla bla 
+              G        D    Em 
+You broke my heart so many times 
+           G       D       Em 
+A lot of bla bla bla bla bla 
+               Am  C   D 
+You broke my heart 
+               G 
+You broke my heart 
+ 
+G              D                           Em 
+All you ever cared for was to make you stronger 
+G              D                    Em 
+No one I have known has looked so weak 
+       G                D        Em 
+Ooh yeaaah na na na na 
+G                   D      Em 
+It's all bla bla bla bla bla 
+              G        D     Em 
+You broke my heart so many times 
+              G          D        Em 
+A lot of bla bla bla bla bla 
+          A        E        D                 Bm 
+A lot of bla bla bla bla bla you broke my heart 
+          A        E        D                 Bm 
+A lot of bla bla bla bla bla you broke my heart 
+ 
+               Bm   Dm                                 Bm   Dm 
+You broke my heart,                     you broke my heart 
+                G 
+You broke my heart,
+
+                G                           D     Em 
+You broke my heart,                    so many times

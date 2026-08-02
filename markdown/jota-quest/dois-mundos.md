@@ -1,0 +1,103 @@
+Jota Quest - Dois Mundos 
+ 
+Intro: E B C#m B A9 B C#m  
+ 
+ E                B            A9 
+A lua que faz brilhar o teu olhar 
+      C#m            B                A9 
+Meu amor, eu fico aqui tentando encontrar 
+       B             C#m 
+A amplitude dos sonhos 
+       B            C#m 
+A história dos mundos 
+        B          C#m 
+Me foge o pensamento 
+        A9 
+Na charada do tempo 
+  E               B           A9 
+A lua que faz brilhar o teu olhar 
+     C#m           B 
+Meu amor, fico daqui 
+              A9 
+Tentando imaginar 
+        B             C#m 
+Uma história, dois mundos 
+       B        C#m 
+Lapidando no tempo 
+        B         C#m 
+Tuas formas no vento 
+    A9 
+Vem pra cá 
+ B      C#m  
+Ver o trem 
+ B      C#m 
+Passageiro 
+ B            C#m 
+Vai chegando lento 
+      A9 
+Na rosa dos ventos 
+ 
+Intro: E B C#m B A9 B C#m  
+ 
+E                     B            A9 
+Leste, oeste, pro norte eu vou levando 
+      Am 
+Vou jogando 
+O som no ar 
+E            B        A9 
+Esperando o amor chegar 
+Am 
+Na minha vida 
+E                 B 
+Leste, oeste, pro sul 
+          A9 
+Eu vou cantando 
+      Am   
+Vou jogando o som no ar 
+E      B            A9 
+Esperando o amor chegar 
+Am 
+Na minha vida 
+ 
+Intro: E B C#m B A9 B C#m  
+ 
+E                     B            A9 
+Leste, oeste, pro norte eu vou levando 
+      Am 
+Vou jogando 
+O som no ar 
+E            B        A9
+
+Esperando o amor chegar 
+Am 
+Na minha vida 
+E                 B 
+Leste, oeste, pro sul 
+          A9 
+Eu vou cantando 
+      Am   
+Vou jogando o som no ar 
+E      B            A9 
+Esperando o amor chegar 
+Am 
+Na minha vida 
+ B        C#m 
+Ver o trem 
+B        C#m  
+Passageiro 
+B              C#m 
+Vai chegando lento 
+    A9 
+Na rosa dos ventos 
+B        C#m 
+Ver o trem 
+B       C#m 
+Passageiro 
+B              C#m 
+Vai chegando lento 
+      A9          Am 
+A avisar, a anunciar 
+   E 
+O amor 
+ 
+(E B C#m B A9)  Fim

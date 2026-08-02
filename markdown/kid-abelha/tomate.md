@@ -1,0 +1,36 @@
+Kid Abelha - Tomate 
+ 
+George Israel / Paula Toller 
+ 
+C       F           C        F  Am F Am F 
+Você nunca ouviu essa combinação 
+C       F           C        F  Am F Am F 
+Essa temática é quase matemática 
+E 
+Inconseqüente, imediata ligação 
+Entre um fruto, estética e razão 
+Terrivelmente rubro e inquieto 
+Contrariado por ser objeto 
+ 
+Você não percebeu nenhuma relação 
+É sintomática, é quase automática 
+Inconsciente fruto da observação 
+Tatibitate da crítica de arte 
+Examinando lentamente 
+O tomate quente naturalmente 
+ 
+C    F       Am       F 
+Too much, um falso cometa 
+C    F       Am       F 
+Too much, não consegue se livrar 
+C    F       Am       F 
+Da lente de um cara careta 
+C    F       Am       F 
+Da mente de um cara de pau 
+ 
+Você não entendeu a minha explicação 
+É muito prática é quase pragmática 
+É a dinâmica estática da cor 
+Vermelho vivo da vítima de arte 
+Se transformando em branco desbotado 
+Um ex-tomate um excomungado

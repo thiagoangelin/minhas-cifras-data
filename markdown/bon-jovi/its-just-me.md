@@ -1,0 +1,93 @@
+Bon Jovi - Its Just Me 
+ 
+F#m 
+You know your favorite old pair of shoes 
+The ones with the hole in the toe you won't lose 
+                     Bm 
+Your favorite record that's all scratched and used 
+                                 E 
+But still you love to play when your feeling blue 
+                  F#m 
+That faded rose, that's all dried out 
+Those Bukowsky poems we couldn't live without 
+                            Bm 
+Your high school picture, when you had wild hair 
+                      E 
+That stormy day on the beach that got us here 
+  D                        F#m                          Bm 
+Oh, you'd better believe there's just one thing you need 
+  E 
+Can't you see... 
+              A 
+It's just me baby 
+            F#m 
+It's just me baby 
+                      Bm 
+If there's just one thing that you should keep 
+  E 
+In your book of dreams 
+            F#m 
+It's just me baby 
+Just like a shadow 10 feet tall 
+Standing right behind you should you fall 
+                          Bm 
+I'll be the one to hold you up to walk 
+                               E 
+When this wicked world makes us wont to crawl 
+                    F#m 
+And if your waves should ever break at sea 
+I'll be there waiting, I'm that sandy beach 
+                            Bm 
+I'm that same old dog, scratching those same fleas 
+                       E 
+I'll be by your side, you can count on me 
+             A 
+It's just me baby 
+             F#m 
+It's just me baby 
+                      Bm 
+If there's just one thing that you should keep 
+  E 
+In your book of dreams 
+            A 
+It's just me baby 
+            F#m 
+It's just me baby 
+                          Bm 
+What's it gonna take to make you see 
+                 E                                   F#m 
+What's it gonna take 'til you believe in me 
+ 
+(solo 2x) F#m  A E 
+ 
+  D                        F#m                       Bm 
+Oh, how my smile fades and my heart just break 
+                        E 
+Every time you go away 
+            A 
+It's just me baby 
+              F#m
+
+It's just me baby 
+                            Bm 
+If there's just one thing that you should keep 
+ E 
+In your book of dreams 
+             A 
+It's just me baby 
+          F#m 
+It's just me baby 
+                         Bm 
+What's it gonna take to make you see 
+                          E                          F#m 
+What's it gonna take 'til you believe in me 
+F#m 
+And if someday some new memories comes along 
+Looking shiny new, feeling really strong 
+                                 Bm 
+You can tell him that I'll tell him 
+He can just move on 
+                                       E 
+I'm a fighter- I've been fighting for you all night long 
+             F#m            (F#m  A E) (8x) 
+It's just me baby

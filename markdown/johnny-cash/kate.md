@@ -1,0 +1,61 @@
+Johnny Cash - Kate 
+ 
+Intro - C  
+ 
+C  
+Well I saw you with another  
+It made me lose my mind  
+Shot you with my .38   
+And now I'm doin' time  
+ 
+               F  
+And you put me here  
+           C  
+You put me here  
+G  
+Well there's no need to doubt it  
+There ain't no two ways about it  
+F                      G  
+As sure as your name's Kate  
+           C  
+You put me here  
+ 
+I've been tryin' to tell 'em  
+That I didnt' do no wrong  
+Only gave you what you've been  
+Deserving all along  
+ 
+And you put me here  
+You put me here  
+There ain't no use in denyin'  
+You done it with your lyin'  
+As sure as your name's Kate  
+You put me here  
+ 
+Well the jury found me guilty  
+They wouldn't hear my plea  
+I listened as that judge said murder  
+In the first degree  
+ 
+And you put me here  
+You put me here  
+Well there ain't no need to doubt it  
+There's no two ways about it  
+As sure as your name's Kate  
+You put me here  
+ 
+Well the warden and the preacher  
+They're lettin' me go slow  
+It won't be long until I'm gone  
+Just thirteen steps to go  
+ 
+And you put me here  
+You put me here  
+There's just one way to figure  
+Your cheatin pulled the trigger  
+As sure as your name's Kate you put me here  
+ 
+There's no need to doubt it  
+There ain't no two ways about it  
+As sure as your name's Kate    
+You put me here

@@ -1,0 +1,137 @@
+Bon Jovi - A Teardrop To The Sea 
+ 
+Intro: Em Bm C Am x3 
+ 
+Verse: 
+             Em 
+So this is it 
+             Bm 
+Here it is 
+             C 
+A pot of gold 
+             Am 
+A Judas kiss 
+             Em 
+I got what I wanted 
+             Bm 
+I paid every cost 
+             C 
+I'd give it all back 
+             Am 
+To get back what I've lost 
+             Em 
+Like a wave on the beach 
+             Bm 
+Last leaf on the tree 
+             Am 
+It's all just a memory 
+ 
+Chorus: 
+             G 
+Love pick me up 
+             Bm 
+I'm down on my knees 
+             Em 
+My treasure just rags 
+             Am 
+Wings that don't fly 
+             G 
+I ain't praying, I'm choking 
+             Bm 
+I'll fix what's been broken 
+             Em 
+Got nothing to hide 
+             Am 
+No time for goodbye 
+       Em  D  C 
+Nobody grieves 
+             Em 
+A teardrop to the sea 
+ 
+Break: Em  
+ 
+Verse: 
+             Em 
+They shake my hand 
+             Bm 
+Pat my back 
+             C 
+They know my drink 
+             Am 
+Welcome back 
+             Em 
+The life of the party 
+             Bm 
+Tears of a clown 
+             C 
+Can't hear a heartbreak 
+             Am 
+The music's too loud
+
+ 
+Chorus: 
+             G 
+Love pick me up 
+             Bm 
+I'm down on my knees 
+             Em 
+My treasure just rags 
+             Am 
+Wings that don't fly 
+             G 
+I ain't praying, I'm choking 
+             Bm 
+I fix what's been broken 
+             Em 
+Got nothing to hide 
+             Am 
+No time for goodbye 
+       Em  D  C 
+Nobody grieves 
+             Em 
+A teardrop to the sea 
+ 
+Solo: Em Bm C Am x2 
+ 
+Bridge: 
+                 Em 
+It's just broken glass 
+                 Bm 
+Chalk lines on the scene 
+     Am 
+Move along, move along 
+                 Am/B 
+Ain't nothing here to see 
+ 
+Chorus: 
+               G 
+Oh, love pick me up 
+               Bm 
+I'm down on my knees 
+               Em 
+My riches just rags 
+               Am 
+Wings that don't fly 
+               G 
+I ain't praying, I'm choking 
+               Bm 
+I fix what's been broken 
+               Em 
+Got nothing to hide 
+               Am 
+No bitter goodbyes 
+               Em           Bm 
+Oh, love pick me up 
+                C           Am 
+Oh, love pick me up 
+       Em           Bm 
+Nobody grieves 
+                    C            Am 
+A teardrop to the sea 
+                    Em           Bm           C           Am 
+A teardrop to the sea 
+ 
+Em           Bm           C           Am 
+ 
+                    Em 
+A teardrop to the sea

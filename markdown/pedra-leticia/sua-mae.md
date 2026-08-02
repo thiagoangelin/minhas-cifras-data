@@ -1,0 +1,43 @@
+Pedra Leticia - Sua Mae 
+ 
+     C        F G F 
+Sua mãe, sua mãe, uhul 
+                  C   F G F 
+Foi trabalhar na zona, ouié 
+             C    F G F 
+Franca de Manaus 
+                     C    F G F 
+Vendendo disco da Madonna 
+ 
+     C        F G F 
+Sua mãe, sua mãe 
+                  C   F G F 
+Foi trabalhar na zona, ouié 
+             C    F G F 
+Franca de Manaus 
+                     C    F G F 
+Vendendo disco da Madonna 
+ 
+          C     F G F 
+Nas horas vagas 
+        C   F G F 
+Estudava Nietzsche, e vê se pode 
+C           F G F                            C 
+Ouvia o seu, preferido pop star o tal do Ritchie 
+ F G F 
+Chamo por você, nem sei seu nome 
+    C          F G F 
+No seu albergue tinha uns vídeos que passava 
+              C    F G F 
+Uns filme eieh do Schwarzeneggerrrr 
+   C        F G F                               C 
+Depois de um porre apaixonada sem engov sonhou pá dê 
+dê 
+ C   F G F 
+pá parararaaa ra papapa... 
+ 
+Obs.: 1) A parte do F G F tem que ser tocada rapida 
+(um palhetada pra baixo em F, uma pra cima em G e outra  
+seguida pra cima em F). 
+      2) O último C é tocado somente com palhetadas pra  
+baixo até voltar o refrão.

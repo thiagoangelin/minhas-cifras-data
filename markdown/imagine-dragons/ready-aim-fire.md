@@ -1,0 +1,109 @@
+Imagine Dragons - Ready Aim Fire 
+ 
+          Am                    C 
+With out backs to the wall, the darkness would fall 
+G                              D 
+Never quite thought we could loose it all 
+Am               C 
+Ready aim fire, Ready aim fire 
+    G                D 
+An empire's falling just one day 
+      Am                   C 
+You close your eyes and the glory fades 
+G                D              Am             C 
+Ready aim fire, Ready aim fire away (fire!) 
+G                D 
+Ready aim fire, Ready aim fire away 
+ 
+Am                   C 
+Off in the distance, staring's resistant 
+G                D 
+Bottling up and festering 
+Am             C 
+Hey Mr Motion, make me a potion 
+G                        D 
+Shake it all up with your mystery 
+Am                                 C 
+How come I've never seen your face 'round here? 
+G                         D 
+I know every single face 'round here 
+Am                   C 
+A man on a mission, changing the vision 
+G                   D 
+I was never welcome here 
+ 
+Em                        F 
+We don't have a choice to stay 
+            Em                 F 
+We'd rather die than do it your way 
+ 
+           Am                    C 
+With out backs to the wall, the darkness would fall 
+G                              D 
+Never quite thought we could loose it all 
+Am               C 
+Ready aim fire, Ready aim fire 
+    G                D 
+An empire's falling just one day 
+      Am                   C 
+You close your eyes and the glory fades 
+G                D              Am             C 
+Ready aim fire, Ready aim fire away (fire!) 
+G                D 
+Ready aim fire, Ready aim fire away 
+ 
+Am                  C 
+Back in the casing, shaking and pacing 
+G                    D 
+This is the tunnel's light 
+Am                    C 
+Blood in the writing, stuck in the fighting 
+G                         D 
+Look through the riffle's sight 
+Am                                 C 
+How come I've never seen your face 'round here? 
+G                        D 
+I know every single face 'round here 
+Am                  C 
+Here in the heckle, holding the shackle 
+G                   D
+
+I was never welcome here 
+ 
+Em                        F 
+We don't have a choice to stay 
+            Em                 F 
+We'd rather die than do it your way 
+ 
+           Am                    C 
+With out backs to the wall, the darkness would fall 
+G                              D 
+Never quite thought we could loose it all 
+Am               C 
+Ready aim fire, Ready aim fire 
+    G                D 
+An empire's falling just one day 
+      Am                   C 
+You close your eyes and the glory fades 
+G                D              Am             C 
+Ready aim fire, Ready aim fire away (fire!) 
+G                D 
+Ready aim fire, Ready aim fire away 
+ 
+Em  F(x4) 
+Woah 
+ 
+           Am                    C 
+With out backs to the wall, the darkness would fall 
+G                              D 
+Never quite thought we could loose it all 
+Am               C 
+Ready aim fire, Ready aim fire 
+    G                D 
+An empire's falling just one day 
+      Am                   C 
+You close your eyes and the glory fades 
+G                D              Am             C 
+Ready aim fire, Ready aim fire away (fire!) 
+G                D 
+Ready aim fire, Ready aim fire away

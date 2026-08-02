@@ -1,0 +1,38 @@
+Elba Ramalho - Porque Tem Que Ser Assim 
+ 
+[Intro] Dm  A7  Dm  Bb  A7  Dm 
+ 
+ Dm         F 
+Já é tarde sem querer                 
+ 
+Eu aqui de novo pensando em você      
+ Dm   A7        Dm                     
+Por querer teu coração                
+ F             G                       
+Tô perdido na razão                   
+ 
+Bb          F 
+Ah como eu queria 
+A7                       Dm 
+Ficar sempre de braços abertos 
+      G         Bb         G 
+Pra você, como cristo redentor 
+Bb           F 
+Ah eu não queria 
+A7                            Dm 
+A cada dia amanhecer sem teu amor 
+Bb           Bbm        F 
+Eu não suportaria tanta dor 
+ 
+ Bb     Bbm         F 
+Porque tem que ser assim?          
+ F              Bb                  
+Se eu te quero tanto?              
+ 
+O quanto você quer a mim?          
+               Bb                   
+Se eu te amo tanto?                
+ 
+Porque tem que ser assim?          
+ 
+[Solo] F  Bb  Bbm  F  Bb  Bbm  F Dm

@@ -1,0 +1,28 @@
+Adriana Calcanhotto - Programa Com Moreno 2 
+ 
+Dm               Am7 
+ Vá a zona sul às nove 
+              Dm                   Am7 
+ Se quiser comer o seu sushi com cólera 
+ Dm                   Am7              Dm 
+ Meia noite e dez descole mais um digestivo 
+              Am7 
+ No Ilusão de Ótica 
+ 
+ Dm                Am7           Dm 
+ Passe pela Lapa, pelos arco-íris dos seus 
+      Am7               Dm            Am7 
+ Arcos mais explícitos. Pelo claro-escuro 
+             Dm              Am7           Dm 
+ Pelo som impuro, obscuros becos, claros dígitos.. 
+ 
+       Dm7  Am    Dm7    Am      Dm7        Am 
+ Uma e meeeiaa, aperte um broto e com precisão 
+            Dm7     Am   Dm7      Am      Dm7  Am 
+ Pra lá de matemáticaa. Saia às três e arroche 
+               Dm7    Am          Dm7 Am 
+ A prima moto pra Bangu, e a segurança máxima... 
+ 
+Solo de Bass Synth (graves): (65 57 55, 65 58 55)4x 
+ 
+Repete do início ao fim

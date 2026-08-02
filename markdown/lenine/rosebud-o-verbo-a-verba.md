@@ -1,0 +1,36 @@
+Lenine - Rosebud O Verbo A Verba 
+ 
+ 
+ 
+Dolores, dólares... 
+ 
+   Em                 Em        Em7               Em7 
+O verbo saiu com os amigos pra bater um papo na esquina, 
+   Am                Am/G             F#m7                B7 
+A verba pagava as despesas porque ela era tudo o que ele tinha. 
+   Em                 Em7                 ( C# )       (D)     Am 
+O verbo não soube explicar depois, porque foi que a verba sumiu. 
+     C/G               Em7               C7       B7          (intro) 
+Nos braços de outras palavras o verbo afogou sua mágoa, e 
+dormiu. 
+ 
+   Em             Em      Em7                Em7 
+O verbo gastou saliva de tanto falar para o nada. 
+   Am                Am/G           F#m7              B7 
+A verba era fria e calada, mas ele sabia, lhe dava valor. 
+   Em               Em7                  ( C# )          (D)      Am 
+O verbo tentou se matar em silêncio, e depois quando a verba 
+chegou, 
+     C/G              Em7             C7                  B7 
+Era tarde demais, o cadáver jazia, a verba caiu aos seus pés a 
+chorar 
+ C7          B7     (intro) 
+lágrimas de hipocrisia. 
+ 
+(repete tudo) 
+ 
+(continua tocando a introdução) 
+Dolores e dólares... 
+Que dolor que me da los dólares... 
+dólares, dólares 
+Ay, que dolor, que dolor que me da...

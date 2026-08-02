@@ -1,0 +1,28 @@
+Arlindo Cruz - A Minha Vida Hoje Virou Verso 
+ 
+C7 F6 
+Tinha saúde pra dar 
+F#º             G7 
+Mas precisava era vender 
+Gm7                     C7(b9) 
+Eu tinha a dança para oferecer 
+Am7                     D7(9) 
+Mas não sabia que passo ia dar 
+Gm7                     C4/7(9)  C7(b9)         F7M     C7 
+Se é dança ou finança é bom ter alguém para ensinar 
+ 
+F6 
+Tenho um negócio a zelar 
+F#º             G7 
+Pro meu aluno ter lazer 
+Gm7                     C7(b9) 
+Mas além de dar aula e dançar 
+Am7                     D7(9) 
+Foi preciso eu ser aprendiz 
+Gm7                     C4/7(9)  C7(b9)         F7M          C7 
+Do Sebrae e hoje a casa tá cheia como eu sempre quis 
+ 
+F6                              G7 
+A minha vida hoje virou verso 
+Gm7                     C7(9)           F7M 
+E o meu negócio é fazer sucesso

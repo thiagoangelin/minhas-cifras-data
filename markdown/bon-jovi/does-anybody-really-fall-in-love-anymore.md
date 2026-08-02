@@ -1,0 +1,181 @@
+Bon Jovi - Does Anybody Really Fall In Love 
+Anymore 
+ 
+Intro: 
+ 
+Dm         C 
+Across the border they turn 
+Am         G 
+Water into wine 
+Dm                C 
+Some say it's the devil's blood 
+        G                  Dm 
+They're squeezing from the vine 
+Dm              C 
+Some say it's a saviour 
+         Am                 Bb 
+In these hard and desperate times 
+    Dm             C 
+For me it helps me to forget 
+     G                     Dm  C  Am  Bb 
+That we're just born... to die 
+ 
+  Dm            C 
+I came here like so many did 
+   Am              Bb 
+To find the better life 
+   Dm               C 
+To find my piece of easy street 
+   G          Dm 
+To finally be alive 
+       Dm                 C 
+I knew nothing good comes easy 
+    Am                    G 
+All good things take some time 
+  Dm               C 
+I made my bed I'll lie in it 
+   G               Dm 
+To die in it's the crime 
+ 
+F 
+You can't help but prosper 
+          Gm/Bb 
+Where the streets are paved with gold 
+             C 
+they say the oil wells ran depper here 
+     Bb/D 
+Than anybody's known 
+      F 
+Now I packed up on my wife and kid 
+    Gm/Bb 
+And left them back at home 
+            C 
+Now there's nothing in this paydirt 
+    Bb 
+The ghosts are all I know 
+ 
+        Dm 
+Now the oil's gone 
+    Dm/C 
+And the money's gone 
+    Dm/G 
+All the jobs are gone 
+            Bb         C 
+still we're hangin' on down in 
+ 
+F 
+Dry county 
+        C 
+They're swimming in the sand
+
+        Bb 
+Praying for some holy water 
+   Gm                 Bb 
+to wash the sins from off our hands in 
+F 
+Dry county 
+    C 
+The promise has run dry 
+Bb 
+Where nobody cries 
+    Bb                           Dm  C  Am  Bb 
+And no one's getting out of here alive 
+ 
+       Dm              C 
+In the blessed name of Jesus 
+  Am               Bb 
+I heard a preacher say 
+     Dm               C 
+That we are all God's children 
+     G                 Dm 
+And that he'd be back, back someday 
+      Dm                 C 
+And I hoped that he knew something 
+      Am               Bb 
+As he drank his cup of wine 
+       Dm              C 
+Didn't have too good a feeling 
+     G               Dm 
+As I head out to the night 
+ 
+  F 
+I cursed the sky to open 
+  Gm/Bb 
+I begged the clouds for rain 
+  C 
+I prayed to God for water 
+         Bb/D 
+For this burning in my viens 
+       F 
+It was like my soul's on fire 
+      Gm/Bb 
+And I had to watch the flames 
+       C 
+All my dreams went up in ashes 
+       Bb 
+And my future blew away 
+ 
+    Dm 
+Now the oil's gone 
+    Dm/C 
+And the money's gone 
+    Dm/G 
+All the jobs are gone 
+         Bb       C 
+Still we carry on down in 
+ 
+F 
+Dry county 
+        C 
+They're swimming in the sand 
+        Bb 
+Praying for some holy water 
+   Gm                 Bb 
+to wash the sins from off our hands in 
+F 
+Dry county 
+    C 
+The promise has run dry 
+Bb 
+Where nobody cries
+
+Bb                               F 
+And no one's getting out of here alive 
+ 
+(Guitar Solo) 
+ 
+    Dm                      C 
+Men spend thier whole lives waiting 
+        Am           Bb 
+Praying for some big reward 
+   Dm 
+It seems sometimes 
+    C                 G 
+The payoff leaves you feeling 
+       Dm 
+Like a dirty whore 
+   Dm             C 
+If I could choose the way I'll die 
+        Am            Bb 
+Make it by the gun or knife 
+           Dm                C 
+'Cause the other way there's too much pain 
+G 
+Night after night after night 
+ 
+        F 
+Down in Dry county 
+        C 
+They're swimming in the sand 
+        Bb 
+Praying for some holy water 
+   Gm                 Bb 
+to wash the sins from off our hands in 
+F 
+Dry county 
+    C 
+The promise has run dry 
+Bb 
+Where nobody cries 
+Bb                               Dm   C   Am  Bb 
+And no one's getting out of here alive

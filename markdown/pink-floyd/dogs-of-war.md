@@ -1,0 +1,43 @@
+Pink Floyd - Dogs Of War 
+ 
+Cm 
+Dogs of war, and men of hate,  
+With no cause, we don't disciminate,  
+Discovery, is to be disowned,  
+Our currency, is flesh and bone,  
+ 
+Ebm 
+Hell opened up, and put on sale,  
+Gather 'round and haggle,  
+ 
+Cm 
+For hard cash we lie, and decieve,  
+But even our masters dont know the webs we weave,  
+ 
+Ab 
+One world, it's a battleground,  
+Fm 
+One world, and we will smash it down,  
+Cm 
+One world, one world  
+ 
+Cm 
+Invisable transfers, long distance calls,  
+Hollow laughter, in marble halls,  
+Steps have been taken, a silent uproar,  
+Has unleashed the dogs of war,  
+ 
+Ebm 
+You can't stop what has begun,  
+Signed, sealed, they deliver olivion,  
+ 
+Cm 
+We all have a dark side, to say the least,  
+And dealing in death is the nature of the beast  
+ 
+Ab 
+One world, it's a battleground,  
+Fm 
+One world, and we will smash it down,  
+Cm 
+One world, one world,

@@ -1,0 +1,38 @@
+The Beatles - Rain 
+ 
+ 
+ 
+        G               C       D         G 
+If the rain comes they run and hide their heads. 
+      C        D       G 
+They might as well be dead, 
+        C                   G 
+If the rain comes, if the rain comes. 
+          G               C    D        G 
+When the sun shines they slip into the shade, 
+     C        D    G 
+And sip their lemonade, 
+         C                     G 
+When the sun shines, when the sun shines. 
+G   C9           G    (RIFF) 
+Raaain, I don't mind, 
+G    C9                 G (RIFF) 
+Shiiine, the weather's fine. 
+        G            C       D        G 
+I can show you that when it starts to rain, 
+ C       D        G 
+Everything's the same, 
+       C              G 
+I can show you, I can show you. 
+G   C9           G (RIFF) 
+Raaain, I don't mind, 
+G    C9                 G (RIFF) 
+Shiiine, the weather's fine. 
+         G           C        D         G 
+Can you hear me that when it rains and shines, 
+     C      D        G 
+It's just a state of mind, 
+         C               G 
+Can you hear me, can you hear me? 
+ 
+( G7 C ) (3x)

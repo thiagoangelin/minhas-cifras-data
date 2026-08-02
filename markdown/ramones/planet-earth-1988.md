@@ -1,0 +1,42 @@
+Ramones - Planet Earth 1988 
+ 
+D 
+ 
+D + [ riff ] 
+The solution to peace isn't clear 
+The terrorist threat is a modern fear 
+There are no jobs for the young 
+They turn to crime and turn to drugs 
+Battle ships crowd the sea 
+16 year olds in the army 
+Our jails are filled to the max 
+Discrimination against the blacks 
+ 
+   F 
+   Planet Earth 1988, planet Earth 1988 
+   F              G                  A 
+   It's too late, it's too late, it's too late 
+ 
+Russians and Americans war machine 
+Will destroy mankind's dream 
+They shoot their missiles in the air 
+They do not care they do not care 
+Guerrilla armies rule the streets 
+No more Christmas or trick or treat 
+Is this what the future will bring 
+I pray for peace more than anything 
+ 
+   Planet Earth 1988, planet... 
+ 
+[ F  G  A ] x3 
+ 
+The solution to peace isn't clear 
+The terrorists threat is a modern fear 
+There is no future for the youth 
+There is no hope for the young 
+Death destruction bombs galore 
+The rich are laughing at the poor 
+Our jails are filled to the max 
+Discrimination against the blacks 
+ 
+   Planet Earth 1988, planet...

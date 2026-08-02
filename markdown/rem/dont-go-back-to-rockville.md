@@ -1,0 +1,94 @@
+Rem - Dont Go Back To Rockville 
+ 
+E 
+Looking at your watch a third time 
+E                               A   Asus4  A  Asus4  A 
+waiting in the station for the bus 
+E 
+Going to a place that's far, 
+E                               A   Asus4   A  Asus4  A 
+so far away and if that's not enough 
+B            A      G#m    C#m 
+Going where nobody says hello, 
+C#m                        Bm          A   Asus4   A  Asus4  A 
+they don't talk to anybody they don't know 
+E 
+You'll wind up in some factory 
+E                                           A   Asus4   A  Asus4  A 
+that's full time filth and nowhere left to go 
+E 
+Walk home to an empty house, 
+E                               A   Asus4   A  Asus4  A 
+sit around all by yourself 
+B                     A           G#m  C#m 
+I know it might sound strange but I believe 
+C#m                   Bm          A   Asus4   A  Asus4  A 
+You'll be coming back before too long 
+ 
+[Chorus] 
+E                 F#m    B 
+Don't go back to Rockville, 
+E                 F#m  B 
+don't go back to Rockville, 
+E                 F#m   B 
+don't go back to Rockville 
+A 
+And waste another year 
+ 
+[Verse 2] 
+E 
+At night I drink myself to sleep and pretend 
+E                               A   Asus4   A  Asus4  A 
+I don't care that you're not here with me 
+E 
+'Cause it's so much easier to handle 
+E                               A   Asus4   A  Asus4  A 
+All my problems if I'm too far out to sea 
+B                    A      G#m    
+But something better happen soon 
+        C#m                  Bm        A   Asus4   A  Asus4  A 
+Or it's gonna be too late to bring you back 
+ 
+[Chorus] 
+E                 F#m    B 
+Don't go back to Rockville, 
+E                 F#m  B 
+don't go back to Rockville, 
+E                 F#m   B 
+don't go back to Rockville 
+A 
+And waste another year 
+ 
+[Bridge] 
+E                           A    B    A   B 
+It's not as though I really need you 
+E                          A    B    A  B 
+If you were here I'd only bleed you 
+F#m      C#m          F#m       C#m                A 
+But everybody else in town only wants to bring you down and 
+           A               B
+
+That's not how it ought to be 
+            B              A            G#m    C#m 
+Well I know it might sound strange but I believe 
+C#m                   Bm          A   Asus4   A  Asus4  A 
+You'll be coming back before too long 
+ 
+[Chorus] 
+E                 F#m    B 
+Don't go back to Rockville 
+E                 F#m  B 
+don't go back to Rockville 
+E                 F#m   B 
+don't go back to Rockville 
+A 
+And waste another year 
+ 
+E                 F#m    B 
+Don't go back to Rockville 
+E                 F#m  B 
+don't go back to Rockville 
+E                 F#m   B 
+don't go back to Rockville 
+A 
+And waste another year

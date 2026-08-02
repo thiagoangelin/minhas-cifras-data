@@ -1,0 +1,81 @@
+Elvis Presley - Let Me Be There 
+ 
+         E 
+Wherever you go  
+                  A              E  
+Wherever you may wander in your life  
+                                       B  
+Well surely you know, I always want to be there  
+              E   E7  
+Holding your hand  
+                    A                  E  
+And standing by to catch you when you fall  
+                   B                   E  
+Seeing you through, in everything you do  
+ 
+                     E  
+I said let me be there in your morning  
+       A  
+Let me be there in your night  
+             E                             F#    B  
+Let me change whatever's wrong and make it right  
+       E                E7              A  
+Let me take you to that wonderland that only two can share  
+    E      B              E  
+All I ask you, is let me be there       
+ 
+(verse 2)  
+             E  
+Watching you grow  
+                      A               E  
+And going through the changes in your life  
+                                     B  
+That's how I know, I always wanna to be there  
+               E   E7  
+Whenever you feel  
+                     A  
+You need a friend to lean on  
+       E  
+Here I am  
+                  B                  E  
+Whenever you call, you know I'll be there  
+ 
+                     E  
+I said let me be there in your morning  
+       A  
+Let me be there in your night  
+             E                             F#    B  
+Let me change whatever's wrong and make it right  
+       E                E7              A  
+Let me take you to that wonderland that only two can share  
+      E      B              E  
+All I ask you, is let me be there       
+ 
+(chorus)  
+       E  
+Let me be there in your morning  
+       A  
+Let me be there in your night  
+              E                             F#  B  
+Let me change whatever's wrong and make it right  
+       E                E7              A  
+Let me take you to that wonderland that only two can share  
+      E      B              E  
+All I ask you, is let me be there  
+       E      B              E  
+All I ask you is let me be there  
+ 
+(chorus)  
+                  E
+
+I said let me be there in your morning  
+       A  
+Let me be there in your night  
+             E                             F#    B  
+Let me change whatever's wrong and make it right  
+       E                E7              A  
+Let me take you to that wonderland that only two can share  
+      E      B              E  
+All I ask you, is let me be there  
+      E      B              E  
+All I ask you is let me be there

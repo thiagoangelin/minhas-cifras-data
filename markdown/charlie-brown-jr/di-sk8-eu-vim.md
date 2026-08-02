@@ -1,0 +1,30 @@
+Charlie Brown Jr - Di Sk8 Eu Vim 
+ 
+intordução: D5 A# 
+(D5 A#) 
+Di sk8 eu vim, di sk8 eu vou... é desse jeito que eu sou 
+É o que tenho, é o que quero, é o que sei, é o que faço 
+Meu estilo de vida, liberta a minha mente 
+Di sk8 eu vim, di sk8 eu vou... é do jeito que eu sou 
+É o que tenho, é o que sei, é o que quero, é o que faço 
+Tamo aí vivendo a vida, seguindo o meu extinto, 
+protegendo a minha família 
+Skate é minha cara, musica é minha vida. 
+Me deu tudo o que eu tenho, e o que eu tenho tem valor 
+Pode crer que o bom malandro, também foi meu professor 
+E eu não sou otário, eu aprendi a lição 
+a sintonia faz o sangue, o sangue faz o irmão, 
+vem comigo então, não liga pra ele então, 
+Nóis somo tudo maloqueiro, eles são tudo cuzão. 
+Eu sou do tempo do skate, do nem fama nem glória, 
+Quem não conhece o passado, não tá ligado na história 
+Tenho skate no sangue, tenho skate na memória, aee... som... 
+ 
+Meu estilo de vida é quem liberta a minha mente 
+Completamente louco mas um louco consciente 
+(Eu sempre tirei onda com dinheiro, sem dinheiro, 
+meu dinheiro, minha loucura, minha loucura, meu dinheiro...) 
+ 
+Di sk8 eu vim, di sk8 eu vou... é desse jeito que eu sou 
+É o que tenho, é o que quero, é o que sei, é o que faço... 
+Di-sk8 eu vim, di-sk8 eu vou...

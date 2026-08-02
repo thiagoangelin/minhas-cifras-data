@@ -1,0 +1,123 @@
+Oasis - Cum On Feel The Noize 
+ 
+INTRO: (C   G   Am)x2  F  G 
+ 
+1ª Parte                 
+ 
+C                       E 
+So you think you got an evil mind 
+          Am 
+Well I'll tell you honey 
+      F          G 
+And I don't know why 
+  F           G 
+I don't know why 
+C                         E 
+So you think my singin's' out of time 
+        Am 
+Well it makes me money 
+      F           G 
+And I don't know why 
+  F           G 
+I don't know why 
+Am          G 
+Anymore, oh no 
+ 
+Refrão 
+ 
+   C      G        Am 
+So cum on feel the noize 
+C     G                Am 
+Girls rock your boys 
+          F             G 
+We'll get wild, wild, wild 
+          F             G        
+We'll get wild, wild, wild 
+C      G               Am 
+Cum on feel the noize 
+C     G         Am       
+Girls rock your boys 
+          F           G 
+We'll get wild, wild, wild 
+Til dawn 
+ 
+2ª Parte 
+ 
+So you think you I got a funny face 
+Well I'm not worried 
+And I don't know why 
+I don't know why 
+Along about last week I stopped this race 
+I'm in no hurry 
+And I don't know why 
+I don't know why 
+Anymore, no no  
+ 
+Refrão 
+ 
+   C      G        Am 
+So cum on feel the noize 
+C     G                Am 
+Girls rock your boys 
+          F             G 
+We'll get wild, wild, wild 
+          F             G        
+We'll get wild, wild, wild 
+C      G               Am 
+Cum on feel the noize 
+C     G         Am       
+Girls rock your boys
+
+          F           G 
+We'll get wild, wild, wild 
+Til dawn 
+ 
+(C   G   Am)x2  F  G 
+ 
+3ª parte 
+ 
+Well you think we have a lazy time 
+You should know better 
+I don't know why 
+I don't know why 
+And you say I got a dirty mind 
+Well I'm a mean go-getter 
+I don't know why 
+I don't know why 
+Anymore, oh no 
+ 
+   C      G        Am 
+So cum on feel the noize 
+C     G                Am 
+Girls rock your boys 
+          F             G 
+We'll get wild, wild, wild 
+          F             G        
+We'll get wild, wild, wild 
+C      G               Am 
+Cum on feel the noize 
+C     G         Am       
+Girls rock your boys 
+          F           G 
+We'll get wild, wild, wild 
+Til dawn 
+ 
+   C      G        Am 
+So cum on feel the noize 
+C     G         Am 
+Girls rock your boys 
+          F             G 
+We'll get wild, wild, wild 
+          F             G        
+We'll get wild, wild, wild 
+C      G        Am 
+Cum on feel the noize 
+C     G         Am       
+Girls rock your boys 
+          F           G 
+We'll get wild, wild, wild 
+Til dawn 
+ 
+(C   G   Am)x2  F  G 
+ 
+Termine com  C

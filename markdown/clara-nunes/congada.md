@@ -1,0 +1,95 @@
+Clara Nunes - Congada 
+ 
+[Intro] A 
+ 
+    A           E          A 
+Benedito santo  de  Jesus querido 
+   E         A       E             A 
+Valha-me   Deus     que eu tenho sofrido 
+   A            E          A 
+Benedito santo  de  Jesus querido 
+   E         A       E             A 
+Valha-me   Deus     que eu tenho sofrido 
+ 
+             Em                D 
+Que santo é aquele que vem no andor 
+        C#               F#m 
+E são benedito enfeitado de flor  
+             Em                D 
+Que santo é aquele que vem no andor 
+        C#               F#m 
+E são benedito enfeitado de flor  
+ 
+    A        E              D         A 
+E conga, é conga, é congada bate marimba e tambor  
+    F#m           Bm         E         A 
+Vou pegar minha espada que eu também sou lutador  
+    A        E              D         A 
+E conga, é conga, é congada bate marimba e tambor  
+    F#m           Bm         E         A 
+Vou pegar minha espada que eu também sou lutador   
+ 
+         A7       D         E         A 
+Sou do litoral do norte  sou filho de pescador  
+ F#m          Bm        E       A 
+Batizado pela morte e criado pela dor  
+     A7          D          E      A 
+Vou lutar pelo reinado contra  o  embaixador  
+     F#m          Bm 
+Vou lutar pelo o reinado 
+               E             A 
+Pois contra o pecado não há vencedor  
+ 
+    A        E              D         A 
+E conga, é conga, é congada bate marimba e tambor  
+    F#m           Bm         E         A 
+Vou pegar minha espada que eu também sou lutador  
+    A        E              D         A 
+E conga, é conga, é congada bate marimba e tambor  
+    F#m           Bm         E         A 
+Vou pegar minha espada que eu também sou lutador   
+ 
+     A7          D          E        A 
+Eu cresci numa jangada eu não vivi, só lutei  
+     F#m          Bm          E         A 
+Vou entrar nessa congada eu vou lutar pelo rei  
+       A7           D         E         A 
+O rei tem que ser honesto pra poder fazer a lei  
+       F#m       Bm                 E             A 
+A sua lei eu me presto mas se ele é honesto, eu não sei  
+ 
+    A        E              D         A 
+E conga, é conga, é congada bate marimba e tambor  
+    F#m           Bm         E         A 
+Vou pegar minha espada que eu também sou lutador  
+    A        E              D         A 
+E conga, é conga, é congada bate marimba e tambor  
+    F#m           Bm         E         A 
+Vou pegar minha espada que eu também sou lutador
+
+             Em                D 
+Que santo é aquele que vem no andor 
+        C#               F#m 
+E são benedito enfeitado de flor  
+             Em                D 
+Que santo é aquele que vem no andor 
+        C#               F#m 
+E são benedito enfeitado de flor  
+ 
+    A        E              D         A 
+E conga, é conga, é congada bate marimba e tambor  
+    F#m           Bm         E         A 
+Vou pegar minha espada que eu também sou lutador  
+    A        E              D         A 
+E conga, é conga, é congada bate marimba e tambor  
+    F#m           Bm         E         A 
+Vou pegar minha espada que eu também sou lutador   
+ 
+    A        E              D         A 
+E conga, é conga, é congada bate marimba e tambor  
+    F#m           Bm         E         A 
+Vou pegar minha espada que eu também sou lutador  
+    A        E              D         A 
+E conga, é conga, é congada bate marimba e tambor  
+    F#m           Bm         E         A 
+Vou pegar minha espada que eu também sou lutador

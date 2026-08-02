@@ -1,0 +1,42 @@
+Elvis Presley - Bringing It Back 2 
+ 
+F                   Am       
+If I can never see you, if I can never hold you  
+   Bb              Gm          G7               C7  
+If I can never touch your face     or feel your warm embrace  
+F                        Am  
+I still remember talkin', I still remember laughin'  
+   Bb          Gm                G7       
+I still remember lovin' you a lot and just touchin' you  
+              C7  
+You know I've not forgot, cause everything is just  
+ 
+F                                    Bb                  Gm  
+Bringin' it back, you know it's just bringin' it back  
+     C7             Bb                F  
+A familiar face, a familiar place just brings it all back  
+    C9       F                            Bb                Gm  
+Everything's bringin' it back, good songs bringin' it back  
+           C7            Bb            C9  
+Even after so much time, everything's bringin' it back  
+ 
+Thinkin' in my solitude, wonderin' about your attitude             
+ 
+Thinkin' maybe that your love has died  
+ 
+There it is, I can see it in your eyes  
+ 
+A look of sweet surrender, a touch of too much sadness  
+ 
+'Cause I've hurt you so, you know your sorrow shows  
+ 
+You just can't stay, but you can't let go  
+ 
+F                                    Bb                  Gm  
+Bringin' it back, you know it's just bringin' it back  
+     C7             Bb                F  
+A familiar face, a familiar place just brings it all back  
+    C9       F                            Bb                Gm  
+Everything's bringin' it back, good songs bringin' it back  
+           C7            Bb            C9  
+Even after so much time, everything's bringin' it back

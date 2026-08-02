@@ -1,0 +1,73 @@
+Queen - Love Of My Life 
+ 
+[Intro] D  Bm  Em  A  A7 
+        D  Bm  G6  D9/F#  E 
+ 
+[Primeira Parte] 
+ 
+ A                      F#m 
+Love of my life you've hurt me 
+         Bm                 
+You've broken my heart  
+     E 
+And now you leave me 
+ A          G6(9)  A7        D 
+Love of my life,  can't you see? 
+          Bm             F#m 
+Bring it back, bring it back 
+       G             D         G 
+Don't take it away from me, because 
+ D   Bm     Em   A7              D 
+You don't know what it means to me 
+ 
+( G6  D9/F#  E ) 
+ 
+ A                     F#m 
+Love of my life don't leave me 
+         Bm                  
+You've stolen my love  
+     E 
+and now desert me 
+ A          G6(9)  A7        D 
+Love of my life,  can't you see? 
+          Bm             F#m 
+Bring it back, bring it back 
+       G             D         G     D 
+Don't take it away from me, because you 
+ Bm     Em   A7              D 
+Don't know what it means to me 
+ 
+[Segunda Parte] 
+ 
+ Bm                        
+You will remember   
+       F#m 
+When this is blown over 
+    G                        D  F# 
+And everything's all by the way 
+  Bm              F#m 
+When I grow older I will be there 
+ 
+         D#º 
+At your side to remind you 
+    Em                
+How I still love you  
+A                
+I still love you 
+ 
+( D  D7M  D  D7M ) 
+( D  D7M  D  D7M ) 
+ 
+[Final] 
+ 
+       Bm          F#m 
+Hurry back, hurry back 
+       G             D         G     D 
+Don't take it away from me, because you 
+ Bm     Em   A7              D 
+Don't know what it means to me 
+ Bm
+
+Love of my life 
+ F#m              Em  Gm  D 
+Love of my life, humm

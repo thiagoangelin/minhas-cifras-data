@@ -1,0 +1,45 @@
+Pink Floyd - When The Tigers Broke Free 
+ 
+ 
+       C                    G#                C 
+It was just before dawn one miserable morning in black  
+forty-four 
+C 
+When the foreward commander was told to sit tight, 
+                         F/C        C 
+When they asked that his men be withdrawn 
+C 
+And the generals gave thanks, as the other ranks 
+G#                 C 
+Held back the enemy tanks for a while 
+        C                    G# 
+And the Anzio Bridgehead was held for the price 
+     C 
+Of a few hundred ordinary lives 
+C                 G                    C                 
+And kind old King George sent Mother a note when 
+       G 
+ 
+he heard that Father was gone 
+C           G                      C 
+It was, I recall, in the form of a scroll with gold leaf  
+and all 
+C 
+And I found it one day in a drawer of old photographs  
+hidden away 
+C                                G# 
+And my eyes still grow damp to remember 
+            C 
+His Majesty signed with his own rubber stamp 
+C                G                             C 
+It was dark all around, there was frost on the ground 
+                      G 
+When the Tigers broke free 
+C 
+And no-one survived from the Royal Fusiliers, Company "C" 
+G                    C                   G               
+They were all left behind,  most of them dead  -  the  
+           C 
+rest of them dying 
+C                  G                    C 
+And that's how the high command took my daddy from me

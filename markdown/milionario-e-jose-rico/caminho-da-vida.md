@@ -1,0 +1,32 @@
+Milionario E Jose Rico - Caminho Da Vida 
+ 
+Intro: E7  A  E7  A 
+ 
+A 
+No caminho florido que sigo   
+                                E7 
+Olho a frente e não avisto o fim   
+          D                 A 
+Sinto a vida ficar na distancia   
+         E7                 A 
+E o cansaço mais perto de mim.   
+ 
+    E7                         A 
+Estou sempre sorrindo e cantando   
+     E7                A 
+Pra não ver o tempo passar -   
+          E7               A 
+Esta vida para mim é tão bela   
+         E7                    A 
+Sei que um dia tudo vai se acabar 
+ 
+A 
+O retorno  da vida é tão triste   
+                          E7 
+E o passado não volta jamais   
+         D                    A 
+Não me julgo melhor do que outro   
+        E7                A 
+Se no fim somos todos iguais. 
+ 
+Estou sempre sorrindo e cantando

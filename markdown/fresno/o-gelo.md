@@ -1,0 +1,65 @@
+Fresno - O Gelo 
+ 
+ Em 
+Dentro de você 
+ C 
+Eu vejo tudo congelado 
+     Em 
+O medo de saber 
+    C 
+O que está do outro lado 
+ 
+     Em         G 
+E assim eu não sei 
+         C              Eb° 
+Como fazer pra te encarar 
+              Em            G 
+E nem que eu tente descongelar 
+        C          B 
+Tua prisão não ruirá 
+ 
+ Em 
+Dentro de você 
+    C 
+Um sentimento escondido 
+     Em 
+Com medo de saber 
+   C 
+Se é ou não correspondido 
+ 
+     Em       G 
+E assim eu enterro 
+         C          Eb° 
+Tudo que eu puder amar 
+           Em 
+No seu jardim 
+            G 
+Já que as flores 
+        C                      B              Em 
+Não nasceram desde que você se foi 
+ 
+         G 
+E só de ver 
+       C           B7 
+Posso sentir toda dor 
+       Em 
+De sofrer 
+       G 
+De morrer 
+          C             B7 
+Com os espinhos dessa flor 
+ 
+          Em       G 
+Que eu mereço receber 
+    C           Eb° 
+De ti que já levou 
+ 
+ Em         Em/D          C 
+Tudo o que tinha para te dar 
+     C/B          Am 
+Mas nunca se lembrou 
+    C         Eb°         Em 
+Que precisa devolver meu coração 
+ 
+ Em         D              C             G           Em 
+Não consigo quebrar o gelo sem te machucar (x4)

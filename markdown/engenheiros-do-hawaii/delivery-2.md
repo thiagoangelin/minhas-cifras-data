@@ -1,0 +1,53 @@
+Engenheiros Do Hawaii - Delivery 2 
+ 
+(intro) Em D G 
+ 
+G                    Eb 
+Quero a força mais forte 
+G                  Eb 
+Quero a parte mais doce 
+G                     D 
+Quero o que eu não conheço 
+               Bm 
+O que não tem preço 
+     C 
+Então vem 
+Em  D       G 
+Uuuh então vem x 
+ 
+G (10 8 7) (2x) 
+ 
+G                  Eb 
+Quero o que é improvável 
+G               Eb 
+Pra provar o sabor 
+G               D 
+Quero que você venha 
+       Bm                C 
+O inevitável é sempre melhor 
+Em  D       G 
+Uuuh então vem x 
+ 
+G (10 8 7) (2x) 
+ 
+G                 Eb 
+Quero ir pra outro planeta 
+G               Eb 
+Quero cores além do violeta 
+G                  D                      Bm 
+Eu vou voltar pra querência cansei da violência 
+              C 
+No pain no gain é o que dizem 
+Em  D       G 
+Uhhh então vem 
+Am                   D                   G 
+Até onde a vista alcança não vejo ninguém 
+Am                    D              G 
+Nos dois pratos da balança tudo bem 
+Em  D       G 
+Uuuuh então vem x 
+ 
+G 
+Então vem vem 
+Em  D       G 
+Uuuuh então vem

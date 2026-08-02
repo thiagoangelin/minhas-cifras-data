@@ -1,0 +1,62 @@
+Lulu Santos - Domingo Maldito 
+ 
+Intro: F  G  Am  Gm (3x) 
+       F  E ( Am  G#m  Am  G#m  Am ) 
+ 
+C 
+  Tem sexta-feira que acaba negra 
+Am 
+  Você dizendo bom fim de semana 
+Dm                     F 
+  Passei o Sábado arrastando correntes 
+Dm       F           G 
+  Pregos brotando na cama 
+ C 
+  Domingo com o coração na boca 
+Am 
+  Aguardando o juízo final 
+Dm                F 
+  Na hora H o celular não atende 
+ Dm          F       G 
+  Sempre na caixa postal 
+  F    G 
+  OoOoOoo 
+             Am   Gm 
+  Domingo Maldito 
+F E        Am    (Gm C7) 
+  Odeio Domingo 
+  F    G 
+  OoOoOoo 
+             Am   Gm 
+  Domingo Maldito 
+F E        Am   ( Am  Abm  Am  Abm  Am ) 
+  Odeio Domingo 
+ C 
+  Tem sexta-feira que acaba negra 
+Am 
+  Você dizendo bom fim de semana 
+Dm                     F 
+  Passei o Sábado arrastando correntes 
+Dm       F           G 
+  Pregos brotando na cama 
+ C 
+  Domingo com o coração na boca 
+Am 
+  Aguardando o juízo final 
+Dm                F 
+  Na hora H o celular não atende 
+Dm          F        G 
+  Sempre na caixa postal 
+  F    G 
+  OoOoOoo 
+             Am   Gm 
+  Domingo Maldito 
+F E        Am    (Gm C7) 
+  Odeio Domingo 
+  F    G 
+  OoOoOoo 
+             Am   Gm 
+  Domingo Maldito 
+F E        Am   ( Am  G#m  Am  G#m  Am ) C Am Gm Dm F Dm F 
+G 
+  Odeio Domingo

@@ -1,0 +1,45 @@
+Backstreet Boys - Get Another Boyfriend 
+ 
+ 
+ 
+Let's talk about one, baby 
+You gotta hear me out 
+did ya really think i'd be the last to know 
+what it's all about? 
+ 
+Let's about who, you say 
+He's the essence of your life 
+But he'll eat you up from inside slow 
+And then he doesn't wanna know 
+I'm telling you, he'll eat you up from inside 
+And then he doesn't wanna know 
+ 
+CHORUS 
+ 
+Listen, I mean it 
+There's nothing that he's worthy of 
+He's just another player, playing in the name of love 
+I've seen enough, now this must come to an end 
+Get another boyfriend 
+ 
+Let's talk about what he's done 
+To become your number one 
+Or was it all the promises of 
+Diamonds, pearls and party dresses that turned you on? 
+I've seen it before, don't take anymore 
+free too,you're through for sure 
+Just go get on with your life 
+Stop acting like you've given up 
+I'm telling you  go get on with your life 
+Stop acting like you've given up. 
+ 
+CHORUS - repeat 
+ 
+Hear me out 
+You must know 
+What it's all about, baby 
+That he's just a player in love 
+This must come to an end 
+Get another boyfriend 
+ 
+CHORUS - repeat

@@ -1,0 +1,71 @@
+Johnny Cash - Before My Time 
+ 
+INTRO:     GUITAR 1 PLAYS THESE CHORDS FOR THE INTRO  
+            C           G     C     G D           G  
+VERSE:  
+    G  
+    I KNOW THAT HEARTS WERE LOVING  
+          D  
+    LONG BEFORE I WAS HERE  
+    AND I'M NOT THE FIRST TO EVER CRY  
+           G  
+    IN MY BED OR IN MY BEER  
+                 C  
+    THERE WERE SONGS BEFORE THERE WAS RADIO  
+         G                  Em  
+    OF LOVE THAT STAYS AND LOVE THAT GOES  
+               Am  
+    THEY WERE WRITING MELONCHOLY TUNES  
+          C                  D  
+    AND TEARFUL WORDS THAT RHYME  
+               G  
+    BEFORE MY TIME   
+   D           G  
+    BEFORE MY TIME  
+ 
+VERSE:  
+    THERE WERE SONGS IN OLD DUSTY BOOKS  
+    OF LOVE THATS ALWAYS BEEN  
+    SWEET LOVERS IN THEIR GLORY  
+    WHO ARE NOW GONE WITH THE WIND  
+    OLD FASHION LOVE WORDS SPOKEN THEN  
+    KEEP COMING BACK AROUND AGAIN  
+    NOTHINGS CHANGED EXCEPT THE NAMES  
+    THEIR LOVE BURNS JUST LIKE MINE  
+    BEFORE MY TIME  
+    BEFORE MY TIME  
+ 
+BREAK:  
+        C  
+    AND IN THE DIM OF YESTERDAY  
+    G  
+    I CAN CLEARLY SEE  
+           C  
+    THAT FLESH AND BLOOD CRIED OUT TO SOMEONE  
+    G             D  
+    AS IT DOES IN ME  
+                   G     
+    AND THERE WAS SOME OLD SONG THAT SAID  
+       C    
+    I LOVE YOU 'TIL I DIE  
+               G  
+    BEFORE MY TIME  
+   D           G  
+    BEFORE MY TIME  
+ 
+INSTRUMENTAL:  
+ 
+    GUITAR 1 PLAYS THESE CHORDS:  
+            C           G     C     G D           G  
+VERSE:  
+    BUT WHAT THE OLD TIME MASTERS HAD  
+    IS WHAT I FEEL FOR YOU  
+    LOVE IS LOVE AND DOESN'T CHANGE  
+    IN A CENTURY OR TWO  
+    IF SOMEWAY THEY HAD SEEN AND KNEW  
+    HOW IT WOULD BE FOR ME AND YOU  
+    THEY'D WISH FOR LOVE LIKE YOURS  
+    AND THEY WOULD WISH FOR LOVE LIKE MINE
+
+    BEFORE MY TIME  
+    BEFORE MY TIME

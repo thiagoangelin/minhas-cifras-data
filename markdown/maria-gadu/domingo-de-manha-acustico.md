@@ -1,0 +1,109 @@
+Maria Gadu - Domingo De Manha Acustico 
+ 
+Introdução: 
+ 
+1 
+ 
+2 
+ 
+3 
+ 
+4 
+ 
+Primeira Parte: 
+ 
+ C                                    Dm 
+Tá com voz de sono foi mal se te acordei 
+                       F7M/C 
+Desligue e volte a dormir depois me 
+              C 
+Ligue aqui iiii 
+C                               Dm 
+Eu nem sei o que faria nesse inverno 
+                 F7M/C 
+Qualquer coisa que não fosse com você 
+             C 
+Me causaria tédio ooo 
+ 
+Segunda Parte: 
+ 
+      C 
+Poderia estar agora no espaço em um módulo lunar 
+ 
+Ó que chato 
+     Dm 
+E se eu tivesse agora velejando num barquinho no 
+ 
+Caribe, Deus me livre 
+     F7M/C 
+Poderia estar agora num hotel mil estrelas em Dubai 
+C     Dm      F7M/C 
+  Mas eu, eu, eu, eu 
+ 
+Refrão: 
+ 
+                 C 
+Prefiro estar aqui 
+          G                   Dm 
+Te perturbando domingo de manhã 
+      F7M/C         C              G 
+É que eu prefiro ouvir sua voz de sono 
+               Dm  F7M/C                C 
+Domingo de manhã,        Domingo de manhã 
+ 
+Repete Primeira Parte: 
+ 
+C                                    Dm 
+Tá com voz de sono foi mal se te acordei 
+                       F7M/C 
+Desligue e volte a dormir depois me 
+              C  G 
+Ligue aqui iiii 
+C                               Dm 
+Eu nem sei o que faria nesse inverno 
+                 F7M/C 
+Qualquer coisa que não fosse com você 
+             C 
+Me causaria tédio ooo 
+ 
+Repete Segunda Parte:
+
+ 
+      C 
+Poderia estar agora no espaço em um módulo lunar 
+ 
+Ó que chato 
+     Dm 
+E se eu tivesse agora velejando num barquinho no 
+ 
+Caribe, Deus me livre 
+     F7M/C 
+Poderia estar agora num hotel mil estrelas em Dubai 
+C     Dm      F7M/C 
+  Mas eu, eu, eu, eu 
+ 
+Refrão Final: 
+ 
+                 C 
+Prefiro estar aqui 
+          G                   Dm 
+Te perturbando domingo de manhã 
+      F7M/C         C              G 
+É que eu prefiro ouvir sua voz de sono 
+               Dm  F7M/C                C  G  Dm 
+Domingo de manhã,        Domingo de manhã 
+ 
+F7M/C               C 
+Eu prefiro estar aqui 
+          G                   Dm 
+Te perturbando domingo de manhã 
+      F7M/C         C              G 
+É que eu prefiro ouvir sua voz de sono 
+               Dm  F7M/C                C 
+Domingo de manhã,        domingo de manhã 
+G                Dm  F7M/C 
+  Domingo de manhã 
+C                G 
+  Tá com voz de sono 
+Dm              F7M/C                    C 
+  Tá com voz de sono, foi mal se te acordei

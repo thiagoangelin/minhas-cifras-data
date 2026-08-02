@@ -1,0 +1,54 @@
+George Harrison - Blood From A Clone 
+ 
+INTRO: G D G  D G  D G  D 
+ 
+A                      D                  A 
+They say they like it, now, but in the market it 
+D   A              D        A    E 
+May not go well as it's too laid back. 
+D   A               D       A                  D 
+You need some oomph-papa, nothing like Frank Zappa 
+    A                 D          A    E 
+And not New Wave they don't play that crap 
+ 
+    C                            G 
+Try beating your head on a brick wall 
+D    E      A 
+Hard like a stone 
+C                       G 
+Don't have time for the music 
+              Bb    A      D     [INTRO] 
+They want the blood from a clone 
+ 
+I hear a clock ticking 
+I feel the nitpicking 
+I almost quit kicking at the wall 
+There seems a confusion, under the illusion 
+That they know just what will suit you all 
+ 
+Beating my head on a brick wall 
+Hard like a stone 
+Ain't got time for the music 
+They want the blood from a clone 
+ 
+There is no sense to it 
+Pure pounds and pence to it 
+They're so intense too makes me amazed 
+Don't want no music but, they're making you sick with 
+Some awful noises that may get played 
+ 
+By beating their heads on a brick wall 
+Hard like a stone 
+Ain't no messing 'round with music 
+Give them the blood from a clone 
+ 
+Where will it all lead us 
+I thought we had freed us 
+From the mundane seems I'm wrong again 
+Could be they lack roots, they're still wearing jack boots 
+They're marching somewhere in the pouring rain 
+ 
+Beating my head on a brick wall 
+Hard like a stone 
+Don't have time for the music 
+They want the blood from a clone

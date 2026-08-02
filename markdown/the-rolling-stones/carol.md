@@ -1,0 +1,55 @@
+The Rolling Stones - Carol 
+ 
+ 
+ 
+       Eb 
+Oh, Carol 
+                                Bb 
+Don't let him steal your heart away 
+F 
+I'm gonna learn to dance 
+      Eb                     Bb 
+If it takes me all night and day 
+ 
+Bb 
+Climb into my machine so we can groove on out 
+I know some swinging little joint where we can jump and shout 
+Eb 
+It's not too far back on the highway not so long a ride 
+Bb 
+You park the car out in the open you can walk inside 
+F 
+A little cutie takes your hat and you can thank her ma'am 
+Bb 
+'Cause every time you make the scene you find the joint is jammed 
+ 
+(intro) 
+ 
+Oh, Carol 
+Don't let him steal your heart away 
+I'm gonna learn to dance 
+If it takes me all night and day 
+ 
+(intro) 
+(solo) 
+ 
+Now, if you want to hear some music like the boys are playing 
+Hold tight, bang your foot don't let it carry you away 
+Don't let the heat overcome you when they play so loud 
+Won't the music intrigue you when they get a crowd 
+Well you can't dance I know you would you could 
+I got my eyes on you, baby, cause you dance so good 
+ 
+(intro) 
+ 
+Oh, Carol 
+Don't let him steal your heart away 
+I'm gonna learn to dance 
+If it takes me all night and day 
+ 
+(intro) 
+ 
+Oh, Carol 
+Don't let him steal your heart away 
+I've got to learn to dance 
+If it takes me all night and day

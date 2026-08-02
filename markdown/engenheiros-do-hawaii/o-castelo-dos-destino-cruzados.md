@@ -1,0 +1,75 @@
+Engenheiros Do Hawaii - O Castelo Dos Destino 
+Cruzados 
+ 
+Introdução: D D4 D D9 D C G D 
+ 
+          D 
+Quando você me disse que não era nada 
+    C 
+Daquilo que a gente sempre imaginou 
+           G 
+Um vento frio soprou uma janela bateu 
+    D 
+Na noite escura da alma 
+ 
+Quando você me olhou daquele jeito 
+     C 
+Que só você olhava 
+        G 
+Um passarinho voou baixinho 
+             D 
+Deixou prá trás tudo que acreditava 
+ 
+Quando as paredes e o teto cairam 
+      C 
+Eu pensei que era o final 
+         G 
+Mas era só o começo de um problema 
+D 
+Só um pesadelo normal 
+ 
+                  C 
+Lembra de mim você me enlouquece 
+    G 
+A cabeça diz que é besteira 
+       D 
+Mas o coração não esquece 
+ 
+      G 
+No castelo dos destinos que se cruzam no tempo 
+         C 
+Ninguém liga se já foi ou se ainda pode ser 
+       Bm 
+Uma criança que nasceu em 
+       F                     C 
+Uma mulher que eu conheci em 3 
+         D 
+Os dias passam lentamente prá quem pensa nos dias 
+   C 
+Semanas e semanas só pensando em você 
+        Bm 
+O tempo pinga lento dentro do meu talismã 
+     ( F Em Dm C Bm Am ) 
+Nas estrelas de centauro hoje é o ontem do amanhã 
+ 
+(refrão) 
+ 
+      G 
+No castelo dos destinos cruzados 
+      C 
+O viajante que chegou pode ser você 
+          Bm 
+Eu fiz de tudo que eu pude para te esquecer 
+       ( F Em Dm C Bm Am ) 
+A morte vive aqui do lado só que a gente não vê 
+        D 
+Uma pessoa que ficou perdida 
+        C 
+Uma pessoa que caiu do céu 
+        Bm
+
+Uma pessoa que você já conhecia 
+                ( F Em Dm C Bm Am ) 
+Muito antes de nascer e que você perdeu 
+    D       C       G       D 
+Perdeu perdeu perdeu perdeu

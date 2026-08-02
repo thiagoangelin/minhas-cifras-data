@@ -1,0 +1,38 @@
+Paulinho Da Viola - Retiro 
+ 
+Int.F#m7 C#m7 F#m7 Am6 E7+ 
+ 
+                      G#m4/7   Gº 
+Meu tempo às vezes se per.....de 
+F#m7                     B7/13 
+    Em coisas que não desejo 
+E7+                     C/Bb    A7+ 
+    Mas não repare esse la....do 
+D#m7                G#5+/7 
+    Pois meu amor é o mesmo 
+C#m7                   C#/B 
+    Nos momentos de carinho 
+Bm7         E7/9     A7+ A6 
+    Eu me desligo de tudo 
+G#m7                      B/C#   C#7/9 
+    Nos braços de quem se a......ma 
+F#7/13                  Am6      B7/13 
+     É fácil esquecer o mun......do 
+E7+ 
+     Às vezes eu me retiro 
+B7/13 
+     E nada me faz sentido 
+Bm7                   E7/9 
+     Só há um canto na vida 
+C#m7        Bm7       A7+ 
+Aonde eu me refu.....gio 
+                          A#m7 D#7/9+ 
+Afasta as sombras que eu vejo 
+        G#7/13        C#7/9 
+Em teus olhos tão aflitos 
+F#/A#                   A6 
+    Você conhece minh'alma 
+A/B        B7/13      E7+ 
+E quando quer me visita 
+BIS 
+TODA MUSICA

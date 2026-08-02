@@ -1,0 +1,42 @@
+Dr Sin - Think It Over 
+ 
+ 
+ 
+Girl! Leave it all behind Cause I can see it in your eyes 
+ 
+Just give us another try 
+ 
+I can't see your crying I can't stay away from you 
+ 
+We can work it out                   Cause we can't let it die 
+ 
+Take my hand, I'll lead the way    Open your heart, don't be afraid 
+ 
+We had it all, now I can see     As you once said, we were mean to 
+be 
+ 
+You know, I'll never let you down     So think it over 
+ 
+This time we're gonna make it right     So think it over 
+ 
+Repete Intro 
+ 
+How can I follow you babe?     But I don't think we really tried 
+ 
+Just because of our pride 
+ 
+All I know is we were wrong     And all your tears have been dried 
+ 
+Just search inside your heart  
+ 
+You'll see, our loe never died 
+ 
+Refrão 
+ 
+We've been alone for so long     I just can't take anymore 
+ 
+And I know that we will make it work out anyhow 
+ 
+No one can tell us wat is good or bad      It's up to us to decide 
+ 
+Our love is stronger than the things that we have said and done

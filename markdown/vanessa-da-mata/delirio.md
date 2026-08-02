@@ -1,0 +1,42 @@
+Vanessa Da Mata - Delirio 
+ 
+INTRO:  
+       Vocalização(C#m / G#m / C#m / F#m)2X  
+ 
+C#m                A7+   
+Dá o seu gosto de desejo  
+F#m                  G#m  
+Dá os seus olhos de menino 
+C#m                  A7+ 
+sem regra ou comprometimento 
+F#m                        G#m 
+sem se importar com o que fôr vendo 
+ 
+       F#m         G#m 
+Nossa sede de liberdade  
+    A7+                     B9 
+eu quero é dançar da forma que me der 
+  F#m                        G#m 
+a música expondo seu corpo à vontade 
+ A7+                          B9 
+nas incontáveis formas de se divertir 
+ 
+C#m               A7+ 
+Dá o seu gosto de desejo 
+F#m                G#m 
+dá o seu beijo despojado 
+C#m                    A7+ 
+seus pensamentos mais intensos  
+F#m              G#m 
+o seu rosto de pecado 
+ 
+      F#m                 G#m  
+Nos gemidos que desordenam 
+   A7+                    B9 
+as mãos que me fazem entender Adão 
+   F#m                G#m 
+a música expondo seu corpo ao delírio 
+    A7+                       B9 
+nas incontáveis formas de se divertir 
+ 
+Vocalização(C#m / G#m / C#m / F#m)2X

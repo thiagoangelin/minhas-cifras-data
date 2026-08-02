@@ -1,0 +1,114 @@
+Abba - Im Still Alive 
+ 
+G#dim: 4-x-3-4-3-x 
+ 
+[Intro] 
+G X2 
+ 
+[Verse 1] 
+ 
+G             D/F# 
+I was a loser then, 
+Em6               Bm 
+ But I'm a winner now. 
+G             D/F# 
+I'd do it all again, 
+      Em6         Bm 
+'Cause now I know how. 
+C                  D/F#       D/C     Bm       G#dim 
+ How everything in life comes down to this, at last 
+Am             Am7/G 
+Surviving, and living, 
+ F                G 
+Determined not to give in. 
+ 
+[Chorus] 
+    F         G 
+And I'm still alive. 
+   Em              A  A/G 
+My life is rolling on. 
+Dm/F         G 
+Gently, from day to day, 
+Em            A      A/G 
+Memories will fade away. 
+     F         G 
+Yes, I'm still alive. 
+    Em       A   A/G 
+The agony is gone. 
+Dm/F       G 
+My mind is slowly waking, 
+G#dim             Am 
+ And my heart has ceased its aching. 
+Cm             D/F#   G 
+IIIIIII'm still a.....live. 
+ 
+[Verse 2] 
+ 
+G              D/F# 
+I took so many blows. 
+                 Em6 
+(Took so many blows.) 
+Em6              Bm 
+I cried a sea of tears. 
+G               D/F# 
+And only heaven knows 
+    Em6               Bm 
+How I could stand the fears. 
+C                  D/F#     D/C  Bm         G#dim 
+I think of all the nights I lay alone, and scared, 
+Am                 Am7/G 
+All shattered, and crying, 
+F                  G 
+And thinking I was dying. 
+ 
+[Chorus] 
+ 
+    F         G 
+But I'm still alive. 
+   Em              A  A/G 
+My life is rolling on.
+
+Dm/F         G 
+Gently, from day to day, 
+Em            A      A/G 
+Memories will fade away. 
+     F         G 
+Yes, I'm still alive. 
+    Em       A   A/G 
+The agony is gone. 
+Dm/F       G 
+My mind is slowly waking, 
+G#dim             Am 
+ And my heart has ceased its aching. 
+Cm             D/F#   G 
+IIIIIII'm still a.....live. 
+ 
+[Chorus] 
+ 
+    F         G 
+And I'm still alive. 
+   Em              A  A/G 
+My life is rolling on. 
+Dm/F         G 
+Gently, from day to day, 
+Em            A      A/G 
+Memories will fade away. 
+     F         G 
+Yes, I'm still alive. 
+    Em       A   A/G 
+The agony is gone. 
+Dm/F       G 
+My mind is slowly waking, 
+G#dim             Am 
+ And my heart has ceased its aching. 
+Cm            D/F#    G    Em 
+IIIIIII'm still a.....live. 
+Cm            D/F# 
+IIIIIII'm still a..... 
+ 
+[Outro] 
+ 
+| C | D/F# D/C | Bm | G#dim | 
+ 
+Cm            C/G       D/F#   G 
+IIIIIII'm.... still... a.....live.

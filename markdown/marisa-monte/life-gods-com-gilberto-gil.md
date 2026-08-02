@@ -1,0 +1,67 @@
+Marisa Monte - Life Gods Com Gilberto Gil 
+ 
+ C 
+N'kukluk'mba .. Oxalá 
+Odin .. Manitoo .. Xuedeh 
+Aggayun .. Göt .. Baoh 
+G 
+Allah 
+ 
+C 
+Tupan .. N'Olorun .. Tamnarah 
+Golorud .. Ualereh 
+Zambyn .. Zeus .. Ruwatah 
+G        F       C 
+Iesu .. Jah .. Shalam-Tzieh 
+ 
+C 
+Amaterasu .. Bathalah 
+Mandarah .. Unguleveh 
+Khrisnha .. Efozu 
+G 
+Amma 
+ 
+C 
+Yambah .. Oshun .. Asdulai 
+Kalah .. Okut .. Nyaambeh 
+Aquaan .. Akuah 
+G        F           C 
+Jesus .. Rah .. Yelen-Dayeh 
+ 
+C 
+Tentei .. Dio 
+Asher .. Dieu .. Dios .. Ymanah 
+Kami .. So-Ko 
+Lubnah .. Theos .. Yallah 
+ 
+           F 
+Maomeh .. Juremah 
+Shiva .. Shangoh 
+C               F 
+Butzimmy .. Yumallad 
+    C 
+Yaoh 
+ 
+               F 
+Dumnezteu .. Banarah 
+Gaya .. Munetoh 
+C                   F 
+Aton .. Amon .. Iemanjá 
+          C 
+Erê .. Yaoh 
+ 
+            F 
+Iansã .. Adonay 
+Brahma .. Gedepoh 
+C                  F 
+Tzikem-Boo .. Atzilah 
+    C 
+Yaoh 
+ 
+               F 
+D'Olodum .. Yamanah 
+Oxóssi .. Shido 
+C                F 
+Buda .. Gee .. Jeová 
+           C 
+Erê .. Yaoh

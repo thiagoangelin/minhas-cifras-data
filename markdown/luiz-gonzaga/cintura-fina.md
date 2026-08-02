@@ -1,0 +1,103 @@
+Luiz Gonzaga - Cintura Fina 
+ 
+Intro: E Bm G#m F#m B7 E7 A B7 E 
+ 
+         D    A         E 
+Minha morena venha pra cá 
+            F#m        B7              E      A         E 
+Pra dançar xote, se deite em meu cangote e pode cochilar 
+          D       A        E 
+Tu és "muié" pra homem nenhum 
+         F#m         B7        E 
+Botar defeito, por isso satisfeito, 
+       A            E 
+Com você eu vou dançar 
+ 
+REFRÃO: 
+     C#m        F#m 
+Vem cá cintura fina 
+    B7        E 
+Cintura de pilão 
+     C#m      F#m 
+Cintura de menina 
+     B7          E 
+Vem cá meu coração 
+     C#m        F#m 
+Vem cá cintura fina 
+    B7        E 
+Cintura de pilão 
+    C#m       F#m 
+Cintura de menina 
+     B7         E 
+Vem cá meu coração 
+ 
+            F#m           B7        E 
+Quando eu abarco essa cintura de pilão 
+       C#m       F#m 
+Fico frio, arrepiado 
+       B7          E 
+Quase morro de paixão 
+             B7          F#m           E 
+E fecho os olhos quando sinto o teu calor 
+          C#m          F#m 
+Pois teu corpo só foi feito 
+         B7        E 
+Pros cochilos do amor 
+ 
+REFRÃO: 
+     C#m        F#m 
+Vem cá cintura fina 
+    B7        E 
+Cintura de pilão 
+     C#m      F#m 
+Cintura de menina 
+     B7          E 
+Vem cá meu coração 
+          C#m        F#m 
+(ÔÔ) Vem cá cintura fina 
+    B7        E 
+Cintura de pilão 
+    C#m       F#m 
+Cintura de menina 
+     B7         E 
+Vem cá meu coração 
+ 
+(E Bm G#m F#m B7 E7 A B7 E) 
+ 
+         D    A         E 
+Minha morena venha pra cá 
+            F#m        B7              E      A         E
+
+Pra dançar chote, se deite em meu cangote e pode cochilar 
+          D       A        E 
+Tu és "muié" pra homem nenhum 
+         F#m         B7        E 
+Botar defeito, por isso satisfeito, 
+       A            E 
+Com gosto eu vou dançar 
+ 
+REFRÃO: 
+     C#m        F#m 
+Vem cá cintura fina 
+    B7        E 
+Cintura de pilão 
+     C#m      F#m 
+Cintura de menina 
+     B7          E 
+Vem cá meu coração 
+          C#m     F#m 
+(ÔÔ) Vem cá cintura  
+    B7        E 
+Cintura, cinturinha 
+    C#m       F#m 
+Cintura cintadinha, 
+    B7        E 
+Fina, fina, finazinha 
+    C#m       F#m 
+Cintura emborcadinha, 
+    B7        E 
+bem fininha de pilão 
+     C#m      F#m 
+Cintura de menina 
+     B7         E 
+Vem cá meu coração

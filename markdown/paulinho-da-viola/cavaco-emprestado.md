@@ -1,0 +1,35 @@
+Paulinho Da Viola - Cavaco Emprestado 
+ 
+Intro: E  C#7 
+ 
+        F#m 
+Você quebrou 
+      B7           E7 
+Meu cavaco de estimação 
+    C#7   F#m 
+E não pagou 
+    B7    E7 
+Por que razão? 
+Fdim .    F#m     B7      E 
+Agora mesmo quero indenização 
+   C#7   F#m .    B7 
+Porque senão, senão, senão 
+   E 
+Senão não sei não 
+ 
+    F#m .      B7 .              E 
+Você levou meu cavaquinho emprestado . 
+   C#7       F#m 
+Viajou pra todo lado 
+     B7 .              E 
+Nem sequer me convidou 
+           F#m .    Gdim 
+Ganhou dinheiro 
+             E 
+Tirou onda de artista 
+       C#7 
+Quero pagamento à vista 
+ F#m .      B7 . 
+Do meu cavaquinho 
+            E 
+Que você quebrou

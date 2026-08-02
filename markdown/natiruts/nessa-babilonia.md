@@ -1,0 +1,36 @@
+Natiruts - Nessa Babilonia 
+ 
+Intro : A B C#m7 
+ 
+A   B                C#m7 
+Eu só tenho que agradecer 
+A   B                C#m7 
+Por morar no país do amor 
+A   B                C#m7 
+Sei que nada está tão fácil assim 
+A   B                C#m7 
+Aprendemos como rir da dor 
+A   B                C#m7 
+Certos povos pensam em dominar 
+A   B                C#m7 
+Muitos querem a libertação 
+A   B                C#m7 
+E alguns poucos a manipular 
+A   B                C#m7 
+Calculando quanto ganharão 
+ 
+(Refrão) 
+A   B                C#m7 
+O que eu quero é cultivar pra mim 
+A   B                C#m7 
+As coisas boas de quem me passou 
+A   B                C#m7 
+Os caminhos que nunca aprendi 
+A   B                C#m7 
+Nessa Babilônia  (3x) 
+ 
+Eu só tenho que agradecer... 
+ 
+REFRÃO 
+G#m         E 
+Nessa Babilônia...

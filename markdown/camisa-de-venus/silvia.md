@@ -1,0 +1,56 @@
+Camisa De Venus - Silvia 
+ 
+Intro: A D A  
+ 
+   A  
+Você me diz que não tá mais saindo  
+Mas eu desconfio que cê tá me traindo  
+  D                     A  
+Ô Silvia, piranha!!! Ô Silvia, piranha!!!  
+A  
+Vive dizendo que me tem carinho  
+Mas eu vi você com a mão no pau do vizinho  
+  D                   A  
+Ô Silvia, piranha!!! Ô Silvia, piranha!!!  
+  E                         D  
+Todo homem que sabe o que quer  
+ E                         D  
+Pega o pau pra bater na mulher  
+   A  
+Ô Silvia, piranha!!! Ô Silvia, piranha!!!  
+A  
+Vive dizendo que tá numa boa  
+Mas veio pra São Paulo dar massagem em coroa  
+   D                    A  
+Ô Silvia, piranha!!! Ô Silvia, piranha!!!  
+     A  
+Você jura e repete que me tem amor  
+Mas eu lhe flagrei com um vibrador  
+   D                    A  
+Ô Silvia, piranha!!! Ô Silvia, piranha!!!  
+   E                         D  
+Todo homem que sabe o que quer  
+  E                        D  
+Pega o pau pra bater na mulher  
+   A  
+Ô Silvia, piranha!!! Ô Silvia, piranha!!!  
+Solo (A)  
+   A  
+Quando eu chegou em casa com essa cara de otário  
+Vejo o zelador lá dentro do armário  
+   D                    A  
+Ô Silvia, piranha!!! Ô Silvia, piranha!!!  
+A  
+Eu acho mesmo que você não tem jeito  
+Pois até o leiteiro anda mamando em seu peito  
+  D                     A  
+Ô Silvia, piranha!!! Ô Silvia, piranha!!!  
+   E                        D  
+Todo homem que sabe o que quer  
+  E                      D  
+Pega o pau pra bater na mulher  
+   A  
+Ô Silvia, piranha!!! Ô Silvia, piranha!!!  
+Ô Silvia, piranha!!! Ô Silvia, piranha!!!  
+        A  
+Ô sua PUTA!!!

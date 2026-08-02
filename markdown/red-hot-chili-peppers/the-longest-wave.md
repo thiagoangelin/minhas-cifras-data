@@ -1,0 +1,112 @@
+Red Hot Chili Peppers - The Longest Wave 
+ 
+Intro:  
+ 
+Verse: 
+ Eb                  C# 
+Throw me all around/Like a boomerang sky 
+ Eb                  C# 
+Whatever you do/Don't tell me why 
+ Eb                  C# 
+Poppies grow tall/Then say bye bye 
+ Gm           F 
+The wave is here 
+ Eb                     C# 
+A seamless little team/And then we tanked 
+ Eb                  C# 
+I guess we're not so sacrosanct 
+ Eb                      C# 
+The tip of my tongue/But then we blanked 
+ Gm           F 
+The wave is here 
+  Dm                 Bb 
+Waiting on the wind/To tell my side 
+ 
+( Eb C# Eb C# ) 
+ 
+ Eb                  C# 
+Ready set jet/But she never gets far 
+ Eb                  C# 
+Listen to your skin/From the seat of my car 
+ Eb                    C# 
+Two centipedes stuck/In one glass jar 
+ Gm          F        C# 
+The longest wave 
+  Dm                 Bb 
+Waiting on the wind/To tell my side 
+ 
+Pre-Chorus: 
+Cm      Bb 
+Whatcha want 
+Cm      Bb 
+Whatcha need 
+Cm      Bb 
+Do you love 
+ 
+Chorus: 
+Ab                       Eb 
+Maybe I'm the right one/Maybe I'm the wrong 
+Bb                     Fm 
+Just another play, the pirate, and the papillon 
+Ab       Eb       Bb 
+Time to call it a day 
+Ab                       Eb 
+Maybe you're my last love/Maybe you're my first 
+Bb                     Fm 
+Just another way to play inside the universe 
+Ab       Eb       Bb 
+Now I know why we came 
+ 
+Verse:  
+  Eb                  C# 
+Sterile as the barrel/Of an old 12 gauge 
+ Eb                  C# 
+Under my skin/And half my age 
+ Eb                  C# 
+Hotter than the wax/On a saxifrage 
+Gm           F 
+The longest wave 
+Dm                   Bb
+
+Waiting on the wind/To turn my page 
+ 
+( Eb C# Eb C# ) 
+ 
+  Eb                  C# 
+Steady your sails/For the butterfly flap 
+  Eb                  C# 
+Whatever you do/Don't close that gap 
+  Eb                  C# 
+I'm dreaming of a woman/But she's just my nap 
+ Gm          F 
+Your ship is in 
+  Dm                   Bb 
+Waiting on the tide so I can swim 
+ 
+Pre-Chorus: 
+Cm      Bb 
+Whatcha want 
+Cm      Bb 
+Whatcha need 
+Cm      Bb 
+Do you love 
+ 
+Chorus: 
+Ab                       Eb 
+Maybe I'm the right one/Maybe I'm the wrong 
+Bb                     Fm 
+Just another play, the pirate, and the papillon 
+Ab       Eb       Bb 
+Time to call it a day 
+Ab                        Eb 
+Maybe you're my last love/Maybe you're my first 
+Bb                     Fm 
+Just another way to play inside the universe 
+Ab       Eb       Bb 
+Now I know why we came 
+C#       Ab       Eb 
+Now I know why we came 
+Ab      Eb       Bb 
+Now I know 
+ 
+( Eb Gm Bb Eb Bb Gm Cm Bb )

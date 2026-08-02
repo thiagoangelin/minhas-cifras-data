@@ -1,0 +1,27 @@
+Johnny Cash - Born To Lose 
+ 
+         G          C                G  
+Born to lose, I've lived my life in vain  
+       C                        G  
+Ev'ry dream has only brought me pain  
+        G         G7             C  
+All my life I've always been so blue  
+        D7                      G  
+Born to lose, and now I'm losing you  
+ 
+Born to lose, it seems so hard to bear  
+how I long to always have you near  
+You've grown tired, and now you say we're through  
+Born to lose, and now I'm losing you  
+ 
+riff  
+ 
+Born to lose, my every hope is gone  
+It's so hard to face that empty dawn  
+You were all the happiness I knew  
+Born to lose and now I'm losing you  
+ 
+There is no use to dream of happiness  
+All I see is only loneliness  
+All my life, I've always been so blue  
+Born to lose, and now I'm losing you

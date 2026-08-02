@@ -1,0 +1,54 @@
+Backstreet Boys - Its Gotta Be You 
+ 
+ 
+ 
+Baby it's the way you make me 
+Kinda get me go crazy 
+Never wanna stop 
+It's gotta be you (uh huh, uh huh) 
+ 
+I can't control it anymore 
+I've never felt like this before 
+Mmm, you really make me lose my head 
+My hungry heart must be fed (uh huh, uh huh) 
+ 
+Baby it's the way you make me 
+Kinda get me go crazy 
+Never wanna stop 
+ 
+CHORUS 
+It's gotta be you (uh huh, uh huh) 
+All the way 
+It's gotta be you (uh huh, uh huh) 
+Everyday 
+I promise you I will be true, yeah 
+It's only you 
+ 
+Now I know why I was born 
+You feel my feelings one by one 
+Can't see the world I'm walking through 
+'Cause baby I see only you, oh yeah 
+ 
+Baby it's the way you make me 
+Kinda get me go crazy 
+Never wanna stop 
+ 
+CHORUS - repeat 
+ 
+It's the way you (ooh ooh) 
+Yeah, that's right.... 
+Kind get me go (ooh ooh) 
+Ha! C'mon! 
+Baby, it's the way you make me (It's gotta be you) 
+Kinda get me go crazy 
+Never wanna stop 
+ 
+And you know 
+I can't see the world I'm walking through 
+'Cause of you, yeah... 
+It's gotta be you, all the way 
+You're all that I ever wanted 
+It's gotta be you, I will be true, yeah 
+It's only you 
+ 
+CHORUS - repeat

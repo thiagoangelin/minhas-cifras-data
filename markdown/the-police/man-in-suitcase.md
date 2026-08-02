@@ -1,0 +1,57 @@
+The Police - Man In Suitcase 
+ 
+(F  C  Am  Bb )(x4) 
+ 
+F     C                Am       Bb F 
+I'd invite you back to my place 
+          C                Am      Bb       F 
+It's only mine because it holds my suitcase 
+              C          Am      Bb F 
+It looks like home to me alright 
+           C                  Am        Bb    F 
+But it's a hundred miles from yesterday night 
+ 
+F      C      Dm                F 
+Must I be the man in a suitcase 
+      C       Dm 
+Is it me, the man with the stranger's face 
+F      C      Dm                F 
+Must I be the man in a suitcase 
+      C       Dm 
+Is it me, the man with the stranger's face 
+ 
+F        C             Am     Bb F 
+Another key for my collection 
+      C         Am            Bb      F 
+For security I race for my connection 
+           C                  Am           Bb          F 
+Bird in a flying cage you'll never get to know me well 
+                C         Am             Bb 
+The world's my oyster, a hotel room's a prison cell 
+ 
+F      C      Dm                F 
+Must I be the man in a suitcase 
+      C       Dm 
+Is it me, the man with the stranger's face 
+F      C      Dm                F 
+Must I be the man in a suitcase 
+      C       Dm 
+Is it me, the man with the stranger's face 
+ 
+G     D                Bm       C G 
+I'd invite you back to my place 
+           D               Bm       C       G 
+It's only mine because it holds my suitcase 
+               D          Bm     C G 
+It looks like home to me alright 
+           D                    Bm       C 
+But it's a hundred miles from yesterday night 
+ 
+G      D      Em                G 
+Must I be the man in a suitcase 
+      D       Em 
+Is it me, the man with the stranger's face 
+G      D      Em                G 
+Must I be the man in a suitcase 
+      D       Em 
+Is it me, the man with the stranger's face (repeat to fade)

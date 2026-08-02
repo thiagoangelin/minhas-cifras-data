@@ -1,0 +1,53 @@
+Roberto Carlos - Quero Ver Voce De Perto 
+ 
+Intro: D  C#m  Bm  F#m 
+ 
+D                  C#m 
+De que adianta você fugir 
+Bm                         F#m 
+   solte seus cabelos fique a sorrir 
+ 
+G         D           F 
+Vou fotografar sua mente 
+                           C 
+quero ver seu corpo presente 
+                         A 
+quero ver de perto seu amor 
+ 
+D                       C#m 
+Não ligue pra vida resto de amor 
+Bm                         F#m 
+  não importa o mundo a se revelar 
+ 
+G         D           F 
+Eu vou ampliar sua vida 
+                           C 
+em alto contraste com a volta 
+                              A 
+close em preto e branco com muito amor 
+ 
+D                    C 
+Quero ver você de perto 
+G 
+Quero ver você de perto 
+D                    C 
+Quero ver você de perto 
+G 
+Quero ver você de perto 
+ 
+D  C#m  Bm  F#m 
+G  D  F  C  A 
+ 
+D                       C#m 
+Não ligue pra vida resto de amor 
+Bm                         F#m 
+  não importa o mundo a se revelar 
+ 
+G         D           F 
+Eu vou ampliar sua vida 
+                           C 
+em alto contraste com a volta 
+                              A 
+close em preto e branco com muito amor 
+ 
+Repete Refrão 2X

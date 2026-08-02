@@ -1,0 +1,98 @@
+Adriana Calcanhotto - Vambora 
+ 
+Intro 2x: C7M  C9  Am7 
+ 
+Primeira Parte: 
+ 
+C7M           C9           Am7 
+    Entre por essa porta agora 
+                Dm7 
+E diga que me adora 
+               G7 
+Você tem meia hora 
+                   C7M  C9 
+Pra mudar a minha vida 
+         Am7 
+Vem, vambora 
+                  Dm7 
+Que o que você demora 
+           G7    G7(4)  G7 
+É o que o tempo le_____va 
+ 
+Segunda Parte: 
+ 
+ Dm7                          Dm7M 
+Ainda tem o seu perfume pela casa 
+Dm7                    Dm7M 
+    Ainda tem você na sala 
+Dm7                         Dm7M 
+    Por que meu coração dispara 
+  Am7 
+Quando tem o seu cheiro 
+ Dm7             D7(4) 
+Dentro de um livro 
+ Am7       Dm7     Am7 
+Dentro da noite veloz 
+ 
+ Dm7                          Dm7M 
+Ainda tem o seu perfume pela casa 
+Dm7                    Dm7M 
+    Ainda tem você na sala 
+Dm7                         Dm7M 
+    Por que meu coração dispara 
+  Am7 
+Quando tem o seu cheiro 
+ Dm7             D7(4) 
+Dentro de um livro 
+ Am7      Dm7   Am7 
+Na cinza das horas 
+ 
+Intro 2x: C7M  C9  Am7 
+ 
+Primeira Parte: 
+ 
+C7M           C9           Am7 
+    Entre por essa porta agora 
+                Dm7 
+E diga que me adora 
+               G7 
+Você tem meia hora 
+                   C7M  C9 
+Pra mudar a minha vida 
+         Am7 
+Vem, vambora 
+                  Dm7 
+Que o que você demora 
+           G7    G7(4)  G7 
+É o que o tempo le_____va 
+ 
+Segunda Parte:
+
+ 
+ Dm7                          Dm7M 
+Ainda tem o seu perfume pela casa 
+Dm7                    Dm7M 
+    Ainda tem você na sala 
+Dm7                         Dm7M 
+    Por que meu coração dispara 
+  Am7 
+Quando tem o seu cheiro 
+ Dm7             D7(4) 
+Dentro de um livro 
+ Am7       Dm7     Am7 
+Dentro da noite veloz 
+ 
+ Dm7                          Dm7M 
+Ainda tem o seu perfume pela casa 
+Dm7                    Dm7M 
+    Ainda tem você na sala 
+Dm7                         Dm7M 
+    Por que meu coração dispara 
+  Am7 
+Quando tem o seu cheiro 
+ Dm7             D7(4) 
+Dentro de um livro 
+ Am7      Dm7   Am7 
+Na cinza das horas 
+ 
+(C7M  C9  Am7) repete até acabar com fade

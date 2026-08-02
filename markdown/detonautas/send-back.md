@@ -1,0 +1,30 @@
+Detonautas - Send Back 
+ 
+Fm 
+Ta tudo bem enquanto nós estamos bem  
+Só que tudo fica estranho quando a madrugada vem  
+ 
+Fm 
+Eu quero mais tudo que eu vejo em vc  
+          C# 
+Eu quero mais quando sinto que ta longe de mim  
+A#m 
+Mais, mesmo sendo meu problema esquecer  
+         Fm 
+Eu quero mais quando vejo que ta perto do fim  
+ 
+Fm                Eb 
+Mas não era tudo assim 
+                 C#                      Bbm 
+Tivemos que aprender que um dia chega ao fim  
+               Fm                       Eb 
+Então eu quero Mais , pra gente se entender 
+              C#                    Bbm 
+Procuro por você que já não me quer mais, que já não me quer 
+mais. 
+ 
+Fm 
+Começo estranho mas soubemos reverter muito bem 
+Tudo que eu tinha te fazia feliz  
+O tempo todo me esforçava em ser um pouco melhor  
+Pensando num futuro da maneira que  eu ...

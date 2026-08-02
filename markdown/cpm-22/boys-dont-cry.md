@@ -1,0 +1,112 @@
+Cpm 22 - Boys Dont Cry 
+ 
+Prelúdio: A Bm C#m D|- D C#m Bm A 
+Introdução: (A Bm C#m D|- D C#m Bm A) x3                
+[Base] 
+ 
+A               Bm         C#m                    D 
+I would say I'm sorry if I thought that it would change  
+your mind 
+A               Bm         C#m                    D 
+But I know that this time I have said too much, been to  
+unkind 
+C#m             Bm         C#m                    Bm 
+I try to laugh about it, cover it all up with lies 
+C#m               Bm         C#m                    Bm 
+    I try to laugh about it, hiding the tears in my eyes 
+ 
+     (A Bm C#m D|- D C#m Bm A) x2               [Base] 
+Cos' boys don't cry 
+     Boys don't cry 
+ 
+A               Bm         C#m                    D 
+I would break down at your feet and beg forgiveness, plead 
+ with you 
+A               Bm         C#m                    D 
+But I know that it's too late and now there's nothing left 
+ that I can do 
+C#m             Bm         C#m                    Bm 
+So I try to laugh about it, cover it all up with lies 
+C#m               Bm         C#m                    Bm 
+I try to laugh about it, hiding the tears in my eyes 
+ 
+Refrão 
+ 
+A               Bm         C#m                    D 
+I would tell you that I loved you if I thought that you  
+would stay 
+A               Bm         C#m                    D 
+But I know that it's no use that you've already gone away 
+ 
+E               F#m      E               F#m 
+ Misjudged your limit,  pushed you too far 
+E             F#m      D                  E 
+ Took you for granted, I thought that you needed me more 
+A               Bm         C#m                    D 
+Now I would do most anything to get you back to my side 
+A               Bm         C#m                    D 
+But I just keep on laughing, hiding the tears in my eyes 
+ 
+(A Bm C#m D|- D C#m Bm A) x2   [Base] x4 e então A    
+[Base] 
+ 
+Cos' boys don't cry 
+     Boys don't cry 
+              Boys don't cry 
+ 
+Prelúdio: A Bm C#m D|- D C#m Bm A 
+Introdução: (A Bm C#m D|- D C#m Bm A) x3                
+[Base] 
+ 
+A               Bm         C#m                    D 
+I would say I'm sorry if I thought that it would change  
+your mind 
+A               Bm         C#m                    D 
+But I know that this time I have said too much, been to  
+unkind 
+C#m             Bm         C#m                    Bm 
+I try to laugh about it, cover it all up with lies 
+C#m               Bm         C#m                    Bm
+
+    I try to laugh about it, hiding the tears in my eyes 
+ 
+Refrão: 
+ 
+     (A Bm C#m D|- D C#m Bm A) x2               [Base] 
+Cos' boys don't cry 
+     Boys don't cry 
+ 
+A               Bm         C#m                    D 
+I would break down at your feet and beg forgiveness, plead 
+ with you 
+A               Bm         C#m                    D 
+But I know that it's too late and now there's nothing left 
+ that I can do 
+C#m             Bm         C#m                    Bm 
+So I try to laugh about it, cover it all up with lies 
+C#m               Bm         C#m                    Bm 
+I try to laugh about it, hiding the tears in my eyes 
+ 
+Refrão 
+ 
+A               Bm         C#m                    D 
+I would tell you that I loved you if I thought that you  
+would stay 
+A               Bm         C#m                    D 
+But I know that it's no use that you've already gone away 
+ 
+E               F#m      E               F#m 
+ Misjudged your limit,  pushed you too far 
+E             F#m      D                  E 
+ Took you for granted, I thought that you needed me more 
+A               Bm         C#m                    D 
+Now I would do most anything to get you back to my side 
+A               Bm         C#m                    D 
+But I just keep on laughing, hiding the tears in my eyes 
+ 
+(A Bm C#m D|- D C#m Bm A) x2   [Base] x4 e então A    
+[Base] 
+ 
+Cos' boys don't cry 
+     Boys don't cry 
+              Boys don't cry

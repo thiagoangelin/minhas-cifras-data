@@ -1,0 +1,40 @@
+Roberta Campos - Para Aquelas Perguntas Tortas 
+ 
+Intro: E 
+ 
+E 
+O céu daqui não tem mais azul 
+                               A 
+O azul com as águas do rio se foi 
+Am                E 
+Se foi pra nunca mais 
+ 
+E 
+Mas tudo que eu quis também partiu 
+                                  A 
+O vento que levou as quatro da manhã 
+    Am     
+A nuvem de respostas 
+                                     E 
+Pra aquelas perguntas tortas o meu amor 
+ 
+( A   Am  E ) 
+Ieeeea ieaaaaaa... 
+ 
+E 
+As vozes que ouvi foram pro sul 
+O sul que parte entre o norte 
+                    A   Am   E 
+E o leste da minha mão 
+ 
+E 
+O sol que brilha mais que o de amanhã 
+                                  A 
+Minha cabeça agüenta e esquenta, esquenta 
+Am 
+Minha vontade é gritar 
+                        E 
+Minha vontade é gritar você 
+ 
+( A   Am  E ) 
+Ieeeea ieaaaaaa...

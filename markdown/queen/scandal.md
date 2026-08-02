@@ -1,0 +1,63 @@
+Queen - Scandal 
+ 
+Intro - Am F C G 
+ 
+Am                                                 F 
+Scandal - now you’ve left me all the world’s gonna know 
+Am                                                  F 
+Scandal - they’re gonna turn our lives into a freak show 
+                 A                              E 
+They’ll see the heart ache,they’ll see the love break 
+                 A                          E 
+They’ll hear me pleading,we’ll say for god’s sake 
+F          C        D    A 
+Over and over and over again 
+ 
+Am                                                    F 
+Scandal - now you’ve left me there’s no healing the wounds 
+Am                                                    F 
+Hey scandal - and all the world can make us out to be fools 
+                  A                   E 
+Here come the bad news,open the flood gates 
+                  A                         E 
+They’ll leave us bleeding,we’ll say you cheapskates 
+F          C        D     A 
+Over and over and over again 
+ 
+              A                               F                  
+So let them know when they start it’s just a private affair 
+                            A                           F 
+They’ll have us hung in the air and tell me what do they care 
+F           C            A            D 
+It’s only a life to be twisted and broken 
+                 A                            F 
+They’ll see the heart ache,they’ll see our love break - yeah 
+                 A                           F 
+They’ll hear me pleading,I’ll say for god’s sake 
+ 
+F        C        A          D      D7 
+Over and over and over and over again 
+ 
+Solo guitarra 
+Am 
+Scandal scandal 
+Am 
+Scandal 
+Am 
+Scandal - yes you’re breaking my heart again 
+Am 
+Scandal - yes you’re loving on out again 
+ 
+                A                  E 
+Today the headlines tomorrow hard times 
+      F                C                     A 
+And no-one ever really knows the truth from the lies 
+D                          A 
+And in the end the story deeper must hide 
+F           C         A         D 
+Deeper and deeper and deeper inside 
+ 
+Am 
+Scandal scandal 
+Am 
+Scandal scandal…

@@ -1,0 +1,84 @@
+Mamonas Assassinas - Uma Arlinda Mulher 
+ 
+[Intro] C9 
+ 
+Te encontrei toda remelenta e estronchada 
+Num bar entregue às bebidas 
+       Em7 
+Te cortei os cabelos do sovaco e as unhas do pé e 
+Te chamei de querida 
+        F9 
+Te ensinei todos os auto-reverse da vida 
+E o movimento de translação que faz a terra girar 
+     G 
+E falei que era importante competir, mas 
+Te mato de pancada se você não ganhar 
+ 
+      F9 
+Você foi agora a coisa mais importante que 
+Já me aconteceu neste momento em toda minha vida 
+        Em7 
+Um paradoxo de pretérito imperfeito 
+Complexo com a teoria da relatividade 
+       F9 
+Num momento crucial um sábio soube saber 
+Que o sabiá sabia assobiar 
+   G 
+E quem amafagafar os mafagafinhos 
+Bom amafagafigador será 
+ 
+( C9  Em7  F9  G ) 
+ 
+      C9 
+Te falei que o pediatra 
+É o doutor responsável pela saúde dos pés 
+    Em7 
+O zoísta cuida dos zóio e os oculista 
+Deus me livre, nunca vão mexer no meu 
+          F9 
+Pois pra mim você é uma besta mitológica 
+Com o cabelo pixaim, parecida com a medusa 
+         G 
+Eu disse isso pra rimar com a soma 
+Dos quadrados dos catetos 
+Que é igual à porra da hipotenusa 
+ 
+      F5 
+Você foi agora a coisa mais importante 
+Que aconteceu neste momento 
+Até hoje em toda minha vida 
+        E5 
+Um paradoxo de pretérito imperfeito 
+Complexo com a teoria da relatividade 
+       F5 
+Num momento crucial um sábio soube saber 
+Que o sabiá sabia assobiar 
+    G5 
+E quem amafagafar os mafagafinhos, 
+Bom amafagafigador será 
+ 
+       F5 
+Eu fundei a associação internacional 
+De proteção às borboletas do afeganistão 
+       E5 
+Te provei por b + c 
+Que as meninas dos teus olhos não tem menstruação 
+         F5 
+Dar um prato de trigo pra dois tigres 
+E ver os bichos brigando é legal que só 
+         G5
+
+Pois no tira e põe, deixar ficar da vida 
+Serei sempre seu escravo de jó 
+        F5 
+E logo agora que você estava quase 
+Entendendo o que eu estou falando 
+     E5 
+A canção está acabando e o creuzebeck 
+Tá abaixando o volume 
+     F5 
+E você não entende nada mesmo porque 
+Nesse momento a minha voz vai estar baixinha 
+G5 
+Pelo amor de deus 
+Pare com esta porra!

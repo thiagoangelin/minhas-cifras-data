@@ -1,0 +1,40 @@
+Disturbed - Breathe 
+ 
+ 
+|-5-7-0-7-10-0-5-7-0-0-0-0-12-12-0-10-10-0-9-9-0-10-0-10-| 
+|-5-7-0-7-10-0-5-7-0-0-0-0-12-12-0-10-10-0-9-9-0-10-0-10-| 
+ 
+|-5-7-0-7-10-0-5-7-0-0-0-0-12-12-0-10-10-0-9-9-0-10-0-10-| 
+|-5-7-0-7-10-0-5-7-0-0-0-0-12-12-0-10-10-0-9-9-0-10-0-10-| 
+ 
+|-5-7-0-7-10-0-5-7-0-0-0-0-10-10-XX-12-12-XX-10-10-| 
+|-5-7-0-7-10-0-5-7-0-0-0-0-10-10-XX-12-12-XX-10-10-| 
+ 
+|-7-| 
+|-7-| 
+|-7-|============Author/Artist: Disturbed 
+Title: Breathe 
+Album: Believe 
+Transcribed by: Erich Wolf 
+ 
+TUNNING: Db Ab Db Gb Bb Eb 
+ 
+I BELIEVE THIS SONG IS ABOUT 95% CORDC T OR BETTER. 
+IT WILL TAKE A LITTLE GETTING USE TOO. 
+ENJOY! 
+ 
+                   P.M.---- 
+ 
+  P.M.---- 
+ 
+  (THIS PART COMES RIGHT AFTER THE VERSE)*LISTEN 
+CADF ULLY 
+ FOR TIE NG* 
+ 
+  (PA Y AROUND WITH THIS PART, IT SOUNDS LIKE 
+SOMETHING  
+OUT OF A TOOL SONG) 
+ 
+  (PA Y AROUND WITH ENDING ALSO) 
+DISTURBED IS A GDA T BAND. 
+THANKS FOR THE SONG DISTURBED.

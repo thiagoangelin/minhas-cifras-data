@@ -1,0 +1,64 @@
+Fresno - Nesse Luga 
+ 
+Intro: D G Bm G A 
+ 
+D                                     G 
+Fiquei tentando decorar o que eu ia dizer, 
+                                              Bm 
+Quando a gente se encontrar e quando eu ver você, 
+                                             A             
+Mas as palavras vão faltar e eu vou ficar fingindo que não 
+ G 
+ tem nada demais, 
+ 
+D                                          G 
+Tem tanta coisa pra falar dizer que eu sofri, 
+                                      Bm 
+Estando em todo lugar sem ter você aqui, 
+                                         A          G 
+Mas não tem como evitar todo esse tempo longe só me fez te 
+ querer mais, 
+G 
+mais...... 
+ 
+Refrão: 
+D                        G 
+Nesse lugar ( nesse lugar ), 
+                    Bm 
+A gente pode enxergar, 
+                        G  A 
+A mais distante das estrelas, 
+D                       G 
+Nesse lugar ( nesse lugar ), 
+                         Bm 
+Ninguém jamais vai nos achar, 
+                      G                A 
+Tudo que eu quero é ficar pra sempre aqui, 
+ 
+( F#m G A ) 
+ 
+          D                         A 
+E o que fazer se o plano não funcionar, 
+                      Bm 
+Se a caminhada é em vão, 
+                       G 
+Quem é que vai me guiar, 
+ 
+Andando na escuridão, 
+ 
+D          G       D    A 
+Não posso mais esperar, 
+ 
+Refrão: 
+D                         G 
+Nesse lugar ( nesse lugar ), 
+              G A Bm 
+A gente pode enxergar, 
+                       G             A 
+A mais distante das estrelas ( lá do céu ), 
+D                        G 
+Nesse lugar ( nesse lugar ), 
+Bm                     G                 A          D 
+O que eu mais quero é ficar pra sempre aqui com você, 
+ 
+Nesse lugar....

@@ -1,0 +1,54 @@
+Green Day - Take Back 
+ 
+B A C B A C 
+You pushed me once too far again, 
+B A C B A C 
+I'd like to break your fucking teeth. 
+B A C B A C 
+Stick a knife in the center of your back. 
+B A C B A C 
+You better grow some eyes in the back of your head. 
+B A C B A C 
+I fight dirty, just like your looks. 
+B A C B A C 
+Can't take, can't take, can't take anymore. 
+ 
+D# C# E D# C# E 
+Take back Take back take 
+ 
+B A C B A C 
+The taste of bad blood on the tip of my tongue. 
+B A C B A C 
+An eye for an eye. 
+B A C B A C 
+Gun for a gun. 
+B A C B A C 
+Cold-cocked and I'm taking back what's mine. 
+B A C B A C 
+Expect it when you're least expecting it. 
+B A C B A C 
+No loss of love, the smell of regret. 
+B A C B A C 
+Lights out. 
+B A C B A C B A C B A C 
+Can't take anymore. 
+ 
+D# C# E D# C# E 
+Take back Take back take 
+ 
+E 
+Shit ! 
+ 
+-:-:- Acordes -:-:- 
+ 
+A : X 0 2 2 
+B : X 2 4 4 
+C : X 3 5 5 
+C# : 6 8 8 
+D# : X 6 8 8 
+E : X 7 9 9 
+ 
+Essa música é um pouco difícil de pegar o rítmo. 
+FAÇA DO JEITO DOS ACORDES ACIMA , QUE FICA MAIS 
+FÁCIL. 
+Green Day, a melhor banda do mundo.........

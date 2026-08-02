@@ -1,0 +1,43 @@
+Jorge Ben Jor - Cigana 
+ 
+Intro: Bm7 Cm7 Bm7 Cm7 
+ 
+( Cm7  Fm7 Cm7 ) 
+Ah... cigana 
+Ah... cigana 
+Eu vou te esperar... Cigana 
+Eu vou te pegar  ... Cigana 
+Eu vou te beijar ... cigana 
+ 
+        Bb7 
+Pois você não me engana 
+Com esse cabelo sem jeito 
+Seu sorriso branco 
+Sua beleza selvagem 
+Sua pele cor de jambu 
+Meia feiticeira, meio anjo 
+ 
+                       Cm7       Fm7 
+Por isso eu vou te esperar ... cigana 
+           Cm7        Fm7 
+Eu vou te pegar ... cigana 
+             Cm7        Fm7        Ab 
+Eu vou te beijar ... cigana ... cigana 
+  Gm7            Fm7 
+Cigana ... feiticeira 
+  Gm7            Fm7 
+Cigana ... é um anjo 
+  Gm7         Fm7 
+Cigana ... mulher 
+  Bb7 
+Cigana você não me engana 
+ 
+                    ( Cm7  Fm7 ) 
+Por isso eu vou te esperar ... cigana 
+Eu vou te pegar ... cigana 
+Eu vou te beijar ... Cigana 
+Ah... cigana 
+Ah... cigana 
+Eu vou te esperar... Cigana 
+Eu vou te pegar  ... Cigana 
+Eu vou te beijar ... cigana

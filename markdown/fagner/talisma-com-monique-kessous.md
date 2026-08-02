@@ -1,0 +1,87 @@
+Fagner - Talisma Com Monique Kessous 
+ 
+Introdução: A D A E7 
+ 
+  A    E7 
+  Sabe 
+                      C#7 
+  Quanto tempo não te vejo 
+                       D 
+  Cada vez você mais longe 
+ Bm                    G7M 
+   Mais eu gosto de você 
+     E7 
+  Porque 
+ 
+  A    E7 
+  Sabe 
+                      C#7 
+  Eu pensei que fosse fácil 
+                      D     Bm 
+  Esquecer seu jeito frágil 
+                    G7M 
+  De se dar sem receber 
+       E7  A7 
+  Só você 
+ 
+ D       E7          A 
+  Só você que me ilumina 
+                   D 
+  Meu pequeno talismã 
+          E7          A 
+  Como é doce essa rotina 
+                     Bm 
+  De te amar toda manhã 
+                      F#m 
+  Nos momentos mais difíceis 
+                 Bm 
+  Você é o meu divã 
+                       F#m 
+  Nosso amor não tem segredo 
+                    G7M 
+  Sabe tudo de nós dois 
+         F#m7         E7   A7  A7(b13) 
+  E joga fora nossos medos 
+   D     E7           A 
+  Vai saudade diz pra ela 
+   D      E7       F#m  Em A7 
+  Diz pra ela aparecer 
+   D     E7          A 
+  Vai saudade vê se troca 
+          F#m         B7 
+  A minha solidão por ela 
+        Bm    E7     A  C7 
+  Pra valer o meu viver 
+ 
+ F7M                 C 
+  Só você que me ilumina 
+                   F 
+  Meu pequeno talismã 
+                     C 
+  Como é doce essa rotina 
+                     Dm 
+  De te amar toda manhã 
+                      Am 
+  Nos momentos mais difíceis 
+                 Dm 
+  Você é o meu divã 
+                       Am 
+  Nosso amor não tem segredo
+
+                    A#7M 
+  Sabe tudo de nós dois 
+         Am           G7  F#7(b5) 
+  E joga fora nossos medos 
+(refrão 2x) 
+   F7M    G7           C   Gm7 C7 
+  Vai saudade diz pra ela 
+   F7M     G7       Am   Gm7  C7 F#7(b5) 
+  Diz pra ela aparecer 
+   F7M   G7          Em 
+  Vai saudade vê se troca 
+          A7(b13)      D7/9 
+  A minha solidão por ela 
+        G7          C  C7  Na segunda vez: Em7(b5) A7(b13) 
+  Pra valer o meu viver 
+  A minha solidão por ela pra valer o meu viver (2x) 
+F#m7(b5) Fm7 C7M

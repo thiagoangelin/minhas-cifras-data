@@ -1,0 +1,95 @@
+Caetano Veloso - Ouro De Tolo 
+ 
+(intro) G G6 F C D4 D  
+ 
+               ( G G6 ) 
+Eu devia estar contente 
+Porque eu tenho um emprego 
+Sou um dito cidadão respeitável 
+E ganho quatro mil cruzeiros 
+    Am 
+Por mês 
+Eu devia agradecer ao Senhor 
+                D 
+Por ter tido sucesso na vida como artista 
+Eu devia estar feliz 
+                                  G 
+Porque consegui comprar um Corcel 73 
+   ( G G6 ) 
+Eu devia estar alegre e satisfeito 
+Por morar em Ipanema 
+Depois de ter passado fome por dois anos 
+                      Am 
+Aqui na Cidade Maravilhosa 
+Ah! Eu devia estar sorrindo e orgulhoso 
+              D 
+Por ter finalmente vencido na vida 
+Mas eu acho isso uma grande piada 
+                      G       G7 
+E um tanto quanto perigosa 
+                  C 
+Eu devia estar contente 
+Por ter conseguido tudo o que eu quis 
+Mas confesso abestalhado 
+                     Bm 
+Que eu estou decepcionado 
+ 
+   C 
+Porque foi tão fácil conseguir 
+E agora eu me pergunto: E daí? 
+                A7 
+Eu tenho uma porção de coisas grandes 
+                        D               G         F  D 
+Pra conquistar, e eu não posso ficar aí parado 
+ 
+   ( G G6 ) 
+Eu devia estar feliz pelo Senhor 
+Ter me concedido o domingo 
+Pra ir com a família ao Jardim Zoológico 
+                 Am 
+Dar pipoca aos macacos 
+Ah! Mas que sujeito chato sou eu 
+             D 
+Que não acha nada engraçado 
+Macaco praia, carro, jornal, tobogã 
+                     G 
+Eu acho tudo isso um saco 
+    ( G G6 ) 
+É você olhar no espelho 
+Se sentir um grandessíssimo idiota 
+Saber que é humano, ridículo, limitado 
+Que só usa dez por cento de sua 
+  Am 
+Cabeça animal 
+                                  D 
+E você ainda acredita que é um doutor, padre ou policial 
+Que está constribuindo com sua parte 
+                         G       G7 
+Para nosso belo quadro social
+
+C 
+Eu que não me sento 
+No trono de um apartamento 
+Com a boca escancarda cheia de dentes 
+            Bm 
+Esperando a morte chegar 
+ 
+ C 
+Porque longe das cercas embandeiradas que separam quintais 
+A7 
+   No cume calmo do meu olho que vê 
+  D                                  G 
+Assenta a sombra sonora de um disco voador 
+C 
+Eu que não me sento 
+No trono de um apartamento 
+Com a boca escancarda cheia de dentes 
+            Bm 
+Esperando a morte chegar 
+ 
+ C 
+Porque longe das cercas embandeiradas que separam quintais 
+A7 
+No cume calmo do meu olho que vê 
+  D                                  G 
+Assenta a sombra sonora de um disco voador

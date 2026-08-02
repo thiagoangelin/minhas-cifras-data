@@ -1,0 +1,99 @@
+Fresno - Cancao Da Noite Todo Mundo Precisa De 
+Alguem 
+ 
+G#5                           C#5 
+Sinto te dizer, mas você perdeu 
+G#5                           C#5 
+De tanto trabalhar, você esqueceu 
+     G#5                      A#5 
+Você diz que não quer saber, mas isso não cabe à você 
+          B5              F#5             G#5 
+Se não precisa de nada, o que você faz aqui? 
+G#5                        C#5 
+É a forma de você se defender 
+G#5                                 C#5 
+Só pensa em atacar, nem sabe o porquê 
+G#5 
+Eu já senti a mesma dor 
+      A#5 
+E amaldiçoei o meu amor 
+          B5                   F#5             G#5 
+Quando eu fiquei sem nada, foi quando eu percebi 
+ 
+F#5              B5 
+Que eu preciso, você também 
+C#5            G#5 
+Todo mundo precisa de alguem 
+F#5              B5 
+Que eu preciso, você também 
+C#5             G#5           D#5 
+Todo mundo precisa de alguem , yeah. 
+ 
+C#5 
+E eu sei muito bem da raiva que dá 
+        F#5 
+A gente soca as paredes sem se importar 
+        B5                                          C#5 
+E o que é que nos faz quebrar a cara de novo e de novo? 
+ 
+Sem jamais desistir 
+C#5 
+E eu sei muito bem da tristeza que dá 
+          F#5 
+A gente compra, conta finge mas, jamais quer ficar 
+        B5 
+E olha pra quem nos quer como quem já não quer mais 
+        C#5 
+E tudo que a gente quer é ser deixado em paz 
+         C#5                   B5 
+E a noite vem pra tirar de nós lagrimas dos olhos, e o brilho da voz 
+    A#5                Fm 
+De tanto gritar até a garganta sangrar 
+         F#5                        G#5 
+A gente fecha os ouvidos pra voz que não quer calar, e ela diz 
+ 
+F#5              B5 
+Que eu preciso, você também 
+C#5            G#5 
+Todo mundo precisa de alguem 
+F#5              B5 
+Que eu preciso, você também 
+C#5             G#5 
+Todo mundo precisa de alguem 
+ 
+Fm                                 F#5 
+E a noite vem pra escurecer o meu ar 
+                  C#5                        G#5 
+E emudecer as palavras que eu queria tanto falar 
+                       Fm 
+Traz com o vento as canções
+
+                  F#5 
+Mil versos sem refrões 
+                 C#5 
+Nenhuma delas feliz 
+                   G#5          A#5 
+Até que um diz eu fiz, e ela diz 
+ 
+G#5            C#5 
+Eu preciso, você tambem 
+ D#5          A#5 
+Todo mundo precisa de alguem 
+G#5            C#5 
+Eu preciso, você tambem 
+ D#5          A#5 
+Todo mundo precisa de alguem 
+G#5              C#5 
+Mas eu preciso, você também 
+ D#5           A#5 
+Todo mundo precisa de alguem 
+G#5            C#5 
+Eu preciso, você tambem 
+ D#5          A#5 
+Todo mundo precisa de alguem 
+G#5            C#5 
+Eu preciso, você tambem 
+ D#5          A#5 
+Todo mundo precisa de alguem 
+ 
+( G#5 C#5 D#5 A#5 )

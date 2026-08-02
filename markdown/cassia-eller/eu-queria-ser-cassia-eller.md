@@ -1,0 +1,58 @@
+Cassia Eller - Eu Queria Ser Cassia Eller 
+ 
+Eb 
+Eu poderia ser um padre ou um dentista 
+Um arquiteto um deputado ou um jornalista 
+Eu poderia ser ator e me dar bem 
+Ser um poeta que escreve versos como ninguém 
+ 
+G# 
+Eu poderia ser um general da banda 
+Uma modelo um herói da propaganda 
+ 
+Eb 
+Eu poderia ser  escravo do trabalho 
+Ser um banqueiro um estilista do baralho 
+ 
+Bb                         G#                  Eb 
+E não há nenhuma outra hipótese que eu não considere mais 
+ G#                    Bb                 Eb 
+O que eu queria mesmo ser é a Cassia Eller       2x 
+ 
+Eb 
+Eu poderia ser um mágico ilusionista 
+Um domador um gigolô um psicanalista 
+Eu poderia ser um campeão de golfe 
+Um de luta livre de xadrez do que quer que fosse 
+ 
+G# 
+Eu poderia ser um escritor na moda 
+De quem se fala muito mal ele nem se incomoda 
+ 
+Eb 
+Eu poderia ser um alto funcionário 
+Um baconista um bandido sanguinário 
+ 
+Bb                         G#                  Eb 
+E não há nenhuma outra hipótese que eu não considere mais 
+ G#                    Bb                 Eb 
+O que eu queria mesmo ser é a Cassia Eller      
+ 
+Eb 
+Eu poderia ser um físico nuclear 
+Um astronauta um explorador do mar 
+Eu poderia ser o rei do futebol 
+Um vagabundo ou um professor de escola 
+ 
+G# 
+Eu poderia ser um grande cineasta 
+Um detetive ter segredos numa pasta 
+ 
+Eb 
+Eu poderia ser um monge no nepal 
+Um jardineiro um marinheiro etc e tal 
+ 
+Bb                         G#                  Eb 
+E não há nenhuma outra hipótese que eu não considere mais 
+ G#                    Bb                 Eb 
+O que eu queria mesmo ser é a Cassia Eller

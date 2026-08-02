@@ -1,0 +1,30 @@
+Elvis Presley - Fun In Acapulco 
+ 
+Intro: :C  Am  :Dm7  G7  :  3x 
+    C  Am   Dm7        G7     C  Am  Dm7  G7 
+    Acapulco, sleeping in the bay 
+    C  Am   Dm7           G7        C  Am  Dm7 
+    Acapulco, wake up and greet the day 
+    G7      C                    E7 
+    Time to tell the guitars and sleepy-eyed stars 
+       F 
+    To be on their way 
+    (Tacet)     C         A7     Dm7     G7  C   F   C 
+    It's such a beautiful morning, for a holiday 
+ 
+                 F   Fm                C 
+    Hey now come on,    you old sleepy head 
+                        D7   Am            D7       Dm7 
+    See the sky turning red,    and you're still in bed 
+         G7 
+    It's fun in Acapulco 
+    Acapulco, look here comes the sun 
+    Acapulco, it's a day for fun 
+    I can't wait till I meet your sweet senoritas 
+    Kiss everyone 
+    This is no time for siesta, this is time for fun 
+    I can't wait till I meet your sweet senoritas 
+    Kiss everyone 
+    This is no time for siesta, this is time for fun 
+    This is no time for siesta, this is time for fun 
+    ...this is no time for siesta...this is time for fun...

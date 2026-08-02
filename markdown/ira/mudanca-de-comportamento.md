@@ -1,0 +1,84 @@
+Ira - Mudanca De Comportamento 
+ 
+Intro: (D9 D9/C# D9/C G F#m) (2x)  A7 
+ 
+D9                D9/C#         D9/C 
+E aqui estou eu sozinho com o tempo.  
+G                           F#m 
+O tempo que você me pediu.  
+D9          D9/C#       D9/C 
+Isso é orgulho do passado,  
+G                 F#m      A7 
+um presente prá você  
+ 
+D9      D9/C#        D9/C 
+Uma delica__da lembrança  
+G                              F#m 
+Branca neve que nunca senti  
+D9    D9/C#     D9/C 
+Solidão me deixe forte  
+G                     F#m 
+Talvez resolva meus problemas  
+ 
+                   G 
+Eu morreria por você  
+                 F#m 
+Na guerra ou na paz  
+                   G 
+Eu morreria por você  
+            A7 
+Sem saber como sou capaz  
+ 
+D9               D9/C#      D9/C 
+E aqui estou eu sozinho com o tempo.  
+G                           F#m 
+O tempo que você me pediu.  
+D9       D9/C#     D9/C 
+Isso é orgulho do passado,  
+G                 F#m      A7 
+um presente prá você  
+ 
+D9     D9/C#     D9/C 
+Uma delica__da lembrança  
+G                              F#m 
+Branca neve que nunca senti  
+D9    D9/C#     D9/C 
+Solidão me deixe forte  
+G                     F#m 
+Talvez resolva meus problemas  
+ 
+                   G 
+Eu morreria por você  
+                 F#m 
+Na guerra ou na paz  
+                   G 
+Eu morreria por você  
+            A7 
+Sem saber como sou capaz  
+ 
+(D9 D9/C# D9/C G F#m) (2x)  A7 
+Pa pa pa pa paz 
+ 
+D9            D9/C#     D9/C 
+Mudanças no meu comportamento  
+G                      F#m 
+Distância louca de mim mesmo  
+D9          D9/C#     D9/C 
+Vontade de sentir o passado  
+G                   F#m 
+    Presente prá você
+
+ 
+                Bm              F#m 
+Eu morreria por você...  
+                Bm              F#m 
+Eu morreria por você...  
+                Bm              F#m 
+Eu morreria por você...  
+                  G             F#m 
+Eu morreria por você  
+            A7 
+Sem saber como sou capaz  
+ 
+D9 D9/C# D9/C G 
+Pa pa pa pa paz

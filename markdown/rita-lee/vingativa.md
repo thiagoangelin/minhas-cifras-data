@@ -1,0 +1,43 @@
+Rita Lee - Vingativa 
+ 
+( Am  B  Em ) 
+ 
+                      Am 
+Você fez de mim uma hipócrita 
+                     Em 
+Você fez de mim uma cínica 
+                       B                   Em 
+Você fez de mim uma mulher sem lar, uma marvada! 
+ 
+                      Am 
+Você fez de mim uma hipócrita 
+                     Em 
+Você fez de mim uma cínica 
+                       B                   Em 
+Você fez de mim uma mulher sem lar, uma malvada! 
+ 
+                  Am           B           Em 
+Por isso eu sou vingativa, vingativa, vingativa 
+                  Am                        B 
+Por isso eu sou vingativa, tenho até asco de você 
+ 
+                      Am 
+Você me trata como um ser qualquer 
+                     Em 
+Ah! Não me quer bem! Não me tem amor! 
+                       B          Em 
+Não me faz carinho! Não me da uma flor! 
+ 
+                  Am           B           Em 
+Por isso eu sou vingativa, vingativa, vingativa 
+                  Am                        B 
+Por isso eu sou vingativa, tenho até asco de você 
+Por isso eu sou vingativa, vingativa, vingativa 
+Por isso eu sou vingativa, tenho até asco de você 
+ 
+Você fez de mim uma hipócrita 
+Você fez de mim uma cínica 
+Você fez de mim uma mulher sem lar, uma malvada! 
+ 
+Por isso eu sou vingativa, vingativa, vingativa 
+Por isso eu sou vingativa, tenho até asco de você...

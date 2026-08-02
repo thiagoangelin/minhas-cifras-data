@@ -1,0 +1,95 @@
+Jorge Ben Jor - O Rei Rosa Cruz 
+ 
+intro: Gm  Am7  Dm  
+ 
+Gm    Am7        Dm  
+Nena,_____ nena, pendagron  
+Gm    Am7        Dm  
+Nena,_____ nena, pendagron  
+Gm       Am7  Dm  
+Camelot,_____ camelot  
+Gm       Am7  Dm  
+Camelot,_____ camelot  
+ 
+          Gm       Am7          Dm  
+Mandou avisar, que vai chegar o rei  
+          Gm               Am7          Dm  
+Mandou avisar, que vai ter festa para o rei  
+            Gm            Am7  
+Que Deus conserve a sabedoria   
+               Dm  
+E a bondade do rei  
+         Gm  
+Que Deus salve o rei  
+     Am7          Dm  
+Vida longa para o rei  
+            Gm  
+Eu fui convidado  
+     Am7        Dm  
+Para nela tomar parte  
+           Gm       Am7     Dm  
+Agradeço à Deus por essa alegria  
+             Gm       Am7       Dm  
+Eu vou ao castelo com bons pensamentos  
+           Gm             Am7     Dm  
+Pois nesse grande curto espaço de tempo  
+       Gm  
+Eu poderei testemunhar   
+Am7           Dm  
+Belos acontecimentos  
+ 
+F              G  
+Vou me cuidar, e me guardar  
+   F     
+Pensar, refletir, examinar  
+G  
+Meu dia-a-dia  
+    F              G  
+Com objetividade, amor e confiança  
+       F  
+Pois o rei e a sua corte  
+G  
+Podem não gostar  
+   F  
+Se eu negligenciar  
+   G  
+Se eu não me aprimorar  
+F                    G  
+Infeliz daquele, que é demasiado fútil  
+F                    G  
+Infeliz daquele, que chega sempre por último  
+F           G  
+Não saberá, não saberá  
+Gm             Am7  
+Que no manto sagrado do rei  
+     Dm  
+Tem uma rosa e um cruz  
+Gm             Am7  
+Que no manto sagrado do rei  
+     Dm
+
+Tem uma rosa e uma cruz  
+  Gm          Am7      Dm  
+Ô nena, nena, nena, pendagron  
+             Gm    Am7  
+O rei é Rosa Cruz  
+             Dm  
+O rei é Rosa Cruz  
+             Gm    Am7  
+O rei é Rosa Cruz  
+             Dm  
+O rei é Rosa Cruz  
+    Gm       Am7      Dm  
+Camelot, camelot, camelot  
+  Gm          Am7      Dm  
+Ô nena, nena, nena, pendagron  
+             Gm    Am7  
+O rei é Rosa Cruz  
+             Dm  
+O rei é Rosa Cruz  
+             Gm    Am7  
+O rei é Rosa Cruz  
+             Dm  
+O rei é Rosa Cruz  
+    Gm       Am7      Dm  
+Camelot, camelot, camelot

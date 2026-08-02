@@ -1,0 +1,59 @@
+Oasis - Stop The Clocks 
+ 
+intro: A 
+ 
+verse: 
+  A                                 Em7 
+Stop the clocks and turn the world around 
+      Dadd9            A 
+Let your love lay me down 
+             Em7          Dadd9            A 
+And when the night is over there'll be no sound 
+ A                              Em7 
+Lock the box and leave it all behind 
+      Dadd9             A 
+On the backseat of my mind 
+             Em7          Dadd9          A 
+And when the night is over where will I rise? 
+ 
+Fmaj7                G                 A 
+What if I'm already dead, how would I know? 
+Fmaj7                G                 E             A 
+What if I'm already dead, how would I know... 
+ 
+A                              Em7 
+Lost inside my head behind the wall 
+         Dadd9          A 
+Do they hear me when I call? 
+              Em7         Dadd9          A 
+But when the night is over where will I fall? 
+              Em7         Dadd9          A 
+And when the fight is over where will I fall? 
+ 
+Fmaj7                G                 A 
+What if I'm already dead, how would I know? 
+Fmaj7                G                 E       
+What if I'm already dead, how would I know... 
+ 
+A E G Dadd9 Fmaj7 G  
+A E G Dadd9 Fmaj7 E 
+Fmaj7 E 
+Fmaj7 G A 
+ 
+  A                                 Em7 
+Stop the clocks and turn the world around 
+      Dadd9           A 
+Let your love lay me down 
+             Em7          Dadd9             A 
+And when the night is over there'll be no sound 
+             Em7          Dadd9            A 
+And now the night is over there'll be no sound 
+             Em7          Dadd9            A 
+And now my fight is over there'll be no sound... 
+ 
+outro: A E G Dadd9 Fmaj7 E (x2) 
+       Fmaj7 E  
+       Fmaj7 G (x3) 
+ 
+       A E G Dadd9 (x4) 
+       A

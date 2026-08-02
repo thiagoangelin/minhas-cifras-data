@@ -1,0 +1,63 @@
+Maroon 5 - Come Away To The Water 
+ 
+Intro: Em  C 
+ 
+Em 
+Come away little loss, come away to the water 
+C 
+To the ones that are waiting only for you 
+Em 
+Come away little loss, come away to the water 
+C 
+Away from the life that you always knew 
+ 
+Bm         Am        Em 
+We are calling to you 
+ 
+Em 
+Come away little light, come away to the darkness 
+C 
+In the shade of the night we?ll come looking for you 
+Em 
+Come away little light, come away to the darkness 
+C 
+To the ones appointed to see it through 
+Bm         Am         Em 
+We are calling for you 
+Bm         Am         Em 
+We are coming for you 
+ 
+Em 
+Come away little lamb, come away to the water 
+C 
+Give yourself so we might live anew 
+Em 
+Come away little lamb, come away to the slaughter 
+C 
+To the ones appointed to see this through 
+Bm          Am       Em 
+We are calling for you 
+Bm          Am       Em 
+We are coming for you 
+ 
+( C  Em  Am  E ) (2x) 
+ 
+Em 
+Come away little lamb, come away to the water 
+C 
+To the arms that are waiting only for you 
+Em 
+Come away little lamb come, away to the slaughter 
+C 
+To the one appointed to see this through 
+Bm         Am        Em 
+We are calling for you 
+Bm         Am        Em 
+We are coming for you 
+ 
+( Em  Am ) (2x) 
+ 
+Bm         Am        Em 
+We are coming for you 
+Bm         Am        Em 
+We are coming for you

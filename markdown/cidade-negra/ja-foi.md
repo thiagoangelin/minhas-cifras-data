@@ -1,0 +1,81 @@
+Cidade Negra - Ja Foi 
+ 
+(intro) (Cm7) 
+             (Cm7) 
+(vocalização) "Tchuru tchu tchu tchu tchu tchuru" 
+ 
+  ( Cm7  Bb/C ) 
+Te dei a minha vida 
+E uma parte do meu coração 
+Esquece as nossas dívidas 
+Bom caminho é liberdade 
+Bom caminho não é prisão 
+ 
+( Cm7  Bb/C ) 
+ 
+  ( Cm7  Bb/C ) 
+Te dei a minha vida 
+E uma parte do meu coração 
+Esquece as nossas dúvidas 
+Bom caminho é liberdade 
+Bom caminho não é prisão 
+ 
+ Ab                     Bb 
+Quando o sentimento voa 
+                      Cm7 
+Bate as asas algo de bom... algo de bom 
+      Ab 
+Sentimento alado, 
+    Bb              (Cm7   Bb/C) 
+Choro chorado... uouou 
+ (Cm7  Bb/C) 
+Pare de reclamar da vida 
+Não adianta se você fez o que fez 
+Não adianta achar a chave pra partida 
+Se você não está disposto a correr 
+ 
+   Ab      Bb 
+Riscou...uoou 
+                 (Cm7  Bb/C) 
+Apagou da minha vida...iéiéiéié 
+    Fm7                  Gm7 
+Em minha poesia já não tem  mais 
+              (Cm7  Bb/C) 
+Já não tem seu nome... seu nome 
+Ab     Bb          Cm7 
+É... acabou, já foi...já foi 
+        Ab 
+Eu não quero estar só 
+     Bb       Cm7 
+Mas já estou uoou 
+         Ab       Bb 
+Iéiéié é, é... acabou 
+    Cm7 
+Chegou ao fim... 
+           Ab 
+Se eu não quero acreditar 
+   Gm7           Cm7 
+A dor me faz despertar... despertar... despertar... 
+ 
+despertar... despertar... 
+ 
+(Cm7  Bb/C) 
+(vocalização) "Tchuru tchu tchu tchu tchu tchuru" 
+ 
+         Fm7       Gm7 
+Iéiéié é, é... acabou 
+    Cm7 
+Chegou ao fim... 
+           Ab
+
+Se eu não quero acreditar 
+   Gm7         Cm7 
+A dor me faz... 
+                 Fm7 
+Despertar... despertar... despertar... despertar... 
+Gm7 
+Despertar ... 
+ 
+(solo) Cm7 
+ 
+(vocalização) "Tchuru tchu tchu tchu tchu tchuru"

@@ -1,0 +1,95 @@
+Jorge Ben Jor - Dumingaz 
+ 
+Introdução: C#m7 % F#m7 % G#m7 % F#m7 % 
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....  Maravilha  
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....   Sensual 
+ 
+C#m7 %      C#m7 %   F#m7 %     G#m7 %   F#m7 % 
+ Dumingaz, Dumingaz, Dumingaz, Dumingaz 
+ 
+C#m7           % 
+ Eu vou rezar para esse 
+ 
+        F#m7          % 
+ Domingo não chover 
+  C#m7                  % 
+ Pois eu quero passear No parque novamente 
+ 
+ F#m7          % 
+ De mãos dadas com você 
+ 
+C#m7 %      C#m7 %   F#m7 %     G#m7 %   F#m7 
+ Dumingaz, Dumingaz, Dumingaz, Dumingaz 
+ 
+ %            G#m7    %    F#m7 
+ Mais um domingo sem você 
+ 
+%              G#m7    %    F#m7 
+ Já não agüento mais 
+ 
+  %            G#m7    %    F#m7 
+ Mais um domingo sem você 
+ 
+%              G#m7    % 
+ Isso já é demais 
+               F#m7    % 
+ Já não agüento mais 
+ 
+ C#m7 %      C#m7 %   F#m7 %     G#m7 %   F#m7 % 
+ Dumingaz, Dumingaz, Dumingaz, Dumingaz 
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....   
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....    
+ 
+C#m7                % 
+ Quero tomar chá de jasmim 
+G#m7                % 
+ Com você de novo 
+F#m7         %              G#m7     % 
+ Embaixo daquela árvore florida 
+C#m7                % 
+ Naquela xícara misteriosa 
+G#m7                % 
+ Que a vovó ganhou da baronesa 
+F#m7                % 
+ Aquela xícara miraculosa 
+G#m7                % 
+ De porcelana de sache 
+F#m7                % 
+ De porcelana de sache 
+C#m7 %      C#m7 %   F#m7 %     G#m7 %   F#m7 % 
+ Dumingaz, Dumingaz, Dumingaz, Dumingaz
+
+C#m7    %    F#m7 % 
+ lalalalala.....  Maravilha  
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....   Sensual 
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....  Esse som é para Dumingaz dormir  
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....   Nos meus braço, meus braços 
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....  Esse som é para Dumingaz, dormir nos meus braços 
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....  Dumingaz,Dumingaz  
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....  Maravilha lala lala 
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....  Vamos passear no parque Ohh 
+ 
+C#m7    %    F#m7 % 
+ lalalalala.....  Vamos passear no parque Ohh

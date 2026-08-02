@@ -1,0 +1,80 @@
+Chitaozinho E Xororo - Malaguea Salerosa 
+ 
+Tom: G# 
+ 
+[Intro]  C7 Fm D# G# C7 Fm 
+ 
+Fm 
+Que bonitos ojos tienes 
+                  A#m 
+Debajo de esas dos cejas 
+                  D# 
+Debajo de esas dos cejas 
+                     C7 
+Que bonitos ojos tienes. 
+ 
+Fm 
+Ellos me quieren mirar 
+                   A#m 
+Pero si tu no los dejas 
+                   D# 
+Pero si tu no los dejas 
+                 C7 
+Ni siquiera parpadear. 
+ 
+              Fm 
+Malaguena salerosa 
+                   D# 
+Besar tus labios quisiera 
+                   G# 
+Besar tus labios quisiera. 
+    C#        C7 
+Malaguena salerosa 
+                  Fm 
+Y decirte nina hermosa. 
+ 
+                            D# 
+Que eres lin........da y hechicera, 
+                    G# 
+Que eres linda y hechicera 
+     C#               C7   (2x) C7 Fm D# G# C# C7 
+Como el candor de una rosa. 
+ 
+Fm 
+Si por pobre me desprecias 
+              A#m 
+Yo te concedo razon 
+                D# 
+Yo te concedo razon 
+       C#           C7 
+Si por pobre me desprecias. 
+ 
+Fm 
+Yo no te ofrezco riquezas 
+                A#m 
+Te ofrezco mi corazon 
+                 D# 
+Te ofrezco mi corazon 
+   C#              C7 
+A cambio de mi pobreza. 
+ 
+              Fm 
+Malaguena salerosa 
+                   D# 
+Besar tus labios quisiera 
+                   G# 
+Besar tus labios quisiera. 
+    C#        C7 
+Malaguena salerosa 
+                  Fm
+
+Y decirte nina hermosa. 
+ 
+                            D# 
+Que eres lin........da y hechicera, 
+                    G# 
+Que eres linda y hechicera 
+        C#            C7 
+Como el candor de una rosa. 
+                       Fm 
+Como el candor de una rosa.

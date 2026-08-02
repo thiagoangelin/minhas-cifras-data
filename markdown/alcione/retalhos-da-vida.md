@@ -1,0 +1,63 @@
+Alcione - Retalhos Da Vida 
+ 
+   Am          Em         Am  Em  
+A ginga da porta-estandarte  
+    Am          Em         Am  Em  
+O  pingo de pingar pro santo  
+  F                       E  
+O homem que morre de enfarte  
+  E7                       Am  
+A reza que quebra o quebranto  
+  Dm                    Am  
+o grito de dor na garganta  
+    E7           Am  
+O herói na televisão  
+  Dm                  Am  
+A falta de fome na janta  
+  E7                   Am  A7  
+O gesto agressivo da mão  
+ 
+    Dm7       G7  
+São coisas do mundo  
+  C E7     Am  
+Retalhos da vida  
+    Dm7    E7          Am  A7  
+São coisas de qualquer lugar  
+    Dm7        G7  
+Mas se eu fico mudo  
+     C  E7  Am  
+Esse mundo imundo  
+    Dm7    E7          Am  
+É capaz de me tentar mudar  
+ 
+A espera da moça do mangue(?)  
+A mulher que faz o cochicho  
+O crime lá do bang-bang  
+No cine da boca do lixo  
+O velho mendigo na praça  
+A nêga que nunca negou  
+O triste palhaço sem graça  
+No circo que já desabou  
+ 
+São coisas do mundo  
+Retalhos da vida  
+São coisas de qualquer lugar  
+Mas se eu fico mudo  
+Esse mundo imundo  
+É capaz de me tentar mudar  
+ 
+O anúncio do novo cigarro  
+O trânsito louco varrido  
+A moça que corre de carro  
+E tenta sonhar colorido  
+O triste retrato da morte  
+Estampa o jornal o dia  
+Ao lado do riso da sorte  
+De quem ganhou na lotaria  
+ 
+São coisas do mundo  
+Retalhos da vida  
+São coisas de qualquer lugar  
+Mas se eu fico mudo  
+Esse mundo imundo  
+É capaz de me tentar mudar

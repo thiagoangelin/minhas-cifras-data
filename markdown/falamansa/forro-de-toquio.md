@@ -1,0 +1,68 @@
+Falamansa - Forro De Toquio 
+ 
+Introdução: Tocar uma vez o riff1 em sequência a intro. 
+ 
+Intro: (G D C G) 2x     
+ 
+          D                   G                | 
+Forró de Tóquio, toque, toque xote             | 
+                 D                         G   |  2x 
+Sanfoneiro toque xote no forró de Tóquio       |    
+ 
+          G                  D 
+ 
+Forró de Tóquio êta forró legal  
+                  C         D       G 
+Era o forró miojo lamen à oriental 
+        G             D                    C 
+O sanfoneiro éra Mishiú cansou de levar porrada  
+      D           G 
+Em luta de Kung fu 
+                  G                D 
+No lugar da Xiboquinha tinha o saquê 
+                        C 
+Dançando, o japa já gritava: 
+            D            G 
+-Isso é melhor que Karatê 
+ 
+          D 
+ 
+Forró de Tóquio, toque........ 
+ 
+Introdução... 
+ 
+        G               D 
+A mulherada toda apreensiva 
+               C             D           G     
+Tem gringo na festa e eu fiquei na defensiva 
+         G                  D 
+Esse forró não é pra estrangeiro  
+                     C            D         G 
+Então eu disse como pode se o forró é brasileiro 
+ 
+          D 
+ 
+Forró de Tóquio, toque...... 
+ 
+Introdução..... 
+ 
+       G               D 
+O samurai estava aperreado 
+                     C 
+Pois para entrar na dança, 
+        D               G 
+Ele deixou a espada de lado 
+        G                  D 
+E no final, a surpresa é geral 
+                   C     
+Dançava até o Tamagoshi  
+        D          G 
+Aquele bicho virtual 
+ 
+   D 
+Forró de Tóquio, toque...... 
+ 
+Introdução....... 
+ 
+Enviada por:  
+Fábio Ricardo A. Souza

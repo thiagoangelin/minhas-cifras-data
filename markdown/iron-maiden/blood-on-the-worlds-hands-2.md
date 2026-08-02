@@ -1,0 +1,72 @@
+Iron Maiden - Blood On The Worlds Hands 2 
+ 
+ 
+VERSE-1: 
+ C5  C5   C5  C5   C5 G5 G5 G5   C5  C5   C5  C5   C5  
+SOMETIMES IT MAKES ME WONDER  | SOMETIMES IT MAKES 
+ME  
+G5 G5 G5 
+QUESTION 
+SOMETIMES IT MAKES ME SADDENED| ALWAYS IT MAKES 
+ME ANGRY  
+BUT... 
+WHEN YOU CAN SEE IT HAPPENING | THE MADNESS THAT'S 
+ALL  
+AROUND YOU 
+NOBODY SEEMS TO WORRY         | THE WORLD SEEMS SO  
+POWERLESS TO... 
+ 
+CHORUS: 
+ACT !                               IT'S OUT OF 
+CONTROL                             BLOOD ON THE 
+WORLD'S HANDS                       EACH DAY A 
+NEW TOLL 
+ 
+VERSE-2: 
+ C5  C5   C5  C5   C5 G5 G5 G5   C5  C5   C5  C5   C5  
+ANOTHER ASB NATION            | THE SAME DAY A NEW CDA  
+G5 G5 G5 
+TION 
+BUT WHAT AD  THEY COE NG INTO | SECURITY OF A WORLD 
+THAT  
+BRING... 
+ONE DAY ANOTHER KILLING       | SOMEWHED  THED 'S 
+SOMEONE  
+STARVING 
+ANOTHER A SAVAGE RAPPING      | MEANWHILE THED 'S 
+SOMEONE  
+A UGHTING... 
+ 
+CHORUS. 
+ 
+Solo-riff (4x). 
+ 
+RIFF-3(2X) 
+ |GUITAR-I                        | 
+ 
+RIFF-4: 
+Guitar I: 
+           Blood on the world's hands       Blood on the  
+world's hands 
+ 
+             |Let ring|                       |Let ring| 
+Guitar II: 
+ 
+RIFF-4. 
+ 
+RIFF-1. 
+ 
+VERSE-3: 
+ C5  C5   C5  C5   C5 G5 G5 G5   C5  C5   C5  C5   C5  
+BRUTALITY AND AGGD SB ON           | TOMORROW ANOTHER  
+G5 G5 G5 
+LESSON 
+EXPECTING ANOTHER AIR RAID         | PRAYING FOR A  
+CEASEFID ... 
+THEY SAY THINGS AD  GETTING BETTER | NO NEED TO BE 
+COMPACE 
+ NT 
+THED 'S CHAOS ACROSS THE BORDER    | AND ONE DAY IT
+
+COULD  
+BE HAPPENING...

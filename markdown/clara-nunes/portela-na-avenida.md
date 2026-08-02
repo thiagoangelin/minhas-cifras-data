@@ -1,0 +1,42 @@
+Clara Nunes - Portela Na Avenida 
+ 
+   Am                          G 
+Portela eu nunca vi coisa mais bela 
+                       F                         E7 
+Quando ela pisa a passarela e vai entrando na avenida 
+  Am                      G 
+Parece a maravilha de aquarela que surgiu 
+                     F 
+O manto azul da padroeira do brasil 
+                   E7 
+Nossa senhora aparecida 
+    Dm       Bm5-/7 Am                       Bm5-/7 
+Que vai se     arrastando e o povo na rua cantando 
+E7                       Am 
+É feito uma reza, um ritual 
+    A7           Dm          Am                B7   E7   Am    E7 
+É a procissão do samba abençoando a festa do divino carnaval 
+   Am                                  G 
+Portela é a deusa do samba o passado revela 
+                               F 
+E tem a velha guarda como sentinela 
+                                         E7 
+E é por isso que eu ouço essa voz que me chama 
+   Am                                    G 
+Portela sobre a tua bandeira este divino manto 
+                              F        E7        Am 
+Tua águia altaneira, espírito santo no templo do samba 
+G7                  C 
+As pastoras e os pastores 
+G7                C 
+Vem chegando da cidade da favela 
+G7                    C 
+Para defender as tuas cores 
+       B7                      E7 
+Como fiéis na santa missa da capela 
+A7      Dm             E7           Am 
+Salve o samba, salve a santa, salve ela 
+A7      Dm           E7           Am 
+Salve o manto azul e branco da portela 
+                Dm            G7          C      E7 
+Desfilando triunfal sobre o altar do carnaval

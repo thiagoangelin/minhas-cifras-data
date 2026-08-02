@@ -1,0 +1,60 @@
+Gilberto Gil - Um Sonho 
+ 
+      E       A       E      A 
+Eu tive um sonho Que eu estava certo dia 
+   E      A    E       A   A7 
+Num congresso mundial Discutindo economia 
+    D    A            D 
+Argumentava Em favor de mais trabalho 
+     A       D        A       D 
+Mais emprego, mais esforço Mais controle, mais-valia 
+      E                  A 
+Falei de pólos Industriais, de energia 
+   C#m       F#m          B7     E 
+Demonstrei de mil maneiras Como que um país crescia 
+   A      E       A 
+E me bati Pela pujança econômica 
+ E     A      E    A   A7 
+Baseada na tônica Da tecnologia 
+    D     A       D 
+Apresentei Estatísticas e gráficos 
+   A      D     A       D 
+Demonstrando os maléficos Efeitos da teoria 
+      E               A 
+Principalmente A do lazer, do descanso 
+   C#m       F#m     B7      E 
+Da ampliação do espaço Cultural da poesia 
+      A      E         A 
+Disse por fim Para todos os presentes 
+    E         A        E       A   A7 
+Que um país só vai pra frente Se trabalhar todo dia 
+    D         A        D 
+Estava certo De que tudo o que eu dizia 
+   A       D         A       D 
+Representava a verdade Pra todo mundo que ouvia 
+        E               A 
+Foi quando um velho Levantou-se da cadeira 
+  C#m     F#m       B7      E 
+E saiu assoviando  Uma triste melodia 
+    A      E     A 
+Que parecia Um prelúdio bachiano 
+  E       A    E       A    A7 
+Um frevo pernambucano Um choro do Pixinguinha 
+     D     A       D 
+E no salão Todas as bocas sorriram 
+   A        D        A      D 
+Todos os olhos me olharam Todos os homens saíram 
+    E        A   C#m    F#m   B7    E 
+Um por um    Um por um      Um por um   Um por um 
+    A       E      A 
+Fiquei ali Naquele salão vazio 
+   E        A      E       A   A7 
+De repente senti frio Reparei: estava nu 
+     D      A       D 
+Me despertei Assustado e ainda tonto 
+   A           D        A       D 
+Me levantei e fui de pronto Pra calçada ver o céu azul 
+    E               A 
+Os estudantes E operários que passavam 
+   C#m        F#m         B7      E 
+Davam risada e gritavam: "Viva o índio do Xingu!

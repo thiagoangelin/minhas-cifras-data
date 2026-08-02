@@ -1,0 +1,29 @@
+John Lennon - Its So Hard 
+ 
+A 
+You gotta live, you gotta love, you gotta be somebody, you 
+ gotta shove 
+D                                          B7        
+But its so hard, its very hard, sometimes I feel like  
+       E7                 A 
+goin' down 
+ 
+You gotta eat, you gotta drink, you got to feel something, 
+ you gotta worry 
+But its so hard, its very hard, sometimes I feel like  
+goin' down 
+ 
+D 
+But when it's good, it oh-so good, and when I hold you in  
+my arms baby 
+B7               E7                 A 
+Sometimes I feel like goin' down 
+ 
+INSTRUMENTAL (verse chords) 
+ 
+You gotta run, you gotta hide, you gotta keep your woman  
+satasfied 
+But its so hard, its very hard, sometimes I feel like  
+goin' down 
+ 
+END: B7    E7 A

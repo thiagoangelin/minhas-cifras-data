@@ -1,0 +1,42 @@
+Seu Jorge - Meu Parceiro 
+ 
+ Intro 4x:  A  G  
+ 
+A               G 
+Esse aí é meu parceiro 
+                                  A 
+Fecha comigo e nunca deixa a peteca cair 
+                G 
+Esse aí é meu parceiro 
+                                  A 
+Fecha comigo e nunca deixa a peteca cair 
+ 
+                                         G 
+Se eu precisar de uma mão ou de uma força qualquer 
+                                    A 
+Ele tá junto sempre firme não dar de mané 
+                                       G 
+Ele que agita o carvão, o prato, garfo,a colher, 
+                                    E 
+O fogo a carne ainda chega cheio de mulher, 
+E7 
+Mulher...mulher...mulher 
+ 
+É fiel é cem por cento 
+É guerreiro é bom de pilha 
+É irmão pedra noventa cifr as 
+Ele é nosso ele é família 
+ 
+É braço é sangue 
+É choque é brother 
+Malandro, amigo, cumpadre, maneiro 
+ 
+Refrão: 
+                     G 
+Esse aí é meu parceiro 
+                                      A 
+Fecha comigo e nunca deixa a peteca cair 
+                     G 
+Esse aí é meu parceiro 
+                                      A 
+Fecha comigo e nunca deixa a peteca cair

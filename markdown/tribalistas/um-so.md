@@ -1,0 +1,74 @@
+Tribalistas - Um So 
+ 
+ A#m 
+Somos comunistas 
+E capitalistas 
+ D# 
+Somos anarquistas 
+Somos o patrão 
+ A#m 
+Somos a justiça 
+Somos o ladrão D# 
+Somos da quadrilha 
+Viva São João 
+ 
+ D#m 
+Somos todos eles 
+      G# 
+Da ralé, da realeza 
+      A#m 
+Somos um só 
+Um só 
+D#m 
+Um, dois, três 
+       G# 
+Somos muitos 
+Quando juntos 
+      A#m 
+Somos um só 
+Um só 
+ 
+ A#m 
+Somos democratas 
+Somos os primatas 
+ D# 
+Somos vira-latas 
+Temos pedigree 
+ A#m 
+Somos da sucata 
+E você aí 
+ D# 
+Somos os piratas 
+Guarani-Tupis 
+ 
+ D#m 
+Somos todos eles 
+      G# 
+Da ralé, da realeza 
+      A#m 
+Somos um só 
+Um só 
+ 
+D#m 
+Um, dois, três 
+       G# 
+Quando juntos 
+Somos muitos 
+      A#m 
+Somos um só 
+Um só 
+ 
+( A#m  D# ) 
+ 
+   A#m 
+Maré me fere 
+Maré me fere 
+   D# 
+Maré me banha 
+ 
+   A#m
+
+Maré me leve 
+Maré me leve 
+   D# 
+Maré me ganha

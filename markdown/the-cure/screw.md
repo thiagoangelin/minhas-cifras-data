@@ -1,0 +1,39 @@
+The Cure - Screw 
+ 
+The guitar riff is quite simple 
+and it oscillates between strings (if there is such a  
+thing). 
+The basic riff is: 
+ 
+There is also a part in the song where the riff changes,  
+it goes unto a 
+different string like this: 
+ 
+There is also another part of the song where the riff goes 
+ on the D string, 
+which I will not get into at this time as you may see the  
+point of this. 
+And that is basically it. 
+ 
+When you screw up your eyes 
+When you screw up your face 
+When you throw out your arms 
+And keep changing your shape 
+Taste the taste in your mouth 
+Taste the taste on your tongue 
+On the film on your eyes of what I've become 
+ 
+What do I do when you screw up your eyes? 
+What do I do when you screw up your face? 
+What do I do 
+When you throw out your arms 
+Fall on the floor 
+And keep changing your shape? 
+Jump right into your mouth? 
+Jump around on your tongue? 
+ 
+And the film on your eyes of the way I've become 
+Makes me sick at the way that I try 
+Anything in the world 
+To impress that I'm doing this 
+Only for you

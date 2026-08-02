@@ -1,0 +1,45 @@
+Supercombo - Menino 
+ 
+ C      G                               C   G 
+Menino foi pro mato brincar com os seus irmãos            
+Furou o pé, ralou a mão 
+ C      G                        C     G 
+Menino da cidade não sabe andar descalço 
+Não sabe respirar 
+ 
+Em  G   Am  Em  C   G   A11  Em 
+Ah, ah, ah, ah, ah, ah, ah,  aaah 
+ 
+ C       G 
+De onde menino vem os carros 
+ C        G 
+Levam as pessoas pra passear 
+   C     G 
+O sol é cinza, o mar esgoto 
+   C     G 
+O sol é cinza, o mar esgoto 
+ 
+Em  G   Am  Em  C   G   A11  Em 
+Ah, ah, ah, ah, ah, ah, ah,  aaah 
+ 
+ Em  G  Am  Em  C  G  A11  Em 
+Menino     Menino 
+ 
+ C         G 
+Sai desse corpo que não te penteia 
+ C         G 
+Sai desse corpo que não te penteia 
+ 
+ Em  G  Am  Em   C   G  A11  Em 
+Sai desse  corpo   que não  te penteia 
+ 
+( Em  C ) 
+ 
+ Am7 
+Sai desse corpo que não te penteia 
+ C 
+Sai desse corpo  
+ Em        G 
+Sai desse corpo que não te penteia 
+ Am7       Em 
+Sai desse corpo

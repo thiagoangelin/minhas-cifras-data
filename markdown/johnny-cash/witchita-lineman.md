@@ -1,0 +1,46 @@
+Johnny Cash - Witchita Lineman 
+ 
+INTRO: Bb C Bb C  
+ 
+                       Bb(add9)  
+I am a lineman for the county,  
+F/A                      Gm  
+    And I drive the main road,  
+Dm7              Am7      G          D       
+Searchin' in the sun for another overload.  
+                          C  
+I hear you singing in the wires,  
+                           G     Gm  
+I can hear you through the whine,  
+                 D       A7sus                 Bb   C Bb C   
+And the Witchita Lineman       is still on the line.  
+ 
+                      Bb(add9)  
+I know I need a small vacation,  
+F/A                        Gm  
+    But it don't look like rain,  
+    Dm7              Am7  
+And if it snows that stretch down south  
+      G              D  
+Won't ever stand the strain.  
+                              C  
+And I need you more than want you,  
+                       G    Gm  
+And I want you for all time.  
+                         A7sus                 Bb   C Bb C  
+And the Witchita Lineman       is still on the line.  
+ 
+SOLO: As soon as C is being hit the second time the solo starts.  
+ 
+then G is strummed and hit D let it ring:  
+(Note that the chords being played over the solo go as:  
+Bb Am7 Gm Dm C G D something like that)  
+ 
+                                 C  
+And I need you more that want you  
+                       G   Gm7  
+And I want you for all time  
+                         A7sus                 Bb  C Bb C  
+And the Witchita Lineman       is still on the line  
+ 
+Bb C Bb C    Bb

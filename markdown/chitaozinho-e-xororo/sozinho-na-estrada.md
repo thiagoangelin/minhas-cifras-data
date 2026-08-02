@@ -1,0 +1,38 @@
+Chitaozinho E Xororo - Sozinho Na Estrada 
+ 
+Intro: E  B7  E B7  E  B7  E 
+ 
+E 
+Em meu carro vou em disparada 
+                                 B7 
+Na longa estrada de um lindo passado 
+ 
+Imprimindo mais velocidade 
+                             A E 
+Eu sinto saudade de um bem amado 
+          A                     E 
+Quantas vezes passei nesta estrada 
+              B7                   E 
+Com ela sentada no banco ao meu lado. 
+ 
+     F#7                           B 
+Agora vejo o banco do carro vazio 
+                A              E  E7 
+Nas noites de frio só ouço o motor 
+      A                       B7        E 
+Meu Deus, como é triste a calada da noite 
+                B7                   E 
+Que falta eu sinto do meu grande amor. 
+ 
+ E 
+Nesta longa estrada da vida 
+                             B7 
+Estrada comprida de tanta ilusão 
+ 
+Encontrei um alguém de repente 
+                         A    E 
+E dei de presente o meu coração. 
+         A                E 
+Hoje volto no mesmo caminho 
+                 B7              E 
+Curtindo sozinho a desilusão.

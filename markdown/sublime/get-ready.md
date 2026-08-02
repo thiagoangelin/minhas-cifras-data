@@ -1,0 +1,49 @@
+Sublime - Get Ready 
+ 
+ 
+ 
+(verse 1) 
+A 
+Some folks say smoking herb is a crime, 
+A 
+if they catch you smokin they're bound to drop the dime 
+A 
+Insufferable informa crazy fools wait: 
+A 
+with their fingers crossed for you to break the rules 
+E 
+And in the evening when we try to jam, 
+E 
+we like the music loud in this here band 
+E 
+We let the bass line drop as loud as we can stand 
+E 
+Somebody always gotta turn informa for the man 
+D 
+I want to know right now is there one of you in the crowd 
+D 
+are you gonna call 911 
+C#m                      C 
+and spoil all of my fun 
+Bm                  A 
+You crazy fool 
+ 
+(verse 2) 
+A 
+i'm in the mood 
+A 
+Get ready come on now,  (repeat) 
+E 
+load up the bong, crank up the song, 
+E 
+let the informa call 911 (repeat) 
+D 
+And when security police force want to arrive 
+D 
+Don't try to run, don't try to hide 
+D 
+just pull out the .9 pop in the clip 
+C#m             C           Bm     A 
+and let one slip into these crazy fools 
+ 
+(repeat a few times with slight variations)

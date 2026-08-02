@@ -1,0 +1,61 @@
+Ultraje A Rigor - Zoraide 
+ 
+(intro)  A7 F# G G# 
+         A7 B C C# D7 
+         A7 E7 D7 A7 
+ 
+A7 
+Já não sei se te quero 
+Acho que não quero 
+ 
+Me cansei de namorar  
+ 
+(F# G G#) 
+ 
+A7 
+Essa história de uma só 
+Zoraide tenha dó 
+Eu quero mais é variar 
+ 
+( B C C# ) 
+ 
+D7 
+Fica com esse NHÉM-NHÉM-NHÉM 
+A7 
+Na minha orelha 
+Me chateia 
+E7 
+Eu já não agüento mais 
+D7 
+Quero fazer o que me der na telha 
+A7 
+Zoraide , vê se não me pentelha 
+ 
+A7 
+Para com essa história chata 
+Que coisa mais chata 
+Eu não quero me casar 
+ 
+(F# G G#) 
+ 
+A7 
+Só porque já foi legal 
+E etc. e tal 
+Não quer dizer que eu vou encarar 
+ 
+( B C C# ) 
+ 
+D7 
+Fica juntando enxoval 
+Pede um fogão de natal 
+Diz que eu me visto mal 
+A7 
+Que eu sou um cara chulé 
+Que mulher !! 
+E7 
+Eu já não agüento mais 
+D7 
+Quero fazer aquilo 
+Que eu quiser 
+A7 
+Zoraide , larga do meu pé .

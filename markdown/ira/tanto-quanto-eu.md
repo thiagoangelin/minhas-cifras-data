@@ -1,0 +1,66 @@
+Ira - Tanto Quanto Eu 
+ 
+ 
+  G 
+Nos dias da semana 
+   A 
+Nos anos que virão 
+   D 
+Vão correr notícias de abalar o coração 
+   G 
+Tudo é tão calmo 
+   A 
+Um dia de verão 
+   D 
+Mas foi infernal tamanha informação 
+   Bm                 Cm 
+Eu sei do que você é capaz 
+  Cm  Bm         E   
+Tanto quanto eu rapaz 
+ 
+    G 
+Nos dias da semana... 
+    A 
+Nos anos que virão 
+    D 
+Vão correr notícias de abalar o coração 
+    G 
+Tudo é tão calmo 
+    A 
+Um dia de verão 
+    D 
+Mas foi infernal tamanha informação 
+    Bm              Cm 
+Eu sei do que você é capaz 
+  Cm   Bm           E 
+Tanto quanto eu rapaz 
+ 
+          G                                  E         
+Correu o bairro afora, não seguiu nenhum conselho 
+     G                        E 
+Amigos lhe acalmavam, porém era tudo em vão 
+     G 
+Deu tudo por perdido 
+     E 
+Mas a honra fala alto 
+       A 
+Correu bairro afora 
+         D 
+Não deu ouvidos a razão 
+ G                   A                 D 
+Desejo de vingança, ira irracional 
+ 
+    G 
+Nos dias da semana 
+    A 
+Nos anos que virão 
+     D 
+Vão correr notícias de abalar o coração 
+     Bm              Cm 
+Eu sei do que você é capaz 
+   Cm  Bm         E 
+Tanto quanto eu rapaz 
+   Bm   E           D                
+Tanto quanto eu rapaz 
+ 
+D, E, Bm, E, D, E, Bm,............E,...E

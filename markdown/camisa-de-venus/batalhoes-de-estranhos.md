@@ -1,0 +1,32 @@
+Camisa De Venus - Batalhoes De Estranhos 
+ 
+Intro: Bb  B 
+ 
+( Bb  B ) 
+Nua e crua para as pessoas da rua 
+                   G           Ab  A  Bb 
+Uma idéia sublime para a prevenção do crime 
+( Bb  B ) 
+Observe e informe aos homens de uniforme 
+                                G          Ab  A Bb 
+Eles chegam por via aérea, sentinelas de nossa miséria 
+ 
+          A     G         C              Bb 
+Mas eles vêm e vão com a força de quem arrasa 
+      A     G            C     B       Bb 
+Eles vêm e vão enquanto nós ficamos em casa 
+ 
+( Bb  B ) 
+Patrulham com intensidade os quatros cantos da cidade 
+                            G          Ab A Bb 
+Proíbem qualquer mudança, zelando pela segurança 
+( Bb  B ) 
+Não dê crédito aos rumores de que há ódio, temor e dores 
+                            G          Ab    A Bb 
+Só empurre a porta e abra, entre nessa dança macabra 
+ 
+(Refrão) 
+ 
+( Bb  B ) 
+ 
+(Refrão)

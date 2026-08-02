@@ -1,0 +1,32 @@
+Erasmo Carlos - 1990 Projeto Salva Terra 
+ 
+  A                       F 
+  Em 1990, a crise era demais 
+G                                             A 
+  As pessoas enlatadas não lembravam mais de paz 
+                                               F 
+  Às vezes Deus era lembrado pela falta que fazia 
+G                                                       A 
+  Mortas coisas de um passado de cristão que ainda existia 
+A                                   F 
+  As 53 potências resolveram se juntar 
+G                                            A 
+  E discutirem seus valores com cabeças no lugar 
+                                             F 
+  Foi então esclarecida a imensa falta de união 
+G                                              A 
+  Tanta falta de amizade que jogou o amor no chão 
+ 
+                             F 
+  Foi quando todos de encontraram 
+                      G 
+  Com Deus na voz do povo 
+                  A 
+  Pra começar de novo      (Repete 1 vez, desde a introdução) 
+ 
+                  F 
+  Pra começar de novo 
+                  G 
+  Pra começar de novo 
+      A 
+  De novo

@@ -1,0 +1,105 @@
+The Doors - When The Musics Over 2 
+ 
+                   Em     A     Em A Em A Em7 A 
+When the musics over, 
+                   Em      A     Em  A Em7 A Em A 
+when the musics over here. 
+                   Em      A 
+When the musics over, 
+   D        D#m   Em 
+turn out the   lights, 
+   D        D#m   Em 
+turn out the lights, 
+   D        D#m   Em Bm7    Em    A 
+turn out the lights,     Yeah, Yeah. 
+ 
+Em A...x 4 
+ 
+                   Em     A     Em A Em A Em7 A 
+When the musics over, 
+                   Em      A     Em  A Em7 A Em A 
+when the musics over here. 
+                   Em      A 
+When the musics over, 
+   D        D#m   Em 
+turn out the   lights, 
+   D        D#m   Em 
+turn out the lights, 
+   D        D#m   Em Bm7    Em    A 
+turn out the lights,     Yeah, Yeah. 
+ 
+                A7                   E7 
+For the music is your special friend. 
+A7                        E7 
+Dance on fire as it intends. 
+D 
+Music is your only friend, 
+     Em          D 
+until the end, 
+     Em          D 
+until the end, 
+        D# Em 
+until the     end. 
+ 
+Em                       A9                Em        A9  
+Cancel my subscription to the resurrection, 
+   Em D/A Em A9 
+ 
+Em                A9                Em               A9  
+send my credentials to the house of detention, 
+        Em D/A Em A9 
+ 
+                  Em        A7    Em7 A7 Em A7 Em A7 Em A9 
+I got some friends in - side. 
+           Em             D/A            Em  A9 
+The face in the mirror won't stop. 
+          Em          D/A                 Em  A9 
+The girl in the window won't drop. 
+     Em              D/A  Em           D 
+A feast of friends alive she cried, 
+     Em            D/A  Em   Am Em7 
+waiting for me         outside. 
+ 
+Em7, D/A, Em, A, D/A, Em, Em7, A7, Em, A. 
+ 
+Em A9 
+Before I sink into the big sleep 
+  Em             A9 Em A9 
+I want to hear, 
+  Em             A9 Em A9
+
+I want to hear 
+      Em       A9       Em   A9 
+the scream of the butterfly. 
+ 
+Em, A9...x 4 
+ 
+     Em              A9   Em        A9 
+Come back, baby,   back into my arms. 
+ 
+Chant (spoken over Em, A9) 
+ 
+We're getting tired of waiting around. 
+Waiting around 
+with our heads 
+to the ground. 
+I hear a very gentle sound. 
+What have they done to the earth? 
+What have they done to our fair sister? 
+Ravaged and plundered 
+and ripped her and bit her. 
+Stuck here with knives 
+in the side of the dawn 
+and tied her with fences 
+and dragged her down. 
+ 
+I hear a very gentle sound. 
+With your ear down to the ground... 
+We want the world and we want it 
+now! 
+ 
+Persian night! 
+See the light! 
+Save us! 
+Jesus! 
+Save us!

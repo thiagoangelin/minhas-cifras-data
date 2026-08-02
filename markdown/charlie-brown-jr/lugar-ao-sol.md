@@ -1,0 +1,150 @@
+Charlie Brown Jr - Lugar Ao Sol 
+ 
+[Intro] F#m  E5  D7M 
+        F#m  E5  D7M 
+ 
+[Primeira Parte] 
+ 
+F#m 
+    Que bom viver 
+        E5 
+Como é bom sonhar 
+           D7M 
+E o que ficou pra trás passou  
+                  F#m 
+E eu não me importei 
+            E5 
+Foi até melhor 
+             D7M 
+Tive que pensar  
+ 
+Em algo novo que fizesse sentido 
+       F#m 
+Ainda vejo o mundo  
+             E5 
+Com os olhos    de criança 
+         D7M 
+Que só quer brincar  
+ 
+E não tanta responsa 
+       F#m 
+Mas a vida cobra sério  
+       E5                 D7M 
+E realmente não dá pra fugir 
+ 
+[Refrão] 
+ 
+ A7M             A9  
+Livre pra poder sorrir, sim 
+ F#m9               D5 
+Livre pra poder buscar  
+         A7M       A9  ( D5  Dm7  F5/E  F5 ) 
+O meu lugar ao sol 
+ 
+ A7M             A9 
+Livre pra poder sorrir, sim 
+ F#m9               D5 
+Livre pra poder buscar  
+         A7M       A9  ( D5  Dm7  F5/E  F5 )        
+O meu lugar ao sol 
+ 
+[Segunda Parte] 
+ 
+F#m                      E5 
+    Um dia eu espero te reencontrar  
+      D7M 
+Numa bem melhor 
+ 
+Cada um tem seu caminho 
+    F#m            E5 
+Eu sei foi até melhor 
+           D7M 
+Irmãos do mesmo Cristo 
+ 
+Eu quero e não desisto 
+      F#m 
+Caro Pai 
+                     E5 
+Como é bom ter por que se orgulhar 
+        D7M
+
+A vida pode passar 
+ 
+Não estou sozinho 
+    F#m 
+Eu sei se eu tiver fé  
+           E5         D7M  
+Eu volto até a sonhar 
+ 
+[Refrão] 
+ 
+ A7M             A9  
+Livre pra poder sorrir, sim 
+ F#m9               D5 
+Livre pra poder buscar  
+         A7M       A9  ( D5  Dm7  F5/E  F5 ) 
+O meu lugar ao sol 
+ 
+ A7M             A9 
+Livre pra poder sorrir, sim 
+ F#m9               D5 
+Livre pra poder buscar  
+         A7M       A9  ( D5  Dm7  F5/E  F5 )        
+O meu lugar ao sol 
+ 
+[Terceira Parte] 
+ 
+    F#m     E5 
+O amor é assim 
+     D7M 
+É a paz de Deus em sua casa 
+    F#m     E5 
+O amor é assim  
+     D7M 
+É a paz de Deus que nunca acaba 
+    F#m     E5 
+O amor é assim 
+     D7M 
+É a paz de Deus em sua casa 
+    F#m     E5 
+O amor é assim 
+     D7M 
+É a paz de Deus que nunca acaba 
+ 
+[Ponte] B5  A5  B5  D5 
+        B5  A5  B5  D5 
+        B5  A5  B5  A5  B5  D5 
+        F#m  F#5  F5  E5   
+ 
+[Tab - Ponte] 
+ 
+(Guitarra Base) 
+ 
+(Guitarra Solo) 
+ 
+[Solo] F#m  E5  D7M 
+       F#m  E5  D7M 
+ 
+[Tab - Solo] 
+ 
+(Guitarra Solo) 
+ 
+[Final] 
+ 
+        F#m 
+Nossas vidas, nossos sonhos  
+      E5          D7M 
+Têm o    mesmo valor 
+        F#m 
+Nossas vidas, nossos sonhos  
+      E5
+
+Têm o    mesmo valor 
+    D7M                           F#m 
+Eu vou com você pra onde você for 
+                    E5 
+Eu descobri que é azul  
+            D7M                 F#m 
+A cor da parede da casa de Deus 
+               E5                    D7M 
+E não há mais ninguém como você e eu

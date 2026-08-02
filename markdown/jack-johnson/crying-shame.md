@@ -1,0 +1,115 @@
+Jack Johnson - Crying Shame 
+ 
+Intro:  F#m      G#m 
+ 
+                  F#m 
+Its such a tired game 
+             G#m 
+Will it ever stop 
+                  F#m 
+How will this all play out 
+                  G#m 
+Upside out of my mouth 
+ 
+                  G#m 
+By now we should know 
+                                         G#m 
+How to communicate instead of coming to blows 
+            C#m 
+We're on a roll 
+B                              C#m 
+And there ain't no stopping us now 
+B                       C#m 
+We're burning under control 
+B 
+Isn't it strange how 
+ 
+   C#m     B                       G#m 
+We're all burning under the same sun 
+                                 G#m 
+By now we say its a war for peace 
+                    G#m 
+Its the same old game 
+                          C#m 
+But do we really want to play? 
+     B                           C#m 
+We could close our eyes its still there 
+     B                      C#m 
+We could say its us against them 
+     B                 C#m 
+We can try but nobody wins 
+     B                       F#m 
+Gravity has got a hold on us all 
+                 G#m 
+We try to put it out 
+                   F#m 
+But its a growing flame 
+               G#m 
+Using fear as fuel 
+                  F#m 
+Burning down our name 
+                      G#m 
+And it wont take too long 
+                       F#m 
+Cause words are burning same 
+                       G#m 
+And who we gonna blame now? 
+ 
+                    C#m     B       A    G#m 
+And oh, Its such a crying crying crying shame 
+            C#m     B      A     G#m 
+Its such a crying crying crying shame 
+            C#m     B      A      G#m      F#m 
+Its such a crying crying crying shame, shame, shame 
+ 
+SOLO:   C#m     B 
+ 
+G#m 
+By now 
+                 G#m
+
+It's beggining to show 
+                                                C#m 
+A number of people are numbers who aint coming home 
+       B                      C#m 
+I can close my eyes its still there 
+  B                C#m 
+Close my mind be alone 
+  B                     C#m 
+I can close my heart and not care 
+      B                          G#m 
+But gravity has got a hold on us all 
+                            G#m 
+It's a terrific price to pay 
+                              C#m 
+But in the true sense of the word 
+        B                    C#m 
+Are we using what we've learned? 
+        B                 C#m 
+In the true sense of the word 
+       B                C#m 
+Are we losing what we were? 
+       B           F#m 
+Its such a tired game 
+              G#m 
+Will it ever stop? 
+                 F#m 
+Is not for me to say 
+                  G#m 
+And this in our blood? 
+                   F#m 
+Or is it just our fate? 
+                         G#m 
+And how will this all play out 
+                F#m 
+Upside out of my mouth 
+                   G#m 
+And who we gonna blame? 
+ 
+On and on 
+            C#m     B      A     G#m 
+Its such a crying crying crying shame 
+             C#m    B      A     G#m 
+Its such a crying crying crying shame 
+             C#m    B      A     G#m      F#m      C#m 
+Its such a crying crying crying shame shame shame

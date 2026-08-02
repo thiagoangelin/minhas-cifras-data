@@ -1,0 +1,66 @@
+Chitaozinho E Xororo - Vida Pelo Avesso 
+ 
+Introdução: Bb  F  G   C - Bb - G - F 
+ 
+F 
+Deixe tudo como está 
+                      D7    Gm C Gm C 
+Faz de conta que não vai, embora 
+                       Gm 
+De nós dois quem vai chorar 
+                   C7      F     F7 
+Ninguém vai poder dizer, agora 
+ 
+                Bb 
+Amanhã é outro dia 
+                 Bbm       F            D7 
+E quem tem esta mania de amar, igual a mim 
+Gm             C7 
+Por maior que seja a queda 
+Gm                    C7 
+No amor jamais se entrega 
+          F          F7 
+Quando chega ao fim 
+ 
+(Refrão): 
+Bb 
+Não vou dizer 
+                              F 
+Que a tua ausência não vai machucar 
+                                     C7 
+Que não vou morrer um pouco ao te perder 
+                                    F   F7 
+Que esse teu adeus não vai me derrubar 
+ 
+         Bb 
+Prefiro assim 
+                             F 
+Do que ter você aqui nos braços meus 
+                             G 
+Sonhando com alguém que não sou eu 
+   C7 
+Amando que não sou 
+    C     Bb A      G    F 
+Querendo outro em meu lugar 
+ 
+(Introdução) 
+ 
+F 
+Deixe tudo como está 
+               D7         Gm C Gm C 
+Não precisa arrumar, a casa 
+                Gm 
+Vá sem pressa de voltar 
+                 C7                F   F7 
+Tem espaço pra soltar, as suas asas 
+ 
+                     Bb 
+Não lamente a nossa vida 
+                   Bbm           F          D7 
+Se não foi tão colorida como a gente imaginou 
+Gm                   C 
+Foi tão linda no começo 
+Gm                    C 
+Mas depois virou do avesso 
+              F  F7 
+E tudo terminou.

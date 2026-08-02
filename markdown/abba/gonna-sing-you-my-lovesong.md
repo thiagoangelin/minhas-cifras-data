@@ -1,0 +1,134 @@
+Abba - Gonna Sing You My Lovesong 
+ 
+ 
+Written by: Benny Andersson/Björn Ulvaeus 
+From: "Waterloo" (1974) 
+ 
+Tabbed by: maguri 
+Tuning: Standard 
+ 
+[Intro] 
+  A     [ Dadd9 ]  A     [ D  ]     A     [ Dadd9 ]  A       Bm7/E 
+  1 + 2 + 3 + 4 +  1 + 2 + 3 + 4 +  1 + 2 + 3 + 4 +  1 + 2 
+ + 3 + 4 + 
+ 
+CODA 
+  A     [ Dadd9 ]  A     [ D  ]     A     [ Dadd9 ]  A       Bm7 
+  1 + 2 + 3 + 4 +  1 + 2 + 3 + 4 +  1 + 2 + 3 + 4 +  1 + 2 
+ + 3 + 4 + 
+ 
+CHORDS 
+        E-A-D-G-B-e 
+Bm7/E   0-2-4-2-3-0 
+D/E     0-2-2-2-3-0 
+ 
+[Intro] 
+| A [ Dadd9 ] | A [ D ] | 
+| A [ Dadd9 ] | A Bm7/E | 
+ 
+[Verse] 
+A    Dmaj7          E      A 
+ You say she's been mad at you 
+D         A   A/C#      Bm7       D/E       [ A ] 
+ Then you say you'll be patient     Mmh, mmh, mh 
+A        Dmaj7        E         A 
+ Still I see that she makes you blue 
+D             A/C#          B7 
+ Come on, I'd give you consolation 
+ 
+[Chorus] 
+      D/E         A 
+Gonna sing you my lovesong 
+      A              A/C#  D 
+Gonna bring you some light 
+               D/E  A 
+Wanna make you feel happy 
+      A           A/C#  D 
+Every day of your life 
+               D/E A 
+Gonna sing you my  lovesong 
+      A           A/C#  | D      D/C# | 
+Gonna make it all right 
+       Bm                 E 
+You're all I ever need my darling 
+ 
+[Verse] 
+A        Dmaj7        E     A 
+ Just to be where you wanna be 
+D        A   A/C#     Bm7       D/E         [ A ] 
+ So much fun we could have then     Mmh, mmh, mh 
+A      Dmaj7      E    A 
+ To be yours for eternity 
+D       A/C#       B7 
+ What a miracle to happen 
+ 
+[Chorus] (+ link to middle 8) 
+      D/E         A 
+Gonna sing you my lovesong 
+      A           A/C#  D 
+Wanna sing it for you
+
+               D/E   A 
+Gonna give you sweet lovin' 
+      A           A/C#  D 
+Gonna give myself too 
+               D/E A 
+Wanna sing you my  lovesong 
+       A           A/C#  | D      D/C# | 
+When I think about you 
+  Bm                       E 
+I know she doesn't make it easy 
+       Bm7                            G#m7   C#7 
+'Cause you don't please her, like you please me 
+ 
+[Middle 8] 
+F#m        G#m             C# F#m 
+ You're my love, you're my an-gel 
+F#m        G#m              C# 
+ You're my first, you're my last 
+F#m        E           A     D 
+ Would she care if you linger 
+     G 
+For another night 
+      D                        Bm 
+Wanna hold you tight, we could make it right 
+ 
+[Chorus] 
+      D/E         A 
+Gonna sing you my lovesong 
+      A              A/C#  D 
+Gonna bring you some light 
+               D/E  A 
+Wanna make you feel happy 
+      A           A/C#  D 
+Every day of your life 
+               D/E A 
+Gonna sing you my  lovesong 
+      A           A/C#  | D      D/C# | 
+Gonna make it all right 
+  Bm                       D/E 
+I know she doesn't make it easy 
+ 
+[Chorus] (+ link to coda) 
+      D/E         A 
+Gonna sing you my lovesong 
+      A           A/C#  D 
+Wanna sing it for you 
+               D/E   A 
+Gonna give you sweet lovin' 
+      A           A/C#  D 
+Gonna give myself too 
+               D/E A 
+Wanna sing you my  lovesong 
+       A           A/C#  | D      D/C# | 
+When I think about you 
+       Bm                 E 
+You're all I ever need my darling 
+                         [break] 
+    Bm7                     E           [ A ] 
+And I would love to sing my lovesong for you 
+ 
+[Coda] 
+| A [ Dadd9 ] | A D | 
+                1 + 2 + 3 
+| A [ Dadd9 ] | A       Bm7

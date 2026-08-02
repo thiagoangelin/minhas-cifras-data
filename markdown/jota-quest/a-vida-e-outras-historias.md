@@ -1,0 +1,131 @@
+Jota Quest - A Vida E Outras Historias 
+ 
+[Intro 4x] G  G4 
+ 
+Am        D               G 
+   Lá vou eu e os meus delírios 
+        C 
+Mundo afora 
+Am         D             G 
+   Nem dinheiro, nem destino 
+ 
+Am                   D 
+   Nas curvas da estrada eu vou 
+    G           C 
+Beijar a noite nua 
+Am              D 
+   Pra pele do céu  
+              G  G4  G 
+Se encher de luz 
+ 
+[Refrão] 
+ 
+        C 
+Vou dançar com as estrelas 
+        Bm       Em 
+Vou cantar pro luar 
+       Am        D 
+Não importa a razão 
+          G                  G4  G 
+A vida é curta e então me escuta 
+ 
+        C 
+Vou dançar com as estrelas 
+        Bm       Em 
+Vou cantar pro luar 
+         Am               D 
+Tenho a vida e outras histórias  
+          G  G4  G  G4 
+Pra inventar 
+ 
+[Segunda Parte] 
+ 
+Am        D             G           C 
+   Lá vou eu mas vou sozinho, você fica 
+Am             D          G 
+   Com seus horários e motivos 
+Am                  D 
+   Te deixo com os pés no chão 
+     G           C 
+Meu corpo já flutua 
+Am              D 
+   Tumulto de azuis 
+            G  G4  G 
+De chuva e luz 
+ 
+[Refrão] 
+ 
+        C 
+Vou dançar com as estrelas 
+        Bm       Em 
+Vou cantar pro luar 
+       Am        D 
+Não importa a razão 
+          G                  G4  G 
+A vida é curta e então me escuta 
+ 
+        C 
+Vou dançar com as estrelas 
+        Bm       Em
+
+Vou cantar pro luar 
+         Am               D 
+Tenho a vida e outras histórias  
+          G 
+Pra inventar 
+ 
+[Terceira Parte] 
+ 
+             C 
+Tremendo de febre 
+ 
+Anoto silêncios 
+              B5 
+Mergulho das pedras 
+           Em 
+Em camera lenta 
+                 Am 
+Me entrego a vertigem 
+               D 
+Dos versos do vento 
+          G  G4  G 
+Aprendo voar 
+ 
+          C 
+E sigo vivendo 
+ 
+De gotas de orvalho 
+               G/B 
+Me cubro de espanto 
+                Em 
+Na beira da estrada 
+               Am 
+Meus olhos de nuvem  
+                 D 
+Se espalham no acaso 
+              G       G4  G 
+Te escuto chegar, chegar 
+ 
+[Refrão] 
+ 
+        C 
+Vou dançar com as estrelas 
+        Bm       Em 
+Vou cantar pro luar 
+         Am        D 
+Pouco importa a razão 
+          G                  G4  G 
+A vida é curta e então me escuta 
+ 
+        C 
+Vou dançar com as estrelas 
+        Bm       Em 
+Vou cantar pro luar 
+         Am               D 
+Tenho a vida e outras histórias  
+          G  G4 
+Pra inventar 
+           G      G4           G  G4 
+Outras histórias,    pra inventar 
+           G      G4           G 
+Outras histórias,    pra inventar

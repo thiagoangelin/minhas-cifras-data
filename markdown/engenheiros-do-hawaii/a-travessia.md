@@ -1,0 +1,79 @@
+Engenheiros Do Hawaii - A Travessia 
+ 
+Intro: G  C 
+ 
+G               C 
+Um travesseiro com teu cheiro 
+G              C 
+Seria a ponte para o dia, 
+G             C 
+Seria noite a vida inteira, 
+G                  C         D 
+Se não houvesse a travessia. 
+   C           D 
+Preciso atravessar 
+  C           D 
+A nuvem de meta 
+    C               G 
+Que pesa na minha cabeça 
+ 
+              C             G 
+Uma palavra incompreensível 
+              C           G 
+Seria a ponte para o dia 
+              C            G 
+Seria noite a vida inteira 
+                  C        D 
+Não fosse a tua caligrafia 
+   C           D 
+Preciso atravessar 
+   C             D 
+O caos que há no ar 
+  C               G 
+E pesa na minha cabeça 
+ 
+G     C          G 
+O GPS enlouquece 
+                  C        G 
+A gente esquece a onde ia. 
+                C           G 
+A mil por um milhão de ruas 
+                  C         D 
+Cadê o portal pra travessia 
+    C               D 
+Partir, romper, cruzar 
+   C            D   G#° 
+preciso atravessar 
+ 
+    Am          G#°         Am  G#° 
+24 léguas de um dia que não vem 
+       Am             C            D 
+60 toneladas de um minuto em suspensão 
+ 
+- Refrão: 
+       G      C 
+Atravessar a travessia 
+      G      C 
+Atravessar a travessia 
+      G      C       D 
+Atravessar a travessia 
+    C            D 
+Partir,romper,cruzar 
+   C            D 
+Preciso atravessar 
+ 
+SOLO:Am G#° Am G#° Am C D 
+ 
+  G      C 
+Atravessar a travessia 
+      G      C
+
+Atravessar a travessia 
+      G      C       D 
+Atravessar a travessia 
+    C            D 
+Partir,romper,cruzar 
+   C            D 
+Preciso atravessar 
+  C             Em B7 Em B7 
+A ponte para o dia

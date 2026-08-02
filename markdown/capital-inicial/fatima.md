@@ -1,0 +1,93 @@
+Capital Inicial - Fatima 
+ 
+[Intro] Cm  Ab  Bb 
+ 
+(Riff) 
+ 
+[Primeira Parte] 
+ 
+         Cm 
+Vocês esperam uma intervenção divina 
+                     Ab                        Bb 
+Mas não sabem que o tempo agora está contra vocês 
+ 
+          Cm 
+Vocês se perdem no meio de tanto medo 
+                     Ab                          Bb 
+De não conseguir dinheiro pra comprar sem se vender 
+ 
+        Cm 
+E vocês armam seus esquemas ilusórios 
+                 Ab                        Bb 
+Continuam só fingindo que o mundo ninguém fez 
+ 
+         Cm 
+Mas acontece que tudo tem começo 
+                      Ab                       Bb 
+E se começa, um dia acaba, eu tenho pena de vocês 
+ 
+( Cm   Bb5   Cm   Eb5 ) 
+( Cm   Bb5   Cm   Eb5 ) 
+ 
+(Riff) 
+ 
+(Riff 2) 
+ 
+[Segunda Parte] 
+ 
+        Cm 
+E as ameaças de ataque nuclear 
+           Ab                         Bb 
+Bombas de nêutrons não foi Deus quem fez 
+ 
+            Cm 
+Alguém, alguém um dia vai se vingar 
+           Ab                     Bb 
+Vocês são vermes, pensam que são reis 
+ 
+           Cm 
+Não quero ser como vocês 
+Ab                 Bb 
+   Eu não preciso mais 
+ 
+Cm 
+   Eu já sei o que tenho que saber 
+Ab           Bb 
+   E agora, tanto faz 
+ 
+( Cm   Ab   Bb ) 
+( Cm   Eb   Bb ) 
+( Cm   Ab   Bb ) 
+ 
+[Solo] 
+ 
+[Terceira Parte] 
+ 
+        Cm 
+Três crianças sem dinheiro e sem moral 
+                    Ab               Bb 
+Não ouviram a voz suave que era uma lágrima
+
+ 
+           Cm 
+E se esqueceram de avisar pra todo mundo 
+                   Ab               Bb 
+Ela talvez tivesse nome, e era Fátima 
+ 
+        Cm 
+E de repente o vinho virou água 
+       Ab              Bb 
+E a ferida não cicatrizou 
+ 
+           Cm 
+E o limpo se sujou e no terceiro dia 
+     Ab     Bb 
+Ninguém ressuscitou 
+ 
+( Cm  Ab  Bb ) 
+( Cm  Ab  Bb ) 
+( Cm  Ab  Bb ) 
+( Cm  Ab  Bb ) 
+( Cm  Ab  Bb ) 
+ 
+(Riff Final)

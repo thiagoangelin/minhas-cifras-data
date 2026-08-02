@@ -1,0 +1,67 @@
+Daniel - Bem Simplesinho 
+ 
+Intro: C# G#7 -----> dois compassos para cada nota 
+ 
+     C# 
+Por causa dessa mulher 
+ 
+De tudo que é bom 
+ 
+Fui abrindo mão 
+ 
+Do futebol com os amigos 
+                       G#7 
+Barzinho e até meu violão 
+ 
+Por causa dessa mulher 
+             F#           G#7 
+Que não suportava minhas amigas 
+     F#                C# 
+Aos poucos fui me envolvendo 
+      G#7              C#     G#7 
+Amolecendo eu mudei de vida 
+ 
+C# 
+Agora eu faço parte 
+ 
+De uma classe elitizada 
+ 
+Só gosta de coisa chique 
+                    G#7 
+Só bebida importada 
+ 
+Eu que gosto de cerveja 
+        F#           G#7 
+Rabo de galo e caipirinha 
+  F#                 C# 
+É vinho, whisky e licor 
+               G#7 
+Essa que eu estou 
+             C# 
+Deus não é a minha 
+ 
+Refrão: 
+          G#7 
+Eu quero viola ela MPB 
+             C# 
+Falo em sertanejo ela quer morrer 
+           G#7 
+Gosto de fazenda e de boi na invernada 
+                  F#          G#7      C# 
+Ela quer que eu aprenda umas coisas erradas 
+ 
+         G#7                   
+Ela faz amor como ninguém faz 
+            C#                C#7 
+Mas viver assim é ruim demais 
+            F# 
+Prefiro um amor bem... simplesinho 
+              G#7               C# 
+Poder tocar viola, jogar minha bola 
+             G#7 
+minhas pingas 
+       C# 
+E viver sozinho 
+ 
+::..Tocar a música de novo..:: 
+::..Tocar o refrão de novo..::

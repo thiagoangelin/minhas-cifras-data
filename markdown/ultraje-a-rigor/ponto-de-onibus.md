@@ -1,0 +1,79 @@
+Ultraje A Rigor - Ponto De Onibus 
+ 
+Am 
+Ônibus - não! 
+F 
+Ônibus - não!   X2 
+ 
+Am                            Bm 
+Quê que eu 'tô fazendo aqui, 
+               Am             Bm 
+nesse ponto de ônibus; 
+Am                            Bm 
+Essas pessoas paradas aqui, 
+               Am             Bm 
+nesse ponto de ônibus; 
+ 
+F 
+Quando eu tiver dinheiro, 
+G 
+Quando eu tiver dinheiro, 
+F 
+eu prometo a mim mesmo que 
+G                  Am   F 
+eu só vou andar de taxi 
+É... o que é que eu tô fazendo aqui 
+Am   F 
+taxi 
+É... o que é que eu tô fazendo aqui 
+ 
+Am 
+Ainda se o tempo não tivesse mudado, 
+Bm 
+Ainda se o ônibus tivesse parado 
+Am 
+e esse cara, aqui do meu lado, 
+Bm 
+Fica me olhando com cara de tarado 
+ 
+F 
+Quando eu tiver dinheiro, 
+G 
+Quando eu tiver dinheiro, 
+F 
+eu prometo a mim mesmo que 
+G                  Am   F 
+eu só vou andar de taxi 
+É... o que é que eu tô fazendo aqui 
+Am   F 
+taxi 
+É... o que é que eu tô fazendo aqui 
+ 
+(solo) 
+Am 
+Ônibus - não! 
+F 
+Ônibus - não! 
+ 
+Am 
+O motorista não foi nada educado, 
+Bm 
+Passou na poça e me deixou encharcado 
+Am 
+Parou à frente, super-lotado 
+Am 
+E o cobrador que nunca tem trocado 
+ 
+F 
+Quando eu tiver dinheiro, 
+G
+
+Quando eu tiver dinheiro, 
+F 
+eu prometo a mim mesmo que 
+G                  Am   F 
+eu só vou andar de taxi 
+É... o que é que eu tô fazendo aqui 
+Am   F 
+taxi 
+É... o que é que eu tô fazendo aqui

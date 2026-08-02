@@ -1,0 +1,43 @@
+Ivan Lins - Ela A Propria Vida Funk Catarina 
+ 
+[Intro:] Am7 B7(b13) Em7(9) Am7 B7(b13) Em7(9) Am7 
+ 
+                     B7(b13) Em7(9)            Am7 
+Gota de chuva, cacho de uva,      concha de mar 
+                    B7(b13) Em7(9)           Am7 
+Janela aberta, alma deserta,      sopro de ar 
+                    B7(b13) Em7(9)              Am7 
+Folha caindo, tempo se indo       pr'outro lugar 
+                    B7(b13)   Em7(9) 
+Dentro da casa, o som das asas      volta a soar 
+ 
+         C7M/E          Cm6/Eb 
+É ela que vai, é ela que vem 
+          G7M/D            Eº 
+Ela se distrai e se sente bem 
+         Am7(b5) 
+Ela é borboleta 
+           D7(4)        Ebº   Em7(9) Am7 
+Procurando flores pra se apaixonar 
+ 
+Cada ferida que essa vida quis emplacar 
+Foi a partida pr'outra corrida, outro placar 
+Porque quem voa vive na boa e sabe cantar 
+A melodia na harmonia que a vida tocar 
+ 
+É ela que vai, é ela que vem 
+Ela se distrai e se sente bem 
+Ela é brincadeira 
+Quero ver quem roda, quem sabe girar 
+ 
+Toda beleza da natureza não vai bastar 
+Se a poesia do dia-a-dia nos cultivar 
+Cada momento, cada instante, cada encontrar 
+Só a delícia e a carícia no nosso olhar 
+ 
+É ela que vai, é ela que vem 
+Ela se distrai e se sente bem 
+Ela é a própria vida 
+Que atravessa a alma e nos faz brilhar 
+ 
+Fim: Am7 B7(b13) Em7(9) Bb7(13)

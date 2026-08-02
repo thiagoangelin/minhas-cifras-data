@@ -1,0 +1,42 @@
+U2 - Whats Going On 
+ 
+   E                              C#m 
+Mother, mother, there's too many of you crying 
+  E                                             C#m 
+Brother, brother, brother, there's far too many of you dying 
+                 A 
+You know we'ver got to find a way 
+                B7 
+To bring some lovin' here today, hey 
+ 
+Father, father, we don't need to escalate 
+War is not the answer, for only love can conquer hate 
+You know we've got to find a way 
+To bring some lovin' here today 
+ 
+Refrão #1: 
+  A 
+Picket lines and picket signs 
+ 
+Don't punish me with brutality 
+ 
+Talk to me, so you can see 
+            E               C#m 
+Oh what's going on, what's going on 
+         E                         C#m 
+Yeah, what's going on, ah, what's going on 
+  A        B7 
+Ahhh.... 
+ 
+Mother, mother, everybody thinks we're wrong 
+Ah but who are they to judge us 
+Simply 'cos our hair is long 
+Ah you know we'ver got to find a way 
+To brind some understanding here today 
+ 
+Refrão #2: 
+Picket lines and picket signs 
+Don't punish me with brutality 
+Talk to me, so you can see 
+What's going on, yeah what's going on 
+Tell me what's going on, I'll tell you what's going on

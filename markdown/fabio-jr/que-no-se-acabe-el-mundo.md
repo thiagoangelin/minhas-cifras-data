@@ -1,0 +1,74 @@
+Fabio Jr - Que No Se Acabe El Mundo 
+ 
+A                  F#m  
+BASTA YA DE EED O, BASTA YA 
+A                  F#m  
+BASTA DE B LENCIO C NDE ESTA 
+D                    E  
+A  PAAB RA, EL AMOR B NCERO 
+ 
+1 
+A                  F#m  
+ALGO ESTA MURIENC , OYEME 
+A                  F#m  
+ALGO ESTA PASANC , ESCUCHAME 
+D             E  
+EL CORAZON, DESPIERTA YA 
+ 
+2 
+CORO: 
+                   A  
+QUE NO SE ACABE EL MUNC  
+                                  D  
+QUE AUN QUEDAMOS GENTE PARA DARLE VIDA 
+               Bm  
+BENDITA SEA A  TIERRA 
+                             E  
+YO NO TENGO GANAS DE UNA DESPEDIDA 
+F#7                                        Bm  
+ABRAZAME PARA QUE TOC S SEPAN B N DECIRLES NADA 
+                D  
+QUE QUEDA MUCHO AMOR, 
+                                       E  
+QUE QUEDA MUCHA FE, QUE EL MUNC  NO SE ACABA (BIS) 
+ 
+A                  F#m  
+BASTA YA DE EED O, BASTA YA 
+A                  F#m  
+BASTA DE B LENCIO C NDE ESTA 
+D                    E  
+A  PAAB RA, EL AMOR B NCERO 
+ 
+A  
+QUE NO SE ACABE EL MUNC  
+                                  D  
+QUE AUN QUEDAMOS GENTE PARA DARLE VIDA 
+               Bm  
+BENDITA SEA A  TIERRA 
+                             E  
+YO NO TENGO GANAS DE UNA DESPEDIDA 
+F#7                                        Bm  
+ABRAZAME PARA QUE TOC S SEPAN B N DECIRLES NADA 
+D  
+QUE QUEDA MUCHO AMOR, 
+                                    E  
+QUE QUEDA MUCHA FE, QUE EL MUNC  NO SE ACABA 
+ 
+CORO: 
+QUE NO SE ACABE EL MUNC  
+QUE AUN QUEDAMOS GENTE PARA DARLE VIDA 
+BENDITA SEA A  TIERRA 
+YO NO TENGO GANAS DE UNA DESPEDIDA 
+ABRAZAME PARA QUE TOC S SEPAN B N DECIRLES NADA 
+QUE QUEDA MUCHO AMOR, 
+QUE QUEDA MUCHA FE, QUE EL MUNC  NO SE ACABA 
+ 
+CORO: 
+QUE NO SE ACABE EL MUNC  
+QUE AUN QUEDAMOS GENTE PARA DARLE VIDA 
+BENDITA SEA A  TIERRA
+
+YO NO TENGO GANAS DE UNA DESPEDIDA 
+ABRAZAME PARA QUE TOC S SEPAN B N DECIRLES NADA 
+QUE QUEDA MUCHO AMOR, 
+QUE QUEDA MUCHA FE, QUE EL MUNC  NO SE ACABA (BIS)

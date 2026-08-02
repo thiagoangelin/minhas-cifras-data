@@ -1,0 +1,71 @@
+Roxette - Looking For Jane 
+ 
+ (Words & music by Per Gessle) 
+ 
+ G             D   G                 D 
+Where did she go? Where did she go from here? 
+ G                   D        Bm                     A 
+ The last time I saw her she made all the clouds disappear. 
+ G                 D    F                     D 
+ She said, with a smile, yea, the weather's alright. 
+ G             D         A 
+ She left her coat at home that night. 
+ 
+                    G  D                        G   A 
+ Where do I begin today? Where do colors never fade? 
+                        G                     Bm 
+ In the sunshine. In the rain. It's quite the same. 
+                      Em                     A 
+ It's never gonna change. I'll be looking for Jane. 
+ 
+ G            D    G                   A 
+ Why did she come? Why did she come to me? 
+ G                       D           Bm                 A 
+ There must have been millions in the world she'd rather see. 
+ G                    D       F             D 
+ Oh, at least in my mind, as time has gone by, 
+ G             D           A 
+ it's always harder to laugh than to cry. 
+ 
+                     G           D 
+ Where do I begin today? (ba-ba-ba) 
+                        G             A 
+ Where her colors never fade (ba-ba-ba). 
+                        G                   Bm 
+ In the sun and in the rain. It's quite the same. 
+                  Em                         A 
+ It's never gonna change. I'll be looking for Jane. 
+                     G            D 
+ Where do I begin today? (ba-ba-ba) 
+                          Bm            A 
+ Where the summer never fades? (ba-ba-ba). 
+                         G                    Bm 
+ In the sunshine. In the rain. It's quite the same. 
+                  Em                           A 
+ It's never gonna change. I'll be looking for Jane... 
+ 
+ Solo: F#m B E A E (2x) D E 
+ 
+                    A   E 
+ Where do I begin today? 
+                         A  B 
+ Where her colors never fade 
+                        A                  C#m 
+ In the sun and in the rain.It´s quite the same. 
+                     F#m                       B 
+ It´s never gonna change.I´ll be looking for Jane... 
+                     A   E 
+ Where do I begin today? 
+                         C#m   B 
+ Where the summer never fades? 
+                          A                  C#m 
+ In the sunshine.In the rain.It´s quite the same. 
+                    F#m                        B 
+ It´s never gonna change. I´ll be looking for Jane...  A  E  A  B 
+                          A                  C#m 
+ In the sunshine.In the rain. It´s quite the same. 
+                   F#m                         B 
+ It´s never gonna change. I´ll be looking for Jane...
+
+ 
+ D  G  A  D  D/F#  D9 D

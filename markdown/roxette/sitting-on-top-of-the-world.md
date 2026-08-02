@@ -1,0 +1,66 @@
+Roxette - Sitting On Top Of The World 
+ 
+Intro: C  F  Dm  G 
+ 
+          Am 
+Hey I've paid my dues 
+                      C             G 
+I've had my share of holes in the shoes 
+                  Am 
+I'm glad it's all forgotten 
+                      C             G 
+I love it when you're free to spoil me rotten 
+        F                G 
+Those little things you know 
+          F           Dm     G     C     F 
+Night shopping for a soul to go 
+ 
+     Dm                   G                 C   F 
+I'm sitting on top of the world and I like it 
+     Dm                   G 
+I'm sitting on top of the world 
+ 
+          Am 
+I want this to be real 
+                      C             G 
+Coming out of my cage made of steel 
+          Am 
+God I know it's final 
+                      C             G 
+Decided to release my love on vinyl 
+        F                G 
+Those little things you show 
+          F           Dm     G     C     F 
+You kiss the wind you let it blow 
+ 
+     Dm                   G                 C   F 
+I'm sitting on top of the world and I like it 
+     Dm                   G                 C   F 
+I'm sitting on top of the world I like it 
+     Dm                   G                 C   F 
+I'm sitting on top of the world and I like it 
+     Dm     G 
+I like it 
+ 
+  Cm                    Bb 
+Flip right through a magazine 
+  G#             G 
+Bottle neck, a tambourine 
+  Cm              Bb 
+Light a candle at the show 
+  G#         G      G 
+Swing it, high and low 
+ 
+Solo: Am  Am  C  G 
+      Am  Am  C  G 
+ 
+     C             F 
+I'm watching the dawning 
+     Dm                    G                C  F 
+I'm sitting on top of the world and I like it 
+     Dm                    G                C  F 
+I'm sitting on top of the world and I like it 
+     Dm                    G                C  F 
+I'm sitting on top of the world and I like it 
+     C             F           Dm        G    C 
+Sitting on top of the world and I like it

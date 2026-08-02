@@ -1,0 +1,142 @@
+Falamansa - Caminhos Do Coracao 
+ 
+ 
+          A                   E/G# 
+Há muito tempo que eu saí de casa 
+         A7                     D 
+Há muito tempo que eu caí na estrada 
+          C#7                   F#m 
+Há muito tempo que eu estou na vida 
+                   B7                    E7 
+Foi assim que eu quis, e assim eu sou feliz 
+ 
+          Bm                 E7 
+Principalmente por poder voltar 
+             Bm                 E7 
+A todos os lugares onde já cheguei 
+           Bm                 E7 
+Pois lá deixei um prato de comida 
+                    Bm                  E7 
+Um abraço amigo, um canto prá dormir e sonhar 
+ 
+        A                 E/G# 
+E aprendi que se depende sempre 
+           A7               D 
+De tanta, muita, diferente gente 
+         C#7            F#m 
+Toda pessoa sempre é a marca 
+             B7                       E7 
+Das lições diárias de outras tantas pessoas 
+ 
+          Bm                   E7 
+E é tão bonito quando a gente sente 
+                     Bm                    E7 
+Que a gente é tanta gente onde quer que a gente vá 
+          Bm                     E7 
+E é tão bonito quando a gente Entende 
+                  Bm                      E7 
+Que nunca está sozinho por mais que pense esta 
+ 
+        A                         G 
+É tão bonito quando a gente pisa firme 
+                     A                    G 
+Nessas linhas que estão nas palmas de nossas mãos 
+         D            C#7          F#m 
+É tão bonito quando a gente vai à vida 
+                   D              E7        A 
+Nos caminhos onde bate, bem mais forte o coração 
+             G                    A                     
+(Bate bate bate) Bem mais forte o coração (dum dum dum  
+ G 
+dum) 
+                    A                    G                 
+bem mais forte o coração (bate bate bate) bem mais forte o 
+    A             G 
+ coração não não 
+                                     A 
+(Dum dum dum dum) Bem mais forte o cora 
+ 
+     A                   E/G# 
+Há muito tempo que eu saí de casa 
+         A7                     D 
+Há muito tempo que eu caí na estrada 
+          C#7                   F#m 
+Há muito tempo que eu estou na vida 
+                   B7                    E7 
+Foi assim que eu quis, e assim eu sou feliz 
+ 
+          Bm                 E7 
+Principalmente por poder voltar
+
+             Bm                 E7 
+A todos os lugares onde já cheguei 
+           Bm                 E7 
+Pois lá deixei um prato de comida 
+                    Bm                  E7 
+Um abraço amigo, um canto prá dormir e sonhar 
+ 
+        A                 E/G# 
+E aprendi que se depende sempre 
+           A7               D 
+De tanta, muita, diferente gente 
+         C#7            F#m 
+Toda pessoa sempre é a marca 
+             B7                       E7 
+Das lições diárias de outras tantas pessoas 
+ 
+          Bm                   E7 
+E é tão bonito quando a gente sente 
+                     Bm                    E7 
+Que a gente é tanta gente onde quer que a gente vá 
+          Bm                     E7 
+E é tão bonito quando a gente Entende 
+                  Bm                      E7 
+Que nunca está sozinho por mais que pense esta 
+ 
+        A                         G 
+É tão bonito quando a gente pisa firme 
+                     A                    G 
+Nessas linhas que estão nas palmas de nossas mãos 
+         D            C#7          F#m 
+É tão bonito quando a gente vai à vida 
+                   D              E7        A 
+Nos caminhos onde bate, bem mais forte o coração 
+             G                    A                     
+(bate bate bate) Bem mais forte o coração (dum dum dum  
+ G 
+dum) 
+                    A                    G                 
+bem mais forte o coração (bate bate bate) bem mais forte o 
+    A             G 
+ coração não não 
+                                     A 
+(dum dum dum dum) Bem mais forte o cora 
+ 
+     Bm                   E7 
+E é tão bonito quando a gente sente 
+                     Bm                    E7 
+Que a gente é tanta gente onde quer que a gente vá 
+          Bm                     E7 
+E é tão bonito quando a gente Entende 
+                  Bm                      E7 
+Que nunca está sozinho por mais que pense esta 
+ 
+    A                         G 
+É tão bonito quando a gente pisa firme 
+                     A                    G 
+Nessas linhas que estão nas palmas de nossas mãos 
+         D            C#7          F#m 
+É tão bonito quando a gente vai à vida 
+                   D              E7        A 
+Nos caminhos onde bate, bem mais forte o coração 
+             G                    A                     
+(Bate bate bate) Bem mais forte o coração (dum dum dum  
+ G 
+dum) 
+                    A                    G                 
+Bem mais forte o coração (bate bate bate) bem mais forte o 
+    A             G 
+ coração não não 
+                                     A
+
+(Dum dum dum dum) Bem mais forte o coração.

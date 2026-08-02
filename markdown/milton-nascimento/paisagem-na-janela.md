@@ -1,0 +1,56 @@
+Milton Nascimento - Paisagem Na Janela 
+ 
+[Intro] C7+/9  Em7  F7+  Fm7 
+ 
+C7+/9     Em7    Am7             Em7 
+Da janela lateral do quarto de dormir 
+ F7+       G7        Em7       Am7 
+Vejo uma igreja, um sinal de glória 
+ F7+           G7        Em7   Am7 
+Vejo um muro branco e um vôo pássaro 
+F7+        G7        Em7    F7+ G/F F7+ 
+Vejo uma grade e um velho sinal 
+ 
+C7+/9        Em7    Am7          Em7 
+Mensageiro natural, de coisas naturais 
+F7+         G7           Em7      Am7 
+Quando eu falava dessas cores mórbidas 
+F7+         G7            Em7      Am7 
+Quando eu falava desses homens sórdidos 
+F7+         G7             Em7 F7+ 
+Quando eu falava desse temporal 
+G7/9 
+Você não escutou 
+ 
+C7+/9     Em7     F7+     Fm7 
+Você não quer acreditar, mas isso é tão normal 
+C7+/9     Em7     F7+     Fm7 
+Você não quer acreditar e eu apenas era 
+C7+/9       Em7      Am7       Em7 
+Cavaleiro marginal lavado em ribeirão 
+ F7+        G7       Em7      Am7 
+Cavaleiro negro que viveu mistérios 
+F7+       G7          Em7      Am7 
+Cavaleiro e senhor de casa e árvores 
+F7+           G7    Em7     F7+  F/G F7+ 
+Sem querer descanso nem dominical 
+ 
+C7+/9       Em7      Am7        Em7 
+Cavaleiro marginal banhado em ribeirão 
+ F7+         G7       Em7     Am7 
+Conheci as torres e os cemitérios 
+F7+         G7          Em7     Am7 
+Conheci os homens e os seus velórios 
+F7+        G7       Em7 F7+ 
+Eu olhava da janela lateral 
+   G7/13 
+Do quarto de dormir 
+ 
+C7+/9     Em7     F7+     Fm7            C7+/9 
+Você não quer acreditar, mas isso é tão normal 
+          Em7     F7+     Fm7            C7+/9 
+Você não quer acreditar, mas isso é tão normal 
+      Em7       F7+     Fm7         C7+/9 
+Um cavaleiro marginal banhado em ribeirão 
+        Em7      F7+     Fm7 
+Você não quer acreditar

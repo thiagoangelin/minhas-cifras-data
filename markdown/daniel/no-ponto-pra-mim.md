@@ -1,0 +1,44 @@
+Daniel - No Ponto Pra Mim 
+ 
+C                          
+Tá fazendo bagunça no meu coração 
+                                   Dm   Bb  
+Ao invés de explicar você quer confundir 
+Dm                  Gm                  Dm 
+Quando penso que é sim você fala que é não 
+               Bb                    Dm 
+Se resolvo ir embora prende a minha mão 
+                              G  Gm C  
+Quando fico aceso você quer fugir 
+ 
+F                                      C 
+Está se vendo que você não sabe o que quer 
+                Am              Dm 
+Tem um lado criança e um lado mulher 
+                  F                       C 
+Disputando uma queda de braços sem fim, a aa... 
+F                                 C 
+Estou aqui aguardando você se encontrar 
+                  Am              Dm 
+Tenho mais que entender e saber esperar 
+                          G          C  G 
+Que você fique pronta no ponto pra mim 
+ 
+                   G    C 
+Eu vou tentar me segurar 
+                                    Dm 
+Mas eu já sei que não vai ser fácil não 
+                   F 
+Basta você se aproximar 
+                       C   
+Fico agitado é complicação 
+                    G 
+Eu quero tudo com você 
+                  C               F 
+Posso até ser o homem que você sonhou 
+ 
+Amor não é só sexo 
+        C              Am 
+Mas sexo faz parte do amor 
+F               G      C 
+Minha princesa, minha flor

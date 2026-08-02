@@ -1,0 +1,74 @@
+Lourenco E Lourival - Franguinho Na Panela 
+ 
+[Intro] A  E  A  E 
+        A  E  A 
+ 
+[Riff 1 
+ 
+[Riff 2 
+ 
+[Primeira Parte] 
+ 
+ A                                     E 
+No recanto onde moro é uma linda passarela 
+                                       A 
+O carijó canta cedo, bem pertinho da janela 
+                                      E 
+Eu levanto quando bate o sininho da capela 
+                  D                        A 
+E lá vou eu pro roçado, tenho Deus de sentinela 
+                  E                      A 
+Têm dia que meu almoço, é um pão com mortadela 
+     A7            D          Bm           E 
+Mais lá no meu ranchinho a mulher e os filhinhos 
+                    A 
+Tem franguinho na panela 
+A                                                E 
+Eu tenho um burrinho preto bão de arado e bão de sela 
+                                           A 
+Pro leitinho das crianças, a vaquinha Cinderela 
+                                    E 
+Galinha tá no terreiro papagaio tagarela 
+                     D                        A 
+Eu ando de qualquer jeito, de butina ou de chinela 
+                    E                       A 
+Se na roça a fome aperta, vou apertando a fivela 
+     A7            D          Bm           E 
+Mais lá no meu ranchinho a mulher e os filhinhos 
+                    A 
+Tem franguinho na panela 
+ 
+( A  E  A  E ) 
+( A  E  A ) 
+ 
+[Segunda Parte] 
+ 
+                                         E 
+Quando eu fico sem serviço a tristeza me atropela 
+                                             A 
+Eu pego um bico pra fora, deixo cedo a corruptela 
+                                         E 
+Eu levo meu viradinho é um fundinho de tigela 
+                 D                       A 
+É só farinha com ovo,da gema bem amarela 
+               E                         A 
+É esse o meu almoço, que desce seco na goela 
+     A7            D          Bm           E 
+Mais lá no meu ranchinho a mulher e os filhinhos 
+                    A 
+Tem franguinho na panela 
+A                                           E 
+Minha mulher é um doce e diz que sou o doce dela 
+                                               A 
+Ela faz tudo pra mim, tudo o que eu faço é pra ela 
+                                              E 
+Não vestimo lã nem linho é no algodão e na flanela 
+                 D                      A 
+É assim a nossa vida, que levamos na cautela 
+                          E                          A 
+Se eu morrer Deus dá um jeito, mais a vida é muito bela
+
+    A7                D            Bm           E 
+Não vai faltar no ranchinho pra mulher e os filhinhos 
+                    A 
+Um franguinho na panela

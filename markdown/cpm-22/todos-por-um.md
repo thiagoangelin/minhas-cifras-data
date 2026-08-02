@@ -1,0 +1,57 @@
+Cpm 22 - Todos Por Um 
+ 
+Introdução: A5 
+ 
+Refrão: 
+ 
+       A5                       E5 
+Por amor, por todos que nos representam 
+             D5                                  A5 
+Por nossos amigos, nossas famílias, por quem nos faz crescer 
+          F#m                      A5 
+Altos e baixos, provações nos desafiam 
+         E5             D5                  A5 
+Um por todos, todos por um, enfrentar um leão por dia! 
+ 
+F#m                  A5 
+Nossa conduta acima de qualquer suspeita 
+F#m                  A5 
+O sangue quente que corre em nossa veias 
+           E5              D5 
+Temos que batalhar, nada vem de graça! 
+ 
+Refrão: 
+ 
+       A5                       E5 
+Por amor, por todos que nos representam 
+             D5                                  A5 
+Por nossos amigos, nossas famílias, por quem nos faz crescer 
+          F#m                      A5 
+Altos e baixos, provações nos desafiam 
+         E5             D5                  A5 
+Um por todos, todos por um, enfrentar um leão por dia! 
+ 
+F#m                    A5 
+Brigar pelo que realmente vale a pena 
+F#m                        A5 
+Ver no semblante marcas de uma vida inteira 
+             E5                   D5 
+Em todos que nos rodeiam e nunca será fácil 
+ 
+Solo: A5  E5  D5  A5  F#m  A5  E5  D5  A5 
+ 
+D5                           A5   D5  A5 
+Iluminado ao sol do novo mundo 
+   D5                      A5    D5   A5 
+Verás que o filho teu não foge à luta 
+     F#m                     E5 
+Paz no futuro e glória no passado! 
+ 
+Por amor, por todos que nos representam 
+Por nossos amigos, nossas famílias, por quem nos faz crescer 
+A5  G#m  F#m                      A5 
+Altos e baixos, provações nos desafiam 
+        E5               D5                A5 
+Um por todos, todos por um, enfrentar um leão por dia 
+          F#m            E5                 A5         E5 
+Um por todos, todos por um, enfrentar um leão por dia!

@@ -1,0 +1,20 @@
+Falamansa - Simples Mortais 
+ 
+Introducao: Am 
+ 
+         F                                 G                        Am 
+Encosta teu ouvido aqui que é pra eu te contar, vai ser nosso 
+segredo 
+     F                              G                              Am 
+Nao vou fugir daquilo tudo que eu sonhei entao, saiba que ainda 
+chego 
+                   F                  G               Am 
+mais do que sou capaz, fiz promessas demais, pra saber 
+                   F                  G             Am 
+quantos kilos a mais, de conversas banais, vamos ter  
+                   F                  G             Am 
+somos simples mortais, inocentes demais, pra entender 
+                   F                    G             Am 
+quer saber do que mais, quero ter minha paz, pra viver 
+                                    F   G   (Am  F   G) x 2 
+será que é tao dificil de entender

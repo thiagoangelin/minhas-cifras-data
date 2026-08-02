@@ -1,0 +1,100 @@
+Coldplay - Magic 
+ 
+ 
+ C#m       D 
+Call it magic 
+ F#m      E 
+Call it true 
+C#m        D       F#m         E 
+I call it magic, when I'm with you 
+C#m              D 
+And I just got broken 
+  F#m         E 
+Broken into two 
+  C#m              D     F#m            E    C#m 
+Still I call it magic, when I'm next to you 
+ 
+D 
+And I don't, And I don't, And I don't, And I don't 
+ F#m 
+No I don't, it's true 
+E 
+I don't, No, I don't, No, I don't, No, I don't 
+             C#m         D 
+Want anybody else but you 
+ 
+D 
+I don't, No I don't, No I don't, No I don't 
+ F#m 
+No I don't, it's true 
+E 
+I don't, No I don't, No I don't, No I don't 
+             C#m         D 
+Want anybody else but you 
+ 
+[D F#m E] 
+Ooh 
+ 
+ C#m       D 
+Call it magic 
+ F#m         E 
+Cut me into two 
+C#m                  D      F#m             E 
+And with all your magic, I disappear from view 
+C#m               D    F#m            E 
+And I can't get over, can't get over you 
+  C#m               D 
+Still, I call it magic 
+ F#m              E    C#m 
+Such a precious truth 
+ 
+D 
+And I don't, And I don't, And I don't, And I don't 
+ F#m 
+No I don't, it's true 
+E 
+I don't, No, I don't, No, I don't, No, I don't 
+             C#m         D 
+Want anybody else but you 
+ 
+D 
+I don't, No I don't, No I don't, No I don't 
+ F#m 
+No I don't, it's true 
+E 
+I don't, No I don't, No I don't, No I don't 
+             C#m        D 
+Want anybody else but you 
+ 
+ D          F#m        E    C#m
+
+Wanna fall, I fall so far 
+D              F#m     E 
+I wanna fall, fall so hard 
+ 
+C#m        D 
+I call it magic 
+F#m             E     C#m 
+And I call it true 
+ D                F#m E   C#m 
+Call it ma ma ma magic 
+ 
+[D  F#m  E] 
+Ooh 
+ 
+C#m                     D 
+And if you were to ask me 
+F#m                          E 
+After all that we've been through 
+  C#m               D 
+Still believe in magic? 
+ F#m         E 
+Well yes, I do 
+C#m        D 
+Oh yes, I do 
+ F#m    E 
+Yes, I do 
+C#m        D 
+Oh yes, I do 
+F#m       E 
+Of course I do

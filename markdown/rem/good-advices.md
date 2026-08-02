@@ -1,0 +1,96 @@
+Rem - Good Advices 
+ 
+# 
+ 
+# For the latest collection of R.E.M. chords & tab, go 
+ to 
+# 
+# If you have any corrections or additions to this file,  
+please email them 
+# to * 
+# 
+ 
+GOOD ADVICES 
+ 
+The basic chords for this song are E, D and A, although  
+not the normal 
+open E, D and A.  There's also an Em and some picking as  
+well. 
+ 
+Here are the chords as I hear them, but due to the  
+numerous guitar 
+tracks on the studio version, your guess is as good as  
+mine: 
+ 
+The song fades in on the E chord and the verses go: 
+E 
+When you greet a stranger,     | Verse II: 
+D                              |   When you greet a  
+stranger, 
+Look at his shoes.             |   Look at her hands, 
+A                       E      |   Keep your money in your 
+ hands, 
+Keep your money in your shoes, |   Put your travel behind. 
+         D-lick                | 
+Put your trouble behind.       | 
+ 
+CHORUS: 
+                                      Who are you going to 
+ 
+                                                       E 
+                                   Home is a long way away 
+ 
+Verse III:                         |  Verse IV: 
+At the end of the day,             |  When you greet a  
+stranger, 
+I'll forget your name.             |  Look at his shoes. 
+I'd like it here if I couldn't     |  Keep your memories  
+in your shoes, 
+Even see you from a long way away. |  Put your travel  
+behind. 
+ 
+CHORUS (as above): 
+ 
+Break: 
+Em 
+At the end of the day, 
+When there are no friends. 
+ 
+Verse V: (wierd but it works)         Verse VI: 
+And there are no lovers.           |  Familiar face, a  
+boring place, 
+Who are you going to call for?     |  I'll forget your  
+name. 
+What do you have to change.        |  I'd like it here if  
+I couldn't 
+(Mike Mills in the background)     |  Even see you from a  
+long way away. 
+ 
+CHORUS (as above) END
+
+ 
+When you greet a stranger look at his shoes 
+Keep your money in your shoes put your trouble behind 
+When you greet a stranger look at his hands 
+Keep your money in your hands put your travel behind 
+Who are you going to call for, what do you have to say 
+Keep your hat on your head home is a long way away 
+At the end of the day, I'll forget your name 
+I'd like it here if I could leave and see you from a long  
+way away 
+ 
+When you greet a stranger, look at her shoes 
+Keep you memories in your shoes, put your travel behind 
+Who are you going to call for, what do you have to say 
+Keep your hat on your head 
+Home is a long way away 
+At the end of the day, when there are no friends 
+When there are no lovers, who are you going to call for 
+What do you have to change 
+ 
+A familiar face a foreign place I forget your name 
+I'd like it here if I could leave and see you from a long  
+way away 
+Who are you going to call for, what do you have to say 
+Keep your hat on your head 
+Home is a long way away

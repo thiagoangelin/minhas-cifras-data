@@ -1,0 +1,85 @@
+Roxette - Only When I Dream 
+ 
+Intro: Em  C  Am  B 
+ 
+     D 
+To every day there's a history 
+                                    C 
+To every love that's lost there is tragedy 
+     D 
+I saved a vision of you in my head 
+                                               C 
+Watched a new universe being born, raised and bred 
+                   G 
+In the calm of my bed 
+ 
+                     Dm     Bb                C 
+Some might say it's over now  I don't believe them 
+          Dm        Bb               C 
+If I only got to you  I'd prove I'm right 
+ 
+             Em              C 
+Only when I dream  I hear you, I'm near you 
+Am           B 
+I hold you close to me 
+             Em             C 
+Only when I dream I touch you and I breathe you 
+Am          B 
+I feel you deep inside me 
+ 
+  D 
+Things were never easy for me 
+                                           C 
+In the temple we built to stay sacred and free 
+ D 
+I came lookin' for more self esteem 
+All I found was your voice 
+                    C               G 
+On the answering machine Simple and clean 
+ 
+                     Dm     Bb                C 
+Some might say it's too far gone I don't believe them 
+          Dm        Bb               C 
+If I could only talk to you I'd prove I'm right 
+ 
+             Em              C 
+Only when I dream  I hear you, I'm near you 
+Am           B 
+I hold you close to me 
+             Em             C 
+Only when I dream I touch you and I breathe you 
+Am          B 
+I feel you deep inside me 
+ 
+   G                      C 
+I tried to catch a butterfly 
+                             Am        D 
+I tried to make God's summer sky  Heal me 
+ G                    C 
+Rain exploding in my face 
+                         Am     D 
+Seems to fade without a trace Heal me 
+ 
+             Em              C 
+Only when I dream  I hear you, I'm near you 
+Am           B 
+I hold you close to me 
+             Em             C 
+Only when I dream I touch you and I breathe you 
+Am          B
+
+I feel you deep inside me 
+ 
+             Em              D 
+Only when I dream  I hear you, I'm near you 
+C           B 
+I hold you close to me 
+             Em             D 
+Only when I dream I touch you and I breathe you 
+C          B 
+I feel you deep inside me 
+ 
+Em  D   C          B 
+        I feel you deep inside me 
+Em  D   C          B 
+        I feel you deep inside me

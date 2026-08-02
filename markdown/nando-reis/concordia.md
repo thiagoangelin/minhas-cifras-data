@@ -1,0 +1,86 @@
+Nando Reis - Concordia 
+ 
+Intro: 
+ 
+C/G 
+Eu atravessei a porta 
+G 
+Fiz o meu jardim, pomar 
+C/G 
+Crendo em mim Jesus na hóstia 
+       G 
+Rio do rio, céu do céu 
+Mar do mar 
+B9                 C/G 
+Beijo em paz a sua boca 
+                      G 
+Dou minha roupa pra você usar 
+C/G 
+Peço a tua mão aberta 
+G 
+Um vestido branco eu vou lhe dar 
+C/G 
+Filhos, netos e um planeta 
+G 
+Do futuro, esse muro ainda escuro 
+Nós temos que derrubar 
+B9              C/G 
+E erguer a nova praça 
+Da nossa árvore 
+G 
+Um novo lugar 
+ 
+F7(9) 
+Down, down, down, down, down, down 
+F/D# 
+Down, down, down, down, down, down 
+D7(9) 
+Down, down, down, down, down, down, down, down 
+C7(9)                    G 
+A vida que ainda vamos viver 
+ 
+C/G G (Igual a Intro) 
+ 
+C/G 
+Vento que balança as folhas 
+G 
+Onda que na praia vem deitar 
+C/G 
+Asa que repousa e voa 
+G 
+Meu destino, seu destino 
+Seu destino, meu destino 
+B9                   C/G 
+Risco em giz a nossa lousa 
+             G 
+Poema e proa, eixo e altar 
+ 
+C/G 
+Teço em mim essas ruivas telhas 
+G 
+Corro sem te acompanhar 
+C/G 
+Enche o berço, fruta na cesta 
+G 
+Só a luz do dia, que é você faria 
+A minha noite estelar 
+B9                     C/G 
+Deus que deu flor nessa água 
+               G
+
+Som às palavras, chão pr'eu pisar 
+B9                     C/G 
+Deus que deu flor nessa água 
+               G 
+Som às palavras, chão pr'eu pisar 
+ 
+F7(9) 
+Down, down, down, down, down, down 
+F/D# 
+Down, down, down, down, down, down 
+D7(9) 
+Down, down, down, down, down, down, down, down 
+C7(9)                    G 
+A vida que ainda vamos viver 
+B9  C        G 
+  Eu    e você.

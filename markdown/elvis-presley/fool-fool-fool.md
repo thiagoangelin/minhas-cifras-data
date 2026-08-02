@@ -1,0 +1,40 @@
+Elvis Presley - Fool Fool Fool 
+ 
+                D 
+    Fool, fool, fool 
+    D                      A 
+    That I was to fall for you. 
+          D 
+    Well, fool, fool, fool 
+                           A 
+    That I was to fall for you. 
+            E 
+    Well, I know what a fool I was 
+                                     A 
+    To think that you could love me, too. 
+ 
+                     A  (Tacet)             A  (Tacet) 
+    Well, well, when I first met you, baby, 
+          A  (Tacet)             A  (Tacet) 
+    Well, I knew I couldn't win, 
+        A  (Tacet) 
+    But I just kept right on trying, 
+           A7 
+    'Cause trying is no sin. 
+ 
+           D 
+    What a fool, fool, fool, 
+    D                      A 
+    That I was to fall for you. 
+            E 
+    Well, I know what a fool I was 
+                                     A 
+    To think that you could love me, too. 
+ 
+    Well, when I first met you, baby, 
+    Well, I knew I couldn't win, 
+    But I just kept right on trying, 
+    'Cause trying is no sin. 
+    What a fool that I was to fall for you. 
+    Well, I know what a fool I was 
+    To think that you could love me too.

@@ -1,0 +1,62 @@
+Kid Abelha - Eu Sei Voar 
+ 
+Intr.: E A E A E A E A B 
+ 
+ E               B 
+ Quanto mais eu digo 
+          A          B 
+ "Te amo" mais eu te amo 
+          F#m      B 
+ e quanto mais eu digo 
+              D      A    E 
+ "Tenho medo" mais eu temo 
+               B 
+ Mais história se constrói 
+        A                 B 
+ quanto mais eu conto histórias 
+          F#m     B  
+ e quanto mais desculpas eu dou 
+ D         A        E 
+ mais a culpa me destrói 
+ 
+ B  
+ E assim dizendo umas coisas 
+ Invento o meu viver 
+ E assim falando umas frases 
+ A           B 
+ Tudo tem haver 
+ 
+REFRÃO:  
+            A             E 
+ Pode acreditar, eu sei voar 
+ F#m      B 
+ eu sei voar 
+            A                E 
+ Pode acreditar, eu estou no ar 
+         F#m       B 
+ E ainda vou te chamar 
+ 
+INTRO 
+ 
+ E               B 
+ Vou dando "Bom dia" 
+           A        B 
+ e os dias ficam legais 
+          F#m           B 
+ vou conjugando meu destino 
+         D         A           E 
+ aos mistérios dos tempos verbais 
+ 
+B 
+ E assim tecendo argumentos 
+ mantenho a minha razão 
+ Assim jogando palavras 
+                A             B 
+ controlo o batimento do coração 
+ 
+REFRÃO 
+ 
+ B7                  B  
+ Eu sei voar, eu sei voar... 
+ 
+REFRÃO

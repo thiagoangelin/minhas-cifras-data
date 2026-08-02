@@ -1,0 +1,28 @@
+Green Day - See You Tonight 
+ 
+ A A4 A A4 A 
+ 
+ A          A4       A 
+Maybe i'll see you tonight 
+ A          A4       A 
+Maybe i'll see you tonight 
+ 
+ A          A4           A 
+Wherever the night takes you 
+ A          A4       A 
+Maybe you'll see me too 
+ 
+ E                             A4          A 
+The colder it gets, you won't see me anymore 
+ E                            A4                 A 
+But there's still a chance i might walk to your door 
+ 
+ A4                    A 
+Maybe the time is not right 
+E           A4          A 
+I won't be seeing you tonight 
+ 
+ A          A4        A 
+Maybe i'll see you tonight 
+ A          A4        A 
+Maybe i'll see you tonight

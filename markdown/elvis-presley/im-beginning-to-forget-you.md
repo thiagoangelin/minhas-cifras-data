@@ -1,0 +1,45 @@
+Elvis Presley - Im Beginning To Forget You 
+ 
+Standard tuning. 
+Riff 1:                       Riff 2: 
+                E                                    A 
+e||-------------0--0--0--|    e||-----------------------| 
+B||-------------0--0--0--|    B||--------------------2--| 
+G||-------------1--1--1--|    G||--------------------2--| 
+D||-------------2--2--2--|    D||--------------------2--| 
+A||--0--1--2----2--2--2--|    A||--------------------0--| 
+E||-------------0--0--0--|    E||--0--0--2--2--4--4-----| 
+Intro:  B   Bb   B   (Tacet) 
+                     E          (Riff 1) 
+    I'm beginning to forget you 
+                          B7        (Riff 1) 
+    That old heartache is gone 
+        B7 
+    I'm beginning to sleep at night 
+                         E         (Riff 1) 
+    No more crying 'till dawn 
+    (Tacet)              E 
+    I can hear your name mentioned 
+                         A 
+    And it brings no misery 
+                    B7         (Riff 1) 
+    I'm beginnin to forget you 
+                    E    A    E 
+    Like you forgot me 
+ 
+    (Riff 2)         A 
+    I'm beginning to smile again 
+                        E        (Riff 1) 
+    After crying for so long 
+                           F# 
+    I can hear the tune we loved so well 
+                          B7     (Tacet) 
+    And it's just another song 
+                           E        (Riff 1) 
+    I'm so happy that it's over 
+                          A 
+    I'm so thankful to be free 
+                       E         B7 
+    I'm beginnin to forget you 
+                    E 
+    Like you forgot me

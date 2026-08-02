@@ -1,0 +1,111 @@
+Boyce Avenue - With Arms Wide Open 
+ 
+Afinação: E A D G C C 
+ 
+[Primeira Parte] 
+ 
+     C                C/B 
+Well I just heard the news today 
+    Am                              G 
+It seems my life is going to change 
+   C              C/B 
+I closed my eyes, begin to pray 
+      Am                          G 
+Then tears of joy stream down my face 
+ 
+[Refrão] 
+ 
+                F 
+With arms wide open 
+          C 
+Under the sunlight 
+         C/B 
+Welcome to this place 
+              Am 
+I'll show you everything 
+               C     C/B 
+With arms wide open 
+               Am    G 
+With arms wide open 
+ 
+[Segunda Parte] 
+ 
+     C               C/B 
+Well I don't know if I'm ready 
+   Am                       G 
+To be the man I have to be 
+     C                            C/B 
+I'll take a breath, I'll take her by my side 
+   Am                          G 
+We stand in awe, we've created life 
+ 
+[Refrão] 
+ 
+     Am        F 
+With arms wide open 
+          C 
+Under the sunlight 
+        C/B 
+Welcome to this place 
+              Am G F 
+I'll show you everything 
+     G         F 
+With arms wide open 
+         C 
+Now everything has changed 
+              C/B 
+I'll show you love 
+              Am G F 
+I'll show you everything 
+     G         C     G 
+With arms wide open 
+ 
+[Solo] 000hhhhh hoooo 
+ 
+[Terceira Parte] 
+ 
+              C                     C/B 
+I'll show you everything ...oh yeah 
+              Am
+
+I'll show you everything 
+              Am 
+I'll show you love 
+         C 
+If I had just one wish 
+     C/B 
+Only one demand 
+ 
+Am   G  C 
+That he can take this life 
+            C/B 
+And hold it by the hand 
+           Am 
+And he can greet this world 
+               G 
+With arms wide open... 
+ 
+[Refrão] 
+ 
+      Am  G    F 
+With arms wide open 
+          C 
+Under the sunlight 
+        C/B 
+Welcome to this place 
+              Am G  F 
+I'll show you everything 
+     Am        F 
+With arms wide open 
+        C 
+Now everything has changed 
+              C/B 
+I'll show you love 
+              Am G F 
+I'll show you everything 
+               C      C/B 
+With arms wide open 
+               Am 
+With arms wide open 
+     G         C 
+With arms wide open

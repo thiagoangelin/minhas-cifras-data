@@ -1,0 +1,54 @@
+Aerosmith - Everything That Touches You 
+ 
+   Gmaj9  Am11 
+In my most secure moments I still can't believe 
+     Gmaj9 
+I'm spending these moments with you 
+Am11 
+On the ground I am walking, the air that I breathe 
+Gmaj9 
+Are shared in these moments with you 
+ 
+Refrão: 
+ F  G 
+You love for real 
+ F  G 
+You show the feel 
+  F   G Am  Am/G    D7/F#          G  C/G G C/G 
+Of everything that tou............ches you 
+ 
+    Gmaj9  Am11 
+In the songs I've been singing quite often a phrase 
+   Gmaj9 
+Comes close to the feeling of you 
+Am11 
+But I never suspected that one of those days 
+Gmaj9 
+The wish of the song would come true 
+ 
+**Refrão 
+ 
+Bridge: 
+G7+/9        G7+/9  Piano Arpeggiates Chord Downward 
+ 
+   N.C. G    F 
+You are of gracefulness 
+  G  F 
+You are of happiness 
+  C    D  C 
+You are what I would guess to be most like 
+ D  G 
+What I've been singing of 
+ 
+**Repeat Intro 
+ 
+   Gmaj9  Am11 
+In my most secure moments I still can't believe 
+     Gmaj9 
+I'm spending these moments with you 
+Am11 
+On the ground I am walking, the air that I breathe 
+Gmaj9 
+Are shared in these moments with you 
+ 
+**Refrão

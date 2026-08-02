@@ -1,0 +1,55 @@
+Roberto Carlos - Furduncio 
+ 
+Bm                             Bm7M     Bm7 
+Aonde ela vai eu vou onde ela está eu estou 
+       Bm                Bm7M   Bm7 
+E cada dia mais doido por ela eu sou 
+          G               D 
+Eu sempre imaginei aquilo tudo pra mim 
+        G                   A7 
+Mas só acreditei quando ela disse que sim 
+          Em7                      Bm 
+Quando ela chega é um furdunço adoidado 
+       Em7                     Bm 
+E todo mundo quer ficar do seu lado 
+        Em7                     Bm 
+Às vezes não quero sair, mas eu saio. 
+        G                         F#7 
+Do que é meu, eu cuido e não me distraio. 
+      Em7                 Bm 
+Aquela maravilha andando sozinha 
+       Em7                      Bm 
+Tem um aviso pra dizer que ela é minha 
+         Em7                  Bm 
+Quebrando tudo de um lado pro outro 
+      G                           F#7 
+Colado nela é que eu me sinto mais solto 
+ 
+Bm                             Bm7M     Bm7 
+Aonde ela vai eu vou onde ela está eu estou... 
+ 
+           Em7                   Bm 
+Quando ela chega todo mundo se encanta 
+          Em7                Bm 
+Quando ela dança todo mundo levanta 
+          Em7                  Bm 
+Pra ver de perto aquela coisa bonita 
+        G                      F#7 
+Que me assanha me provoca, me agita. 
+          Em7               Bm 
+Não deixo aquela maravilha sozinha 
+        Em7                 Bm 
+Causando confusão enquanto caminha 
+         Em7                 Bm 
+Quebrando tudo de um lado pro outro 
+       G                          F#7 
+Colado nela é que eu me sinto mais solto 
+ 
+Bm                             Bm7M     Bm7 
+Aonde ela vai eu vou onde ela está eu estou 
+       Bm                Bm7M   Bm7 
+E cada dia mais doido por ela eu sou 
+           G              D 
+Eu sempre imaginei aquilo tudo pra mim 
+        G                   A7 
+Mas só acreditei quando ela disse que sim (bis)

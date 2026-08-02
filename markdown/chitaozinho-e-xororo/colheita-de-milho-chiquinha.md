@@ -1,0 +1,87 @@
+Chitaozinho E Xororo - Colheita De Milho Chiquinha 
+ 
+[Intro] A F#m D E4 E A A5+ D B7 A E A 
+ 
+                 A 
+Até hoje ainda me lembro 
+                 F#m 
+Era manhã de setembro 
+                   D 
+De sol com intenso brilho 
+                         Bm 
+Eu na frente abrindo as covas 
+                   E7 
+Chiquinha, menina nova 
+                         A 
+Vinha atrás plantando o milho 
+   E7               A 
+O sol dava um bronzeado 
+No seu corpinho rosado 
+     A7              D 
+Lhe dando uma cor morena 
+                       Bm 
+Cada grão que ela plantava 
+                  E7 
+Uma esperança brotava 
+                 A 
+Como brota uma açucena 
+               Bm 
+A natureza não erra 
+                        E7 
+Vi os grãos rachando a terra 
+     D               A 
+E o broto  nascer robusto 
+                 D 
+Em cada braça do eito 
+     E            A 
+Coração roçava o peito 
+      E          A     D A E7 A 
+Como vento no arbusto 
+                   A 
+O milho cresceu depressa 
+                F#m 
+Parecia uma promessa 
+                  D 
+Na minha boca granando 
+                  Bm 
+E no tempo da colheita 
+                   E7 
+Chiquinha, menina feita 
+                    A 
+Era espiga se empalhando 
+      E7         A 
+Numa tarde de pamonha 
+Eu sem jeito, com vergonha 
+    A7             D 
+Já pressentia o perigo 
+                    Bm 
+Fui buscar no milharal 
+                     E7 
+Mais milho para o curau 
+                   A 
+E Chiquinha foi comigo 
+                       Bm 
+Quebrando o milho na chuva 
+                  E7 
+Eu tropeçava nas curvas 
+    D               A 
+Do seu corpinho molhado 
+                  D
+
+Debaixo do pé de milho 
+       E7         A 
+Como espigas no atilho 
+   E7             A 
+Ficamos os dois atados 
+         E7 
+Passou o ano e desta feita 
+       E7          A 
+Vamos ter duas colheitas 
+   E7                A 
+O tempo foi bom pro milho 
+                       A 
+Enquanto crescem as espigas 
+                       E7 
+Chiquinha cresce a barriga 
+                       A 
+Pra colhermos nosso Filho

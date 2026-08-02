@@ -1,0 +1,50 @@
+Milionario E Jose Rico - Amor De Minha Vida 
+ 
+Intr.:   E  A  Bm  E  A  E 
+ 
+     A 
+Não sei por quanto tempo 
+                    Bm 
+Ainda tenho que esperar você 
+     E 
+Com isto o tempo vai passando 
+                      A        E 
+E eu esperando algo acontecer 
+ 
+    A            A7M          A7                 D 
+Talvez até seja inútil este desejo que sinto por ti 
+                   A 
+Eu já não suporto mais 
+                       E 
+Te esquecer não sou capaz 
+ D           E     A 
+Pois preciso de você 
+ 
+E                  D                A 
+Eu já não suporto mais a ansiedade louca 
+E                   D                A 
+Tenho uma vontade imensa de falar contigo 
+E              D               A 
+Acariciar teu rosto e pedir baixinho 
+ E                D     E            A      E  A  Bm  E  A  E 
+Não me abandones nunca amor de minha vida 
+ 
+    A            A7M          A7                 D 
+Talvez até seja inútil este desejo que sinto por ti 
+                   A 
+Eu já não suporto mais 
+                       E 
+Te esquecer não sou capaz 
+ D           E     A 
+Pois preciso de você 
+ 
+E                  D                A 
+Eu já não suporto mais a ansiedade louca 
+E                  D                 A 
+Tenho uma vontade imensa de falar contigo 
+E              D               A 
+Acariciar teu rosto e pedir baixinho 
+ E                D     E            A 
+Não me abandones nunca amor de minha vida 
+ E               Bm      E           A 
+Não me abandones nunca amor de minha vida

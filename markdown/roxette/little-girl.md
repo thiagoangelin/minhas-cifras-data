@@ -1,0 +1,36 @@
+Roxette - Little Girl 
+ 
+(Words & music by Marie Fredriksson) 
+ 
+Intr: Bb F Fm Eb F 
+ 
+ C                                     G 
+ Once upon a time there was a little girl. 
+ Gm                 F          C    G      C 
+ Once she was mine. In my heart the only one. 
+ C                                     G 
+ I wonder where you are. I know you're somewhere in me. 
+ Gm                            F     C      G 
+ I can see your smile when I close, close my eyes. 
+ 
+ C  G         C G             C  G 
+ Oh little girl. Where did you go? 
+ Am         G             F 
+ Little girl, I miss you so. 
+    F           G            Am G 
+ Oh I remember when she was mine. 
+ F            G            C 
+ I remember when she was mine. 
+ 
+  Bb                                   F 
+ Once upon a time there was a little voice. 
+  Fm                            Eb            F 
+ Singing loud and clear. In my heart the only one. 
+  Bb                            F 
+ Once upon a time there were so many dreams. 
+ Fm 
+ Once they were mine. 
+ Eb                       F            Fsus4     F 
+ Oh little girl, they're with, oh they're with you now. 
+ C  G      C    G 
+ Oh little girl...

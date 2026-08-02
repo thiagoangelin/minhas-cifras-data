@@ -1,0 +1,54 @@
+Skank - Reu Rei 
+ 
+Intro 4x: Am Dm 
+ 
+Am            Dm          Am 
+  Desde que você disse nem 
+         Dm               Am 
+  Saber quem foi John Coltrane 
+         Dm          Am 
+  E Noel Rosa era alguém 
+           Dm               Am 
+  Que seus tios gostavam bem 
+        Dm         Am 
+  Eu te amo desde que 
+        Dm       Am 
+  Anjo caído cai 
+          Dm       Am 
+  Desde quando nem vi 
+             Dm 
+  A sombra do amor ali 
+ 
+( Am Dm ) (4x) 
+ 
+Am      Dm 
+  Desde que não fugimos 
+       Am                 Dm     Am 
+  Pras ilhas de sal, pros cimos 
+     Dm               Am 
+  De neve que nunca vimos 
+            Dm           F 
+  Desde que nada infrigimos 
+          E               Am 
+  Aquela tenda que não houve 
+ F         E           Am 
+  Beijo nenhum a boca soube 
+ F         E            Am 
+  Amor ao léu sem quem o louve 
+  Dm                    E 
+  Cego que vê,surdo que ouve 
+ 
+Am         Dm          Am 
+  Quantos pais eu já matei 
+            Dm           Am 
+  Ao mesmo tempo réu e rei 
+             Dm              Am 
+  A lua, o quarto, me deito, me dei 
+         Dm                   Am     Dm    Am 
+  Por perdido assim que te achei 
+         Dm                   Am     Dm    Am 
+  Por perdido assim que te achei 
+         Dm                  ( Am  Dm ) (4x) 
+  Por perdido assim que te achei 
+ 
+(repete tudo)

@@ -1,0 +1,79 @@
+Hanson - Hand In Hand 
+ 
+ 
+ 
+yeah 
+ 
+(say goodbye) 
+ 
+I know just how much i love you 
+But there is no time to explain 
+I realize just what i'd give to 
+Get you back in my arms 
+ 
+And i see you hand in hand with another man 
+And i don't know what you see in him and why you let us go 
+ 
+chorus 
+So if you're gonna lie 
+At least you could just let us die 
+And if you're gonna cry to me baby 
+At least you could just say goodbye 
+ 
+And i'm caught between myself and me 
+And i can't find the bridge 
+From my mind to reality 
+I'm trying to find a place in the sun 
+But i'm drowning in the rain 
+That's falling every place i run 
+ 
+And i see you hand in hand with another man 
+And i don't know what you see in him and why you let us go 
+ 
+So if you're gonna lie 
+At least you could just let us die 
+And if you're gonna cry to me baby 
+At least you could just say goodbye 
+ 
+Well i'm not gonna sit around just waiting for you to get over him 
+So oh, no, no, no 
+Say goodbye 
+Say goodbye now 
+Say goodbye 
+Say goodbye now 
+Say goodbye 
+Say goodbye now 
+Say goodbye now 
+ 
+Well if you're gonna lie 
+Well at least you could just let us die 
+And if you're gonna cry to me baby 
+At least you could just said goodbye 
+ 
+Say goodbye 
+Say goodbye now 
+Say goodbye 
+ 
+Oh yeah 
+ 
+Won't you say goodbye 
+Won't you say goodbye now 
+Won't you say goodbye 
+Say goodbye 
+Say goodbye 
+Say goodbye 
+Say goodbye now 
+Say goodbye 
+Say goodbye now 
+Say goodbye 
+Say goodbye now
+
+Say goodbye now 
+ 
+Won't you kiss me goodbye 
+You've gotta tell me goodbye 
+ 
+Say goodbye 
+Say goodbye now 
+Say goodbye 
+Say goodbye now

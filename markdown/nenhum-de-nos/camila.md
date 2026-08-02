@@ -1,0 +1,96 @@
+Nenhum De Nos - Camila 
+ 
+[Intro] D 
+ 
+[Primeira Parte] 
+ 
+   D9 
+Depois da última noite de festa 
+    Em                      G          D9 
+Chorando e esperando amanhecer, amanhecer 
+ 
+As coisas aconteciam 
+       Em                     G           D9 
+Com alguma explicação, com alguma explicação 
+ 
+Depois da última noite de chuva 
+    Em                      G          D 
+Chorando e esperando amanhecer, amanhecer 
+ 
+Às vezes peço a ele 
+          Em             G    D9 
+Que vá embora, que vá embora, oh 
+ 
+[Refrão] 
+ 
+   C       Bm      Am7 
+Camila, Camila, Camila 
+ 
+  G 
+E eu que tenho medo até de suas mãos 
+ F7M 
+Mas o ódio cega e você não percebe 
+ Bm              C 
+Mas o ódio cega, ah 
+  G 
+E eu que tenho medo até do seu olhar 
+ F7M 
+Mas o ódio cega e você não percebe 
+ Bm              C 
+Mas o ódio cega, ah 
+ 
+[Segunda Parte] 
+ 
+( D9  Em  G  D9 ) 
+ 
+D9 
+As lembranças do silêncio 
+          Em               G     D9 
+Daquelas tardes, daquelas tar...des 
+ 
+Na vergonha  do espelho 
+          Em          G   D9 
+Naquelas marcas daquelas marcas 
+ 
+Havia algo de insano 
+         Em              G6   D9 
+Naqueles olhos, olhos insanos 
+ 
+Os olhos que passavam o dia 
+        Em           G    D9 
+A me vigiar, a me vigiar, oh 
+ 
+[Refrão] 
+ 
+   C      Bm      Am7 
+Camila, Camila, Camila 
+   C      Bm      Am7 
+Camila, Camila, Camila
+
+  C 
+E eu que tinha apenas dezessete anos 
+    Bm 
+Baixava minha cabeça pra tudo 
+         Am7 
+E era assim que as coisas aconteciam 
+ 
+E era assim que eu via tudo acontecer 
+ 
+  C 
+E eu que tinha apenas dezessete anos 
+    Bm 
+Baixava minha cabeça pra tudo 
+         Am7 
+E era assim que as coisas aconteciam 
+ 
+E era assim que eu via tudo acontecer 
+ 
+[Refrão] 
+ 
+   C       Bm  Am7 
+Camila, Camila 
+   C       Bm      Am7 
+Camila, Camila, Camila 
+ 
+[Final] D9  Em  G 
+        D9  Em  G  D9

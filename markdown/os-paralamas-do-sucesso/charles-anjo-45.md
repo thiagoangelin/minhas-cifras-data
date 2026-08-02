@@ -1,0 +1,64 @@
+Os Paralamas Do Sucesso - Charles Anjo 45 
+ 
+Verso 1 
+ 
+Am                D               Am   D 
+   Protetor dos fracos e dos oprimidos 
+Am                  D 
+   Robin Hood dos morros 
+Am               D 
+   Rei da malandragem 
+Am                 D   Am             D      
+   Um homem de verdade   com muita coragem 
+       Am               D 
+   Só porque, porque, porque 
+Am                   D  
+   Charles marcou bobeira 
+          Am            D    Am                 D   
+   Foi tirar férias forçadas    numa colônia penal, oba 
+ 
+  :Am      D          G     C 
+R :   Oba, oba, oba Charles 
+e :Am      D             G      C  
+f :   Como é my friend Charles 
+r :Am    D               G      C  
+ã :Como vão as coisas, Charles? 
+o :Am       D  Am  D 
+  :Charles,   anjo 45 
+ 
+Verso 2 
+ 
+Am          D     Am       D   
+Mas Deus é justo e   verdadeiro 
+             Am       D             Am             D 
+E antes de acabar as férias, nosso Charles vai voltar 
+Am                 D  
+   Para alegria geral 
+Am                     D  
+   Antecipando o carnaval 
+Am              D 
+   Vai ter batucada 
+Am         
+Missa em ação de graças 
+Am                D   
+   Whisky com feijoada 
+           Am   
+E outras milongas mais 
+D 
+Oba! 
+ 
+Am      D          G     C 
+   Oba, oba, oba Charles 
+Am      D             G      C  
+   Como é my friend Charles 
+Am    D               G      C  
+Como vão as coisas, Charles? 
+(Am F/A D/A G/A) 
+Charles,   anjo 45 
+ 
+Am       D  Am  D 
+Charles,   anjo 45 
+Am                D               Am   D 
+   Protetor dos fracos e dos oprimidos 
+ 
+(Verso 2, Refrão)

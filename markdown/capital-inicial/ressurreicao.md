@@ -1,0 +1,77 @@
+Capital Inicial - Ressurreicao 
+ 
+Intro 2x:  Am  Dm  C  Em 
+ 
+Am                                     Dm 
+De coroa de espinhos, dormindo no volante 
+C                            Em 
+Uma vida gloriosa um minuto irrelevante 
+Am                                Dm 
+Um ataque de bondade em várias cores e tamanhos 
+C                                    Em 
+Dando balas e cigarros e caronas a estranhos 
+ 
+C 
+Carros passam dizendo sim 
+G 
+O sinal gritando não 
+Am                                   F 
+Deve ser isso que chamam de ressureição 
+ 
+C 
+Hollywood dizendo sim 
+G 
+A televisão gritando não 
+Am                                   F 
+Deve ser isso que chamam de ressureição 
+ 
+(Intro) 
+ 
+Am                                   Dm 
+Pregado numa cruz, dirigindo sem as mãos 
+C                            Em 
+Jogando fora o futuro sem motivo prá pedir perdão 
+Am 
+Segunda feira meio dia, 
+Dm 
+Acabe antes que comece outra vez 
+C 
+Se desespere, ninguém está do seu lado 
+Em 
+Dá tudo certo se fizer tudo errado 
+ 
+C 
+Das ruas acenam que sim 
+G 
+Das janelas gritam que não 
+Am                                   F 
+Deve ser isso que chamam de ressureição 
+ 
+C 
+Ouço o povo dizendo sim 
+G 
+Vejo a multidão gritando não 
+Am                                   F 
+Deve ser isso que chamam de ressureição 
+ 
+Solo: ( Am Dm ) (6x) 
+ 
+pm   .................................... 
+ 
+        (x2)                               (x2) 
+ 
+C 
+Ouço o povo dizendo sim 
+G 
+Vejo a multidão gritando não 
+Am                                   F 
+Deve ser isso que chamam de ressureição
+
+C 
+A cidade acha que sim 
+G 
+A nação acha que não 
+Am                                   F 
+Deve ser isso que chamam de ressureição 
+ 
+(Intro 2x)

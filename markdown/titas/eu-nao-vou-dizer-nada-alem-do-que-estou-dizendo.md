@@ -1,0 +1,89 @@
+Titas - Eu Nao Vou Dizer Nada Alem Do Que Estou 
+Dizendo 
+ 
+Intro 6x: F Eb 
+ 
+F            Eb 
+Eu não vou falar de amor 
+F           Eb 
+E nem vou falar do tempo 
+F            Eb 
+Eu não vou dizer nada 
+F             Eb           Bb Eb F 
+Além do que estou dizendo 
+Bb 
+Eu não vou dizer 
+Eb    F         Bb    Eb F 
+O que realmente penso 
+Bb 
+Até mesmo porque 
+Eb       F        Bb Eb F 
+Não tenho nada a dizer 
+Bb 
+Eu não vou dizer 
+Eb    F          Bb Eb F 
+O que realmente sinto 
+Bb 
+Até mesmo porque 
+Eb             F            F Eb 
+Não é o que eu quero fazer 
+F          Eb 
+Eu não vou falar de culpa 
+F          Eb 
+E nem de arrependimento 
+F                Eb 
+Mas só do que eu digo agora 
+F         Eb 
+E aqui neste momento 
+Bb 
+Eu não vou falar 
+Eb        F          Bb Eb F 
+De novo o que eu falei 
+Bb 
+Eu não vou falar 
+Eb         F         Bb Eb F 
+De mim nem de ninguém 
+Bb 
+Eu não vou falar 
+Eb         F         Bb Eb F 
+De coisas que eu não sei 
+Bb 
+E nem vou falar 
+Eb        F          Bb Eb F 
+Do que eu conheço bem 
+G# 
+Eu não vou contar uma história 
+Cm 
+E nem vou dar explicação 
+G# 
+Eu não vou falar de flores 
+Cm 
+E nem da televisão 
+G# 
+Eu não vou falar de nada 
+Cm 
+Eu não vou falar de nada 
+F           Eb 
+E isso é só o que basta 
+F           Eb 
+Pra fazer esta canção
+
+ 
+Solo 4x: Bb Eb F  
+ 
+G# 
+Eu não vou contar uma história 
+Cm 
+E nem vou dar explicação 
+G# 
+Eu não vou falar de flores 
+Cm 
+E nem da televisão 
+G# 
+Eu não vou falar de nada 
+Cm 
+Eu não vou falar de nada 
+F           Eb 
+E isso é só o que basta 
+F           Eb 
+Pra fazer esta canção

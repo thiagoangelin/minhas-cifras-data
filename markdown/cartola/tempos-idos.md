@@ -1,0 +1,59 @@
+Cartola - Tempos Idos 
+ 
+Introd: Em7 Gm7 F#m7 B7 Em A7 D6/9 
+ 
+          D6/9 
+Os tempos idos 
+           F° 
+Nunca esquecidos 
+          Em            A7 
+Trazem saudades ao recordar 
+          D6/9          F° 
+É com tristezas que relembro 
+         Em                A7 
+Coisas remotas que não vêm mais 
+ 
+      Am7           D7 
+Uma escola na Praça Onze 
+     G7       G6 
+Testemunha ocular 
+         E7/9 
+E, perto dela, uma balança 
+          Em7            A7 
+Onde os malandros iam sambar 
+ 
+            D6/9            F° 
+Depois, aos poucos, o nosso samba 
+       Em7              A7 
+Sem sentirmos, se aprimorou 
+        Am7          D7 
+Pelos salões da sociedade 
+        G7           B7 
+Sem cerimônia, ele entrou 
+ 
+          Em           Gm7 
+Já não pertence mais à Praça 
+       F#m7          B7 
+Já não é samba de terreiro 
+      Gm6         A7/13            D6/9 
+Vitorioso, ele partiu para o estrangeiro 
+ 
+                    Em7 
+E muito bem representado 
+           A7               D6/9 
+Por inspiração de geniais artistas 
+ 
+        Am7            D7 
+O nosso samba, humilde samba 
+          G7            G6 
+Foi de conquistas em conquistas 
+ 
+     Gm 
+Conseguiu penetrar no Municipal 
+                A7            D6/9 
+Depois de percorrer todo o universo 
+ 
+               B7               E7/9 
+Com a mesma roupagem que saiu daqui 
+   Em7                      A7             D6/9 
+Exibiu-se para a duquesa de Kent no Itamaraty

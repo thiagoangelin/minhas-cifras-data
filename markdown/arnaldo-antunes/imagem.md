@@ -1,0 +1,30 @@
+Arnaldo Antunes - Imagem 
+ 
+   A     G 
+Palavra lê 
+    D/F#     E 
+Paisagem contempla 
+  A      G 
+Cinema assiste 
+ D/F#  C 
+Cena   vê 
+ A     G 
+Cor enxerga 
+ D/F#    E 
+Corpo observa 
+ A      G 
+Luz vislumbra 
+ D/F#   C 
+Vulto avista 
+ A    G 
+Alvo mira 
+D/F#  E 
+Céu admira 
+A         G 
+Célula examina 
+   D/F#  C 
+Detalhe nota 
+  A     G 
+Imagem fita 
+ D/F#  C 
+Olho olha

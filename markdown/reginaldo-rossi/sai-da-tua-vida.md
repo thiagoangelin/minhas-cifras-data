@@ -1,0 +1,54 @@
+Reginaldo Rossi - Sai Da Tua Vida 
+ 
+[Intro] Am  E7  Am  E7  Am 
+ 
+             E7                   Am 
+Na hora do adeus, você olhou pra mim 
+             E7                   Am 
+E não acreditou, ao ver chegar o fim 
+               Dm  G7                 C 
+Tentou me seduzir,   chorando me agarrou 
+ Am             Dm     E7          Am  A7 
+Teu corpo ofereceu, pediu me suplicou 
+ 
+             Dm      G7               C 
+E perguntou por que,mas eu não respondi 
+ Am                Dm          E7     Am  A7 
+Só pra não te ofender, disse adeus e saí 
+            Dm                 G7                C 
+Saí da tua vida eu só representava, cheque no final do mês 
+             Am                    Dm 
+Você não respeitou quem te amou demais 
+              E7                   Am  A7 
+Só abusou de mim e me passou pra trás 
+ 
+            Dm                G7                C 
+Saí da tua vida de cabeça erguida, coisa que você não fez 
+                Am                   Dm 
+Eu já chorei demais agora vem a sua vez 
+                 E7                       Am 
+Eu acho que vai ser melhor, melhor pros três 
+ 
+( Am  E7  Am  E7  Am ) 
+ 
+             Dm      G7               C 
+E perguntou por que,mas eu não respondi 
+ Am                Dm          E7     Am  A7 
+Só pra não te ofender, disse adeus e saí 
+            Dm                 G7                C 
+Saí da tua vida eu só representava, cheque no final do mês 
+             Am                    Dm 
+Você não respeitou quem te amou demais 
+              E7                   Am  A7 
+Só abusou de mim e me passou pra trás 
+            Dm                G7                C 
+Saí da tua vida de cabeça erguida, coisa que você não fez 
+                Am                   Dm 
+Eu já chorei demais agora vem a sua vez 
+                 E7                       Am 
+Eu acho que vai ser melhor, melhor pros três 
+ 
+             E7                   Am 
+Na hora do adeus, você olhou pra mim 
+             E7                   Am 
+E não acreditou, ao ver chegar o fim

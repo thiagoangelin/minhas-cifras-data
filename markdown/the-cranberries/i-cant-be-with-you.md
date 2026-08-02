@@ -1,0 +1,75 @@
+The Cranberries - I Cant Be With You 
+ 
+[Intro]  Bb  F  Gm  Eb 
+ 
+ Bb          F 
+Lying in my bed again 
+        Gm                  Eb 
+And I cry cause you're not here 
+  Bb          F 
+Crying in my head again 
+        Gm                 Eb 
+And I know that it's not clear 
+          Bb 
+Put your hands, put your hands 
+F                   Gm                 Eb 
+Inside my face and see that it's just you 
+          Bb 
+But it's bad and it's mad 
+          F 
+And it's making me sad 
+        Gm               Eb 
+Because I can't be with you 
+ 
+         Bb           F 
+Be with you, be with you 
+         Gm           Eb 
+Be with you, be with you 
+         Bb           F 
+Be with you, be with you 
+        Gm            Eb 
+Baby I can't be with you 
+ 
+  Bb              F 
+Thinking back on how things were 
+     Gm              Eb 
+And how we loved so well 
+   Bb               F 
+I wanted to be the mother of your child 
+     Gm              Eb 
+And now it's just farewell 
+          Bb 
+Put your hands in my hands 
+     F                  Gm          Eb 
+And come with me We'll find another end 
+        Bb 
+And my head, and my head 
+     F 
+On anyone's shoulder 
+ Gm                    Eb 
+Cause I can't be with you 
+ 
+         Bb           F 
+Be with you, be with you 
+         Gm           Eb 
+Be with you, be with you 
+         Bb           F 
+Be with you, be with you 
+        Gm            Eb 
+Baby I can't be with you 
+ 
+                  Bb               F 
+Cause you're not here, you're not here 
+        Gm            Eb 
+Baby I can't be with you 
+                  Bb               F 
+Cause you're not here, you're not here 
+           Gm                Eb 
+Baby I'm still in love with you
+
+La-la-la 
+ 
+( Bb  F  Gm  Eb ) 
+ 
+And baby I'm still in love with you 
+Na na na na na na still in love with you

@@ -1,0 +1,94 @@
+Cassia Eller - Lanterna Dos Afogados 
+ 
+[Intro] E  F#  D#m  G#m 
+ 
+     E 
+Quando tá escuro 
+          F# 
+E ninguém te ouve 
+           D#m 
+Quando chega a noite 
+        G#m 
+E você pode chorar 
+        E 
+Ha uma luz no túnel 
+            F# 
+Dos desesperados 
+       D#m 
+Ha um cais de porto 
+             G#m 
+Pra quem precisa chegar 
+ 
+          E 
+Eu to na lanterna dos 
+      F# 
+Afogados 
+       D#m 
+Eu to te esperando 
+       G#m             A 
+Vê se não vai demorar 
+ 
+        E 
+Uma noite longa 
+        F# 
+P'ruma vida curta 
+        D#m 
+Mas já não me importa 
+       G#m 
+Basta poder te ajudar 
+       E 
+E são tantas marcas 
+          F# 
+Que já fazem parte 
+            D#m 
+Do que soou agora 
+               G#m 
+Mas ainda sei me virar 
+ 
+          E 
+Eu to na lanterna dos 
+      F# 
+Afogados 
+       D#m 
+Eu to te esperando 
+       G#m             A 
+Vê se não vai demorar 
+ 
+[Solo] A  E  F#m  D#m  G#m 
+       E  F#m  D#m  G#m 
+ 
+          E 
+Eu to na lanterna dos 
+      F# 
+Afogados 
+       D#m 
+Eu to te esperando 
+       G#m           A 
+Vê se não vai demorar 
+ 
+[Solo - Final]
+
+ 
+Uma noite longa 
+        F# 
+P'ruma vida curta 
+        D#m 
+Mas já não me importa 
+       G#m 
+Basta poder te ajudar 
+       E 
+E são tantas marcas 
+          F# 
+Que já fazem parte 
+            D#m 
+Do que soou agora 
+               G#m 
+Mas ainda sei me virar 
+          E 
+Eu to na lanterna dos 
+      F# 
+Afogados 
+       D#m 
+Eu to te esperando 
+       G#m            A 
+Vê se não vai demorar

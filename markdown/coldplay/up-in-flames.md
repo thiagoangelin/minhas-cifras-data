@@ -1,0 +1,58 @@
+Coldplay - Up In Flames 
+ 
+Intro: Bb 
+ 
+ D# Cm7 A# 
+So it's over 
+      G#    Cm7        A# 
+This time I know it's gone 
+     D# Cm7 A# 
+Salt water 
+ G#    Cm7     A# 
+tasted it too long 
+       G# D# A# 
+I only know I'm wrong 
+      G# D# A# 
+now I know it's gone 
+ 
+        G# Cm7 A# 
+Up in flames 
+        G# Cm7 A# 
+Up in flames 
+        G# Cm7 A# 
+Up in flames 
+        D# Cm7 A# 
+We have slowly gone 
+ 
+         D# Cm7 A# 
+So it's over 
+      G#           Cm7   A# 
+this time you're flying on 
+      G#     Cm7      A# 
+this time i know no song 
+               G# D# A# 
+can stop its slowly burn 
+               G# D# A# 
+can stop its slowly gone 
+ 
+        G# Cm7 A# 
+Up in flames 
+        G# Cm7 A# 
+Up in flames 
+        G# Cm7 A# 
+Up in flames 
+         D# Cm7 A# 
+We have slowly gone 
+ 
+        G# Cm7 A# 
+Up in flames 
+        G# Cm7 A# 
+Up in flames 
+        G# Cm7 A# 
+Up in flames 
+         D# Cm7 A# 
+We have slowly gone 
+         D# Cm7 A# 
+We have slowly gone 
+                       G# 
+Can we pour some water on?

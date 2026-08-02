@@ -1,0 +1,37 @@
+Jota Quest - As Dores Do Mundo 
+ 
+[Intro] 
+ 
+  Am          Am7M 
+O teu olhar caiu no meu 
+  Am7         Dm7 
+A tua boca na minha se perdeu 
+    Fm7             Am7 
+Foi tudo lindo tão lindo foi 
+       Dm7                 G7 
+Que eu nem me lembro o que veio depois 
+ 
+  Am         Am7M 
+A tua voz  dizendo amor 
+    Am7              Dm7 
+Foi tão bonito que o tempo ate parou 
+Fm7            Am7 
+De duas vidas uma se fez 
+     Dm7 
+E eu me senti 
+   G7 
+Nascendo outra vez 
+ 
+[Refrão] 
+     C7+               Dm7 
+E eu vou esquecer de tudo 
+             Em7 
+As dores do mundo 
+             F               G7 
+Não quero saber quem fui mas sim quem sou 
+    C7+               Dm7 
+E eu vou esquecer de tudo 
+             Em7 
+As dores do mundo 
+             F             G7 
+Só quero saber do seu do nosso amor

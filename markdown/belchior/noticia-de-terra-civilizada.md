@@ -1,0 +1,54 @@
+Belchior - Noticia De Terra Civilizada 
+ 
+(intro) E A B7 A E B7 
+ 
+        E           B7       E 
+Era uma vez um cara do interior 
+         A   B7                     E 
+Que vida boa   agua fresca e muito mais 
+        B7                    E 
+Rádio notícia de terra civilizada 
+                     A     B7 
+Entram no ar da passarada 
+        E 
+E adeus paz 
+A                 E 
+Agora é vencer na vida 
+                B7 
+O bilhete só de ida 
+                  E 
+Da fazenda pro mundão 
+A                    E 
+Segue sem mulher nem filhos 
+                     B7 
+Oh! Brilho cruel dos trilhos 
+                      E 
+Do trem que sai do sertão 
+G#              C#m 
+ E acreditou no sonho 
+          B 
+Da cidade grande 
+                     E 
+E enfim se mandou um dia 
+G#                C#m 
+ E vindo viu e perdeu 
+                  B 
+E foi parar por engano 
+           E 
+Numa delegacia 
+A                E 
+Lido e corrido relembra 
+               B7 
+Um ditado esquecido 
+                 E 
+Antes de tudo um forte 
+A                 E 
+Com fé em Deus um dia 
+            B7 
+Ganha a loteria 
+               E 
+Pra voltar pro Norte 
+B7       E 
+Era uma vez um cara 
+B7       E 
+Do interior

@@ -1,0 +1,33 @@
+Clara Nunes - Festa Para Um Rei Negro 
+ 
+G                                  E7       Am 
+Nos anais de nossa história fomos encontrar  
+                 D7                     G   D7 
+Personagem de outrora que queremos recordar  
+ G                     G7              C 
+Sua vida, sua glória, seu passado imortal  
+ Cm        G      E7      Am      D7        G 
+Que be...leza     a nobreza do tempo colonial  
+ 
+D7    G    E7    Am 
+Ôh lê lê,    ôh lá lá,  
+     D7      G 
+Pega no ganzê, pega no ganzá  
+ 
+ G                          E7             Am 
+Hoje tem festa na aldeia, quem quiser pode chegar  
+                     D7                    G       D7 
+Tem reizado a noite inteira e fogueira pra queimar  
+ G                       G7                C 
+Nosso rei chegou de longe pra poder nos visitar  
+    Cm           G    E7          Am        D7        G 
+Que be...........leza         a nobreza que visita o gongá  
+ 
+ G                     E7               Am 
+Senhora dona da casa, traz seu filho pra cantar  
+                        D7                    G      D7 
+Para um rei que veio de longe, pra poder nos visitar  
+G                    G7                   C 
+Esta noite ninguém chora e ninguém pode chorar  
+  Cm         G     E7      Am       D7         G 
+Que be.......leza     a nobreza que visita o gongá

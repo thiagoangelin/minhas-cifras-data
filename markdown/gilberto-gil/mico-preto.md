@@ -1,0 +1,42 @@
+Gilberto Gil - Mico Preto 
+ 
+ 
+          A7      Dm               G7             
+Eu nunca dei um jeitinho vim devagarinho pensando 
+   Em             A7 
+Tentando acertar 
+                     Dm               G7 
+Neguinho não me deu nada a não ser porrada, sermão 
+       Gm       C7 
+Passa fora e eu lá 
+                  F7M              Fm7                  E7 
+Tem parasita na ativa exportando divisa e eu suando a camisa 
+              A7             D7 
+Por honra da firma a vida é assim 
+E até minha gata dá pra todo mundo 
+Só não dá pra mim 
+ 
+        A7        Dm             G7 
+Se um bacana me chuta eu peço desculpa 
+              Em 
+Que luta pra não complicar 
+        A7        Dm                G7 
+Se me chamar de bagaço agradeço obrigado 
+             Gm        C7          
+Um abraço é isso aí até já 
+                    F7M             Fm7 
+Não tenho tempo pra sarro o sapato furou 
+          E7                A7 
+Acabou o cigarro meu time perdeu 
+               Dm       Em          F7M 
+Guincharam meu carro pisaram no meu calo 
+   G7      C       G7        C 
+E até a comida o cahorro comeu 
+F7M        Fm7       Em          A7 
+Eu sou o brasileiro adoro esse coreto 
+ Dm           G7    Gm7       C7 
+E agora ou nunca já não tem talvez 
+F7M          Bb7    E7         A7 
+Tão me dando gelo tirei o mico preto 
+  Dm   Em   F7M G7  C7M 
+Mas vem aí a minha vez

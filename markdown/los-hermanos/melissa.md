@@ -1,0 +1,54 @@
+Los Hermanos - Melissa 
+ 
+Intro: Bbm (repetidamente) 
+ 
+Obs:Use o Bbm com pestana na 6ª casa e o Ab com pestana na 
+ 4ª casa...Acho q o som 
+sai mais parecido 
+ 
+ Bbm                Ab 
+Melissa premissa de vida 
+ Gb    Ab     Bbm 
+Amiga atiça o amor 
+ Bbm                 Ab 
+Melissa cobiça esquecida 
+  Gb      Ab        Db 
+Castiga meu peito de dor 
+ Db                    Ab 
+Eu sofro em dobro o mundo 
+      Gb   Ab         Db 
+Mas num segundo ganho a paz 
+ Db                  Ab           Gb    Ab       Bbm 
+Pois teu sorriso mudo pra mim é tudo e nada mais 
+ Bbm                  Ab 
+Melissa avisa ao meu peito 
+ Gb    Ab          Bbm 
+Despeito de ti nunca mais 
+ Bbm                     Ab 
+Meu beijo é teu por direito 
+ Gb    Ab           Db 
+Pra dá-lo a ti sou capaz 
+  Db                   Ab 
+De dar a volta ao mundo 
+ Gb              Ab    Db 
+No segundo mais veloz 
+ Db                Ab 
+Te juro eu faço tudo 
+  Gb         Ab             Bbm 
+Pra poder ouvir sua voz dizer 
+ Gb            Bbm 
+Que gosta de mim 
+ Db                   Ab 
+Mesmo sendo como amigo 
+ Gb            Bbm 
+Que gosta de mim 
+ Db                     Ab 
+Que eu sou teu preferido 
+ Db              Ab 
+Que gostas de mim, 
+ Gb         Ab     Bbm       Ab        Gb 
+Mesmo sabendo que eu sou, assim, assim, 
+ Ab         Bbm 
+meio acanhado. 
+ 
+Bom é isso!

@@ -1,0 +1,40 @@
+The Rolling Stones - Dont Cha Bother Me 
+ 
+       D                               A 
+I said Oh no ! Don't cha bother me no more 
+       D                                A 
+I said Oh no ! Don't cha bother me no more 
+       E7                          D               A 
+Well I'm looking for my face and I got no place to go 
+ 
+         D                               A 
+I said Oh no ! Don't cha bother me no more 
+          D                              A 
+I said Oh no ! Don't cha bother me no more 
+       E7                     D                  A 
+Well pick your own mine and don't touch mine no more 
+ 
+          E7 
+Well I'm still waiting here for a single idea 
+ 
+In your clothes and your hair , I wore it last year 
+   D7                            A 
+Oh no ! Don't cha bother me no more 
+ 
+(solo) D A D A E7 A 
+ 
+         D                              A 
+I said Oh no ! Don't cha bother me no more 
+         D                            A 
+I said Oh no ! Don't cha copy me no more 
+          E7                       D                         A 
+Well the lines a down my eyes are protected by a copyright law 
+ 
+           E7 
+All the clubs and the bars and the little red cars 
+                                        D 
+Not knowing why but trying to get high no, 
+                         A 
+ Don't cha bother me no more 
+ Don't cha bother 
+ Don't cha bother

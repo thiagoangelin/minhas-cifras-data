@@ -1,0 +1,45 @@
+Johnny Cash - Love Is The Way 
+ 
+      D                          G                        
+        Deep in the heart of the infinite darkness 
+           D                    E                A 
+        A tiny blue marble is spinning through space 
+         D                       G 
+        Born in the splendor of God's holy vision 
+              D                  A             D    
+        And sliding away like a tear down his face 
+ 
+Verse 2: (Johnny) 
+      D       G                  D    
+        The closer you see the whole wide holy wonder 
+                                     E           A 
+        Of oceans and mountains and rivers and trees 
+                   D                   G  
+        And the strangest creation of many,the human 
+            D                        A           D 
+        A creature of laughter and Freedom and dreams 
+ 
+Verse 3: (A tone higher) (Waylon) 
+      E                                   A 
+        Now the warriors are waving their old rusty sabres 
+              E                          F#        B  
+        And preachers are preaching the gospel of hate 
+         E                         A  
+        By their behavior they're determined to teach us 
+           E                       B            E 
+        A lesson we're soon to be learning too late 
+ 
+Verse 4: (Johnny) 
+      E        A                       E 
+        Look closer my brother, we're killing each other 
+                                       F#       B 
+        And we'd better stop and get started today 
+                 E                        A 
+        Because life is the question and life is the answer 
+             E                     B           E 
+        And God is the reason and love is the way. 
+ 
+                                          A 
+        Because life is the question and life is the answer 
+             E                     B           E   
+        And God is the reason and love is the way.

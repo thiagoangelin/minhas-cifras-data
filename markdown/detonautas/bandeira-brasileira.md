@@ -1,0 +1,53 @@
+Detonautas - Bandeira Brasileira 
+ 
+Am 
+Ele acende uma vela pra Deus e outra pro diabo 
+Am 
+Tem carreira, canudo, gilete, espelho, perfume e nariz 
+                                E 
+Mas vende água benta. 
+Am 
+Diz que é amigo de rico e amigo de pobre 
+Am 
+Diz que é meu amigo, mas diz também que é amigo seu 
+                              E 
+mas só se apresenta... 
+                            Am                 G  G7 
+Em ano de Seleção 
+Am 
+Temos craques por todo país 
+Am 
+temos padre pastor e terreiro 
+  F 
+Samba mulata e bicheiro 
+  G 
+O Brasil é o país da mistura 
+Am 
+Deputado que é agricultor 
+Am 
+Senador que é empreiteiro 
+ F 
+Vamos todos pular carnaval 
+ G 
+e Viva a bandeira Brasileira 
+Am 
+Mas eu não sei de nada. 
+F 
+Eu não sei de nada. 
+G 
+Viva a bandeira Brasileira. 
+(repete toda musica) 
+Am 
+Viva a bandeira Brasileira.(2x) 
+F 
+Viva a bandeira Brasileira 
+G 
+Viva a bandeira Brasileira\ 
+Am 
+Viva a bandeira Brasileira(2x) 
+F 
+Viva a bandeira Brasileira 
+G 
+Viva a bandeira Brasileira 
+Am                   F           G 
+A, E, I, O, U, IPISCILONE, IPISCILONE

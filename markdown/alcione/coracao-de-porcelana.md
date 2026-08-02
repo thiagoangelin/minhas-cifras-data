@@ -1,0 +1,60 @@
+Alcione - Coracao De Porcelana 
+ 
+Intr. Bm  Em  Db°  Bb° 
+ 
+Bm 
+Na tentativa de sentir teu gosto 
+         Em 
+Minha emoção tem sido tão fulgás 
+        Db°                    Bb° 
+Em cada corpo que não vê o teu rosto 
+              Bm                 F# 
+Faz carinho e sexo, mas amor não faz. 
+ 
+        Bm 
+E a solidão é a porta da loucura 
+        Em 
+Essa saudade não me deixa em paz. 
+         Db°                Bb° 
+E o meu desejo quando te procura, 
+           Bm    Db°   D     B7 
+Da nesse vazio que me dói demais. 
+ 
+           Em                   A 
+E o teu silencio grita em meus ouvidos 
+          D               Bm 
+Teu beijo vive no meu paladar. 
+                 Db°            Bb° 
+Te sinto em cada um dos meus sentidos 
+        Bm                 B7 
+Em pensamento chego a te tocar. 
+         Em                  A 
+Virou um vício esta paixão insana, 
+            D                             Bm 
+Cuidado, é frágil. Te avisei só pra te lembrar, 
+        Db°             Bb° 
+Meu coração é pura porcelana, 
+             Bm   F# 
+E pode se quebrar. 
+ 
+Bm 
+Onde andará? Que paixões terá? 
+Em 
+Quando voltará? Ou me esquecerá? 
+   A 
+Me diz se devo insistir no sonho 
+                    D 
+Ou desiludir de uma vez 
+          Em           F# 
+Tire as algemas do meu coração 
+ 
+Bm 
+Não, não vou deixar, Você me deixar. 
+Em 
+Falei por falar, volta pra ficar. 
+    A 
+Me ajude a ver de novo a  luz do sol 
+               D 
+Me poupe por favor do desprazer que 
+     Em            F# 
+deve ser morrer de amor.

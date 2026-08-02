@@ -1,0 +1,41 @@
+Engenheiros Do Hawaii - Ilex Paraguaienses 
+ 
+Intro: E A9 
+ 
+( E  A9  E  A9  B ) 
+Hoje eu acordei mais cedo, tomei sozinho o chimarrão 
+Procurei a noite na memória... procurei em vão 
+Hoje eu acordei mais leve (nem li o jornal) 
+Tudo deve estar suspenso... nada deve pesar 
+Já vivi tanta coisa, tenho tantas a viver 
+Tô no meio da estrada e nenhuma derrota vai me vencer 
+B                 A   B                    A 
+Hoje eu acordei livre: não devo nada a ninguém 
+B                   A 
+Não há nada que me prenda 
+ ( E  A9 ) 
+Ainda era noite, esperei o dia amanhecer 
+Como quem aquece a água sem deixar ferver 
+B                 A           B           A 
+Hoje eu acordei, agora eu sei viver no escuro 
+B                   A 
+Até que a chama se acenda 
+C#m                                               B 
+Verde... quente... erva... ventre... dentro... entranhas 
+C#m                                  B       E B E B 
+Mate amargo noite adentro estrada estranha 
+ 
+ ( E D B ) 
+Nunca me deram mole, não (melhor assim) 
+Não sou a fim de pactuar (sai pra lá) 
+Se pensam que tenho as mãos vazias e frias (melhor assim) 
+Se pensam que as minhas mãos estão presas (surpresa) 
+C#m                                     B 
+Mãos e coração, livres e quentes: chimarrão e leveza 
+C#m                                     B 
+Mãos e coração, livres e quentes: chimarrão e leveza 
+ 
+ ( E A9 E A9 B ) 
+... ilex paraguariensis... 
+ ( E A9 E A9 B ) 
+... ilex paraguariensis...

@@ -1,0 +1,78 @@
+Oasis - I Wanna Live In A Dream In My Record 
+Machine 
+ 
+A        (0,0,2,2,2,0) 
+a7Madd11 (0,0,7,7,8,0) 
+am7add11 (0,0,7,7,7,0) 
+G        (3,2,0,0,3,3) 
+G/F#     (2,0,0,2,3,3) 
+D/F#     (2,0,0,2,3,2) 
+F        (0,3,3,2,1,0) 
+E        (0,2,2,1,0,0) 
+ 
+Start on A  slide up to a7Madd11 then play am7Madd11 X 2 
+ 
+A        a7Madd11   am7Madd11           A            a7Madd11 
+Help me   To find a light thats shining on me 
+         am7Madd11        A            a7Madd11 
+Together what we've taken from me 
+             am7Madd11       A 
+Lit a little fire where it's cold 
+ 
+A a7Madd11 am7Madd11 
+ 
+A          a7Madd11           am7Madd11        A         a7Madd11 
+Show me        that path that leads to all the glory 
+               am7Madd11     A        a7Madd11 
+The words that tell a sacred story 
+             am7Madd11        A 
+Lit a little fire where it's cold 
+ 
+                 A                    G      D/F# 
+Wanna live in a dream, in my record machine 
+                     A                            G      D/F# 
+I wanna piece of the world and everyone inside my mouth 
+                    A                        G      D/F# 
+Coz all the money I waste, isn't a matter of taste 
+                     A                                   G     D/F# 
+I wanna piece of the world and you can't make me spit it out 
+ 
+ A      G      D/F# 
+ 
+A        G             D/F#               A        G 
+Take me, back from the darkness where it sent me 
+              D/F#            A           G 
+Give hope to places where it can't be 
+               D/F#            A      G     D/F# 
+With a little fire where it's cold 
+ 
+                 A                    G      D/F# 
+Wanna live in a dream, in my record machine 
+                     A                            G      D/F# 
+I wanna piece of the world and everyone inside my mouth 
+                    A                        G      D/F# 
+Coz all the money I waste, isn't a matter of taste 
+                     A                                   G     D/F# 
+I wanna piece of the world and you can't make me spit it out 
+ 
+Strum A 
+ 
+A   G   D/F#  F 
+A   G   D/F#  E 
+A   G   D/F#  F 
+A   G   D/F#  E   G 
+ 
+F               G                 C           G 
+Can't give me a reason, I'm gonna need one to shine 
+F                 G                     C         G 
+Can't give me the feelings, coz they're already mine 
+F           G                 C        G          F
+
+Yeah one in million, but the sun won't rise on my soul 
+          E 
+Then I'll go oh oh oh oh 
+ 
+A          G          D/F# 
+A          G          D/F# 
+A          G          D/F# 
+A          G          D/F#     F      G     A

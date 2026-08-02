@@ -1,0 +1,45 @@
+Lourenco E Lourival - Amor Distante 
+ 
+[Intro] E  B7  E  B7 
+ 
+E                                            B7 
+Se eu fosse uma passarinho queria voar no espaço 
+                                                E 
+E sentar de vagarinho na voltinha do seus braços 
+   A                                               B7 
+Pra gozar dos seus carinho pra aliviar a dor que passo 
+ 
+Queria te dar um beijinho e depois um forte abraço 
+ 
+( E  B7  E  B7 ) 
+ 
+E                                       B7 
+Depois que você partiu minha vida é sofrer 
+                                             E 
+Me escreva sem demora estou louco pra saber 
+ A                                         B7 
+O lugar que você mora, também quero lhe escrever 
+ 
+Marcando pra qualquer hora um encontro com você 
+ 
+( E  B7  E  B7 ) 
+ 
+E                                           B7 
+Você foi e me deixou numa negra ansiedade 
+                                           E 
+Sofrendo tanta amargura e chorando de saudade 
+ A                                            B7 
+Meu coração não resiste pra dizer mesmo a verdade 
+ 
+Para mim já não existe a tal de felicidade 
+ 
+( E  B7  E  B7 ) 
+ 
+E                                           B7 
+É um ditado muito certo quem ama nunca esquece 
+                                                E 
+Quem tem seu amor distante chora, suspira e padece 
+ A                                            B7 
+Coração sofre bastante, saudade no peito cresce 
+                                               E A E 
+Se você tem outro amor seja franca e me esclarece

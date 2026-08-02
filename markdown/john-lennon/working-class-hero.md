@@ -1,0 +1,71 @@
+John Lennon - Working Class Hero 
+ 
+ 
+  Am                         G             Am 
+As soon as you're born they make you feel small 
+                           G          Am 
+ By giving you no time instead of it all 
+                                  G         Am 
+ Till the pain is so big you feel nothing at all 
+ 
+    Am                    G          Am 
+A working class hero is something to be 
+    Am                    G   D      Am 
+A working class hero is something to be 
+ 
+Am                              G          Am 
+They hurt you at home and they hit you at school 
+ 
+                                         G         Am 
+They hate you if you're clever and they despise a fool 
+ 
+                                        G            Am 
+Till you're so fucking crazy you can't follow their rules 
+ 
+    Am                    G          Am 
+A working class hero is something to be 
+    Am                    G    D     Am 
+A working class hero is something to be 
+ 
+                                           G          Am 
+When they've tortured and scared you for twenty odd years 
+                         G        Am 
+Then they expect you to pick a career 
+ 
+                                        G         Am 
+When you can't really function you're so full of fear 
+ 
+    Am                    G          Am 
+A working class hero is something to be 
+    Am                    G    D     Am 
+A working class hero is something to be 
+ 
+                                 G       Am 
+Keep you doped with religion and sex and TV 
+                                    G            Am 
+And you think you're so clever and classless and free 
+                                    G          Am 
+But you're still fucking peasants as far as I can see 
+ 
+    Am                    G          Am 
+A working class hero is something to be 
+    Am                    G        D   Am 
+A working class hero is something to be 
+ 
+                                 G           Am 
+There's room at the top they are telling you still 
+                                 G           Am 
+But first you must learn how to smile as you kill 
+                            G           Am 
+If you want to be like the folks on the hill 
+ 
+    Am                    G          Am 
+A working class hero is something to be 
+    Am                    G    D     Am 
+A working class hero is something to be 
+ 
+                                  G       Am 
+If you want to be a hero well just follow me 
+                                  G   D    Am
+
+If you want to be a hero well just follow me

@@ -1,0 +1,29 @@
+Rita Lee - De Leve Get Back 
+ 
+INTRODUÇÃO: A G D 
+ 
+A 
+JOJO ERA UM CARA QUE PENSAVA QUE ERA. 
+D                A   G D 
+MAS SABIA QUE ERA NÃO. 
+A 
+SAIU DE PELOTAS FOI ATRÁS DA HERA. 
+ D              A   G 
+TREPADEIRA DE VERÃO. 
+ 
+ D  A                  D               A     G  D 
+DE LEVE, DE LEVE, DE LEVE QUE É NA CONTRA-MÃO. (BIS) 
+ 
+A 
+SWEET LORETTA MARTINICA NA CUÍCA. 
+  D              A  G D 
+MUITO GAROTÃO CURTIU. 
+ A 
+JURAM QUE VIRAM LORETTA DE CUECA. 
+ D                A   G 
+DIZEM MINAS LÁ DO RIO. 
+ 
+D   A                  D               A 
+DE LEVE, DE LEVE, DE LEVE QUE É NA CONTRA-MÃO. (BIS) 
+   G   D    A 
+DE LEVE LUCINHA.

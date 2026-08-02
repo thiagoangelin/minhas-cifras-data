@@ -1,0 +1,84 @@
+Coldplay - Fix You 
+ 
+[Intro] C  Em  Am7  G4(6) 
+ 
+[Primeira Parte] 
+ 
+           C                     Em       Am7  G4(6) 
+When you try your best  but you don't succeed 
+          C                     Em           Am7  G4(6) 
+When you get what you want but not what you need 
+          C                  Em         Am7  G4(6) 
+When you feel so tired  but you can't sleep 
+               C  Em  Am7  G4(6) 
+Stuck in re___ver____se 
+ 
+          C                    Em        Am7  G4(6) 
+When the tears come streaming down your face 
+            C                Em       Am7  G4(6) 
+When you lose something you can't replace 
+          C                    Em      Am7  G4(6) 
+When you love someone  but it goes to waste 
+             C Em  Am7  G4(6) 
+Could it be wo___rse? 
+ 
+[Refrão] 
+ 
+F7M       C/E   G        F7M 
+  Lights will guide you home 
+    C/E  G         F7M 
+And ig__nite your bones 
+       C/E   G         C  Em  Am7  G4(6) 
+And I will try to fix you 
+ 
+[Segunda Parte] 
+ 
+     C                Em     Am7  G4(6) 
+And high up above or down below 
+             C              Em     Am7 G4(6) 
+When you're too in love to let it go 
+        C                      Em     Am7 G4(6) 
+If you never try  then you'll never know 
+                  C  Em Am7  G4(6) 
+Just what you're wor___th 
+ 
+[Refrão] 
+ 
+F7M       C/E   G        F7M 
+  Lights will guide you home 
+    C/E  G         F7M 
+And ig__nite your bones 
+       C/E   G         C 
+And I will try to fix you 
+ 
+( C11  C  G  Am7  C11  C  G ) 
+ 
+[Terceira Parte] 
+ 
+C              C11 
+  Tears stream     down your face 
+C                          G 
+  When you lose something you cannot replace 
+Am7            C11 
+  Tears stream     down your face 
+    C G 
+And I 
+C             C11 
+ Tears stream     down your face 
+ 
+C                          Em
+
+ I promise you that I'll learn from my mistakes 
+Am            C11 
+ Tears stream     down your face 
+    C  G                  
+And I 
+ 
+[Refrão] 
+ 
+F7M       C/E   G        F7M 
+  Lights will guide you home 
+    C/E  G         F7M 
+And ig__nite your bones 
+       C/E   G         C  Em  Am7  G4(6) 
+And I will try to fix you

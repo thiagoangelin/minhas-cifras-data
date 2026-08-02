@@ -1,0 +1,80 @@
+Tim Maia - Pais E Filhos  
+ 
+[Intro]  G7M  F#m7  G7M  Gm7  F#m7  
+         Em  A4/E  A  A4/E  A5/E 
+ 
+D 
+Como foi? 
+C 
+Por que foi? 
+D         G7M 
+Você não saberá 
+F#m7 
+Como foi 
+   B7 
+Só eu sei 
+Em            A 
+É sua vez de saber 
+ 
+D 
+Que será 
+C          D            GM7 
+Se o futuro que eu fiz, é você 
+F#m7 
+Como foi 
+   B7 
+Só eu sei 
+Em                A 
+Me perdoe quando errei 
+Am                   D 
+Sem querer errar 
+                 GM7 
+Meu filho a vida é isso ai 
+      Gm7 
+Se as vezes fico sério 
+         F#m7 
+E só pra ver você sorrir 
+ 
+Pra ver você sorrir 
+          GM7 
+E corta o pão que dá pra dois 
+     Gm7 
+Pra dez, pra cem, pra mil 
+           F#m7 
+Eu corro o mundo atrás de quem 
+                          Em     
+Fizer você chorar, você chorar 
+ 
+( A4/E  A  A4/E  A5/E ) 
+ 
+D 
+Como foi 
+C 
+Pro seu filho 
+D        GM7 
+O que você dirá 
+F#m7         B7 
+Este pai, que há em mim 
+      Em          A 
+Não te fez tão ruim 
+ 
+D 
+E assim foi 
+C       D      GM7 
+E um dia você saberá 
+F#m7              B7 
+Esse pouco que eu sei 
+Em            A 
+Meu futuro eu bem sei 
+Am
+
+Que é você 
+           D 
+Quem vai me ensinar 
+ 
+GM7 
+Se tudo isso acontecer 
+     Gm7 
+Vou escrever uma canção 
+      F#m7 
+Que a gente vai cantar

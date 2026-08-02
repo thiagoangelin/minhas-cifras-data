@@ -1,0 +1,42 @@
+Erasmo Carlos - Caramelo Mellow Yellow 
+ 
+E                              A 
+Há muito que eu estou procurando 
+E                      B 
+Mas ainda não encontrei 
+A                        E 
+Um beijo com sabor caramelo 
+           B 
+Em todo broto que eu namorei 
+ 
+                 E  A 
+Mas quero caramelo 
+                 E  A 
+Procuro o caramelo 
+             E   A 
+Beijo caramelo 
+ 
+E                      A 
+Já provei de vários sabores 
+E                      B 
+E é uma experiência bacana 
+A                        E 
+Morango, abacaxi, framboesa, 
+              B 
+Creme, chocolate e banana 
+ 
+E                    A 
+Finalmente a conclusão 
+E                      B 
+Que o caramelo só vou achar 
+A                      E 
+No beijinho da menininha 
+               B 
+Que um dia eu me apaixonar 
+ 
+                 E A 
+Terei meu caramelo 
+              E A 
+Beijo caramelo 
+                   E A 
+Eu quero um caramelo

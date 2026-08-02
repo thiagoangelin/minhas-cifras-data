@@ -1,0 +1,59 @@
+Roberto Carlos - Nem Mesmo Voce 
+ 
+[Intro] A9  A 
+ 
+      A              D 
+Nem mesmo você pode entender 
+     A                       D     E7 
+Porque tanto amor me prende a você 
+     A                  D 
+A própria razão já me faz pensar 
+      A                D         E7 
+Que por toda vida eu vou te amar 
+  A                    D 
+Ainda que eu passe a vida inteira 
+    A            E7 
+Dizendo que não 
+  A               D 
+Você continua a todo momento 
+         A      E Fm F#m 
+Em meu coração 
+                   B7 
+Mas se eu pudesse me libertar 
+ F#m                     B7 
+E te esquecer eu queria um amor 
+ F#m                 B7 
+Mas não adianta nem pensar 
+            D 
+Porque o amor que eu quero 
+ 
+E que tanto espero 
+      E7 
+É igual a você 
+ 
+  A                    D 
+Ainda que eu passe a vida inteira 
+    A            E7 
+Dizendo que não 
+  A               D 
+Você continua a todo momento 
+         A      E Fm F#m 
+Em meu coração 
+                   B7 
+Mas se eu pudesse me libertar 
+ F#m                     B7 
+E te esquecer eu queria um amor 
+ F#m                 B7 
+Mas não adianta nem pensar 
+            D 
+Porque o amor que eu quero 
+ 
+E que tanto espero 
+      E7 
+É igual a você 
+      A              D 
+Nem mesmo você pode entender 
+      A              D 
+Nem mesmo você pode entender 
+      A              D 
+Nem mesmo você pode entender

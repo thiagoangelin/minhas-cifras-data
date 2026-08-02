@@ -1,0 +1,46 @@
+Ramones - Rockaway Beach 
+ 
+(intro) D 
+ 
+A 
+Chewing out a rhythm on my bubble gum 
+The sun is out and I want some. 
+D 
+It's not hard, not far to reach 
+E 
+We can hitch a ride to Rockaway Beach. 
+Up on the roof, out on the street 
+Down in the playground the hot concrete 
+Busride is too slow 
+They blast out the disco on the radio 
+ 
+ A 
+Rock Rock Rockaway Beach 
+D 
+Rock Rock Rockaway Beach 
+A 
+Rock Rock Rockaway Beach 
+E 
+We can hitch a ride to Rockaway Beach  (2x) 
+ 
+( G D  F C )  (2x) 
+ 
+F# 
+It's not hard, not far to reach 
+A 
+We can hitch a ride to Rockaway Beach. 
+F# 
+It's not hard, not far to reach 
+D                      E 
+We can hitch a ride to Rockaway Beach. 
+ 
+Chewing out a rhythm on my bubble gum... 
+ 
+Rock Rock Rockaway Beach...  (1x) 
+ 
+( G D  F C ) (2x) 
+( D  A ) 
+ 
+Rock Rock Rockaway Beach...  (2x) 
+ 
+( D  A )

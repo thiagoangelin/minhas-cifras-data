@@ -1,0 +1,122 @@
+Gilberto Gil - Realce 
+ 
+[Intro] G7(4/9)  G7(9) 
+        G7(4/9)  F#m7 B7(4/9) E7  
+        G7(4/9)  G7(9) 
+        G7(4/9)  F#m7 B7(4/9) E7 
+        Bm7(9)  C#m7(9) 
+ 
+      Bm7(9)         C#m7(9)    Bm7(9)     C#m7(9) 
+Eii   mama        eiaaaa 
+      Bm7(9)         C#m7(9)     
+Eii   mama 
+          Bm7(9)  
+Não se incomode 
+                    C#m7(9) 
+O que a gente pode, pode 
+                         D#m7(9)   F#m7(9) 
+O que a gente não pode exploooooodirá 
+          Em7(9) 
+A força é bruta 
+                     C#m7(9) 
+E a fonte da força é neutra 
+                     Bm7(9)    C#m7(9) 
+E de repente a gente poooooooderá 
+ F#m7   E7  B7/D#  Dm6 
+Realce,    realce 
+       C#m7            G#m7  C#7(b9) 
+Quanto mais purpurina melhor 
+ F#m7   E7  B7/D#  Dm6 
+Realce,    realce 
+      C#m7               D#m7      G#7 
+Com a cor-do-veludo, com amor, com tudo de 
+ 
+G7(5-)  F#7(5+)  F7(5+)  E7    G7(5-)  F#7(5+)  F7   E7  A 
+Reeeeeeeaaal   teeeeeeeor,  deee   beeeeeeeleeeeza 
+ 
+A7(4/9)  A  A7(4/9)  A  A7(4/9)  A  A7(4/9)  Am7 
+Realce,     realce,     realce,     realce 
+A7(4/9)  Am7  A7(4/9)  Am7  A7(4/9)  Am7  A7(4/9) 
+Realce,       realce,       realce,       realce 
+ 
+( G7(4/9)  G7(9) ) 
+( G7(4/9)  F#m7 B7(4/9) E7 ) 
+( Bm7(9)    C#m7(9) ) 
+ 
+      Bm7(9)        C#m7(9)    Bm7(9)     C#m7(9) 
+Eii   mama        eiaaaa 
+      Bm7(9)        C#m7(9)     
+Eii   mama 
+           Bm7(9)  
+Não se impaciente 
+                     C#m7(9) 
+O que a gente sente, sente 
+                        D#m7(9)    F#m7(9) 
+Ainda que não se sente, afeeeeeeeetará 
+          Em7(9) 
+O afeto é fogo 
+                   C#m7(9) 
+E o modo do fogo é quente 
+                     Bm7(9)    C#m7(9) 
+E de repente a gente queeeeeeimará 
+ F#m7   E7  B7/D#  Dm6 
+Realce,    realce 
+       C#m7            G#m7  C#7(b9) 
+Quanto mais parafina melhor 
+ F#m7   E7  B7/D#  Dm6 
+Realce,    realce 
+      C#m7               D#m7      G#7 
+Com a cor-do-veludo, com amor, com tudo de
+
+ 
+G7(5-)  F#7(5+)  F7(5+)  E7    G7(5-)  F#7(5+)  F7   E7  A 
+Reeeeeeeaaal   teeeeeeeor,  deee   beeeeeeeleeeeza 
+ 
+A7(4/9)  A  A7(4/9)  A  A7(4/9)  A  A7(4/9)  Am7 
+Realce,     realce,     realce,     realce 
+A7(4/9)  Am7  A7(4/9)  Am7  A7(4/9)  Am7  A7(4/9) 
+Realce,       realce,       realce,       realce 
+ 
+( G7(4/9)  G7(9) ) 
+( G7(4/9)  F#m7 B7(4/9) E7 ) 
+ 
+Bm7(9)    C#m7(9) 
+ 
+      Bm7(9)        C#m7(9)    Bm7(9)     C#m7(9) 
+Eii   mama        eiaaaa 
+      Bm7(9)        C#m7(9)     
+Eii   mama 
+ 
+         Bm7(9)     
+Não desespere 
+                    C#m7(9) 
+Quando a vida fere, fere 
+                     D#m7(9)    F#m7(9) 
+E nenhum mágico interfeeeeeeeerirá 
+          Em7(9) 
+Se a vida fere 
+                  C#m7(9) 
+Com a sensação do brilho 
+                   Bm7(9)     C#m7(9) 
+De repente a gente briiiiiiiilhará 
+ F#m7   E7  B7/D#  Dm6 
+Realce,    realce 
+       C#m7              G#m7 C#7(b9) 
+Quanto mais serpentina melhor 
+ F#m7   E7  B7/D#  Dm6 
+Realce,    realce 
+      C#m7               D#m7       G#7 
+Com a cor-do-veludo, com amor, com tudo de 
+ 
+G7(5-)  F#7(5+)  F7(5+)  E7    G7(5-)  F#7(5+)  F7   E7  A 
+Reeeeeeeaaal   teeeeeeeor,  deee   beeeeeeeleeeeza 
+ 
+A7(4/9)  A  A7(4/9)  A  A7(4/9)  A  A7(4/9)  Am7 
+Realce,     realce,     realce,     realce 
+A7(4/9)  Am7  A7(4/9)  Am7  A7(4/9)  Am7  A7(4/9)  A 
+Realce,       realce,       realce,       realce 
+ 
+A7(4/9)  A  A7(4/9)  A  A7(4/9)  A  A7(4/9)  Am7 
+Realce,     realce,     realce,     realce 
+A7(4/9)  Am7  A7(4/9)  Am7  A7(4/9)  Am7  A7(4/9)  A 
+Realce,       realce,       realce,       realce

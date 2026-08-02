@@ -1,0 +1,85 @@
+Edson E Hudson - Foi Deus 
+ 
+[Intro] E  A 
+ 
+     E 
+Foi Deus 
+             B/D#             C#m 
+Que me entregou de presente você 
+           G#m           A 
+Eu que sonhava um dia viver 
+            F#m 
+Um grande amor assim 
+     B 
+Foi Deus 
+ 
+     E 
+Foi Deus 
+         B/D#               C#m 
+Numa oração que um dia eu pedi 
+        G#m                   A 
+Acorrentado em teus olhos me vi 
+          F#m               B 
+Quando te vi pela primeira vez 
+ 
+     E 
+Foi Deus 
+             B/D#             C#m 
+Que me entregou de presente você 
+           G#m                  A 
+No teu sorriso hoje eu quero viver 
+          F#m                  B 
+No teu abraço encontrei minha paz 
+   E            B/D#            C#m 
+Valeu, ter esperado o tempo passar 
+            G#m               A 
+Pra de uma vez meu amor entregar 
+          Bsus 
+E não sentir solidão nunca mais 
+ 
+( E  B  C#m  G#  A ) 
+( E/G#  Gº  F#m  E  Bsus ) 
+ 
+     E 
+Foi Deus 
+         B/D#               C#m 
+Numa oração que um dia eu pedi 
+        G#m                   A 
+Acorrentado em teus olhos me vi 
+           F#m              B 
+Quando te vi pela primeira vez 
+ 
+     E 
+Foi Deus 
+             B/D#             C#m 
+Que me entregou de presente você 
+           G#m                  A 
+No teu sorriso hoje eu quero viver 
+          F#m                  B 
+No teu abraço encontrei minha paz 
+   E            B               C#m 
+Valeu, ter esperado o tempo passar 
+            G#m               A 
+Pra de uma vez meu amor entregar 
+          F#m               E   A  E 
+E não sentir solidão nunca mais 
+ 
+     E 
+Foi Deus 
+             B/D#             C#m
+
+Que me entregou de presente você 
+           G#m                  A 
+No teu sorriso hoje eu quero viver 
+          F#m                  B 
+No teu abraço encontrei minha paz 
+   E            B/D#            C#m 
+Valeu, ter esperado o tempo passar 
+            G#m               A 
+Pra de uma vez meu amor entregar 
+          F#m 
+E não sentir solidão nunca mais 
+ 
+( E  A ) 
+ 
+E|--------------|

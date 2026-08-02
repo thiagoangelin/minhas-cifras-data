@@ -1,0 +1,97 @@
+Jorge Ben Jor - Spyro Gyro 
+ 
+Em   Em/D   C     D    Em  
+Spyro gyra,_____é spyro gyra  
+Em/D    C    D  
+É spyro gyra  
+       Em       Em/D    C  
+É um bichinho bonito verdinho  
+    D     Em    Em/D  C  D  
+Que dá na água   
+       Em       Em/D    C  
+É um bichinho bonito verdinho  
+    D     Em    Em/D  C  D  
+Que dá na água  
+ 
+    Em7  
+Que plânctum é esse  
+    A7  
+Que plânctum é esse  
+   C             D  
+É spyro gyra, é spyro gyra (2x)  
+ 
+ Em   Em/D   C     D    Em  
+Spyro gyra,_____é spyro gyra  
+Em/D    C    D  
+É spyro gyra  
+       Em       Em/D    C  
+É um bichinho bonito verdinho  
+    D     Em    Em/D  C  D  
+Que dá na água   
+       Em       Em/D    C  
+É um bichinho bonito verdinho  
+    D     Em    Em/D  C  D  
+Que dá na água  
+ 
+     Em         Em/D   C        D  
+Você sabe o que é um___plânctum  
+   Em         Em/D  C     D  
+Um plânctum é uma___alga  
+        Em         Em/D    C    D  
+De água doce ou de água salgada  
+Em          Em/D   C  
+Mas o spyro gyra é doce  
+      D           Em  
+doce, doce, doce, doce  
+Em/D         C     D  
+_____De água doce  
+Em          Em/D   C  
+Mas o spyro gyra é doce  
+      D           Em  
+doce, doce, doce, doce  
+Em/D         C           D  
+_____De água doce, spyro gyra  
+ 
+ Em   Em/D   C     D    Em  
+Spyro gyra,_____é spyro gyra  
+Em/D    C    D  
+É spyro gyra  
+       Em       Em/D    C  
+É um bichinho bonito verdinho  
+    D     Em    Em/D  C  D  
+Que dá na água   
+       Em       Em/D    C  
+É um bichinho bonito verdinho  
+    D     Em    Em/D  C  D  
+Que dá na água  
+ 
+     Em        Em/D  
+Um encontro amoroso
+
+     C         D  
+Do zigoto masculino       
+Em      Em/D     C     D  
+Com o gameta feminino  
+Em     Em/D  C        D  
+Formam novas células  
+   Em  Em/D    C    D  
+Um fio vege____tal  
+   Em        Em/D    C     D  
+Brilhoso e esverde___ado  
+        Em     Em/D    C      D  
+Igual a cor da espe____rança  
+        Em     Em/D    C            D  
+Igual a cor da espe____rança, spyro gyra  
+ 
+ Em   Em/D   C     D    Em  
+Spyro gyra,_____é spyro gyra  
+Em/D    C    D  
+É spyro gyra  
+       Em       Em/D    C  
+É um bichinho bonito verdinho  
+    D     Em    Em/D  C  D  
+Que dá na água   
+       Em       Em/D    C  
+É um bichinho bonito verdinho  
+    D     Em    Em/D  C  D  
+Que dá na água

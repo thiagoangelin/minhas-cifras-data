@@ -1,0 +1,35 @@
+Johnny Cash - I Just Thought Youd Like To Know 
+ 
+G                    D  
+I just thought you'd like to know   
+                      G  
+Since you'd made your plans to go  
+            D                    G  
+It's gonna hurt me so to see you go  
+      C                              G  
+But I hope you find another love and he'll be good to you  
+                                      D                G  
+But still and yet I can't forget the things we used to do  
+ 
+                  D  
+I just thought I tell you this   
+                                    G  
+I loved  you since that first sweet kiss  
+           D                        G  
+It's gonna hurt to miss your tender kiss  
+      C                       G  
+But I hope you get to do the things you say you wanna do  
+                              D                   G  
+But still and yet I can't forget the happiness we knew  
+ 
+        { piano }  
+ 
+I just thought you'd like to know   
+How much you've hurt my pride  
+I just thought you'd like to know   
+How much my heart has cried over you  
+ 
+But darling you could never see   
+The misery you caused for me  
+So I will tell you so   
+Cause I just thought that you'd like to know

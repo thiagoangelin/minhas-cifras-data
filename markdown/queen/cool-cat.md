@@ -1,0 +1,58 @@
+Queen - Cool Cat 
+ 
+E   A 
+You're taking all the sunshine away 
+E   A 
+Making out like you're the mainline - I knew that 
+F#m                                    B 
+Cos you're a cool cat Tapping on the toe with a new hat 
+A                                   B 
+Just cruising - driving along like the swing king 
+E   A 
+Feeling the beat of my heart 
+E   A 
+Feeling the beat of my heart 
+F#m                                       B 
+You're a cool cat Coming on strong with all the chit-chat 
+         A                              B 
+You're alright hanging out and stealing all the limelight 
+A   B 
+Messing with the beat of my heart 
+B 
+Messing with the beat of my heart 
+ 
+( C#m  D ) 
+ 
+C#m                                    D 
+You used to be a mean kid Making such a deal of life 
+C#m                                                            D 
+You were wishing and hoping wand waiting to really hit the big time 
+C#m                                       D 
+But did it happen, happen, no You're speeding too fast 
+F#m                        A 
+Slow down Slow down You'd better slow down 
+D 
+Slow down 
+ 
+( E  A  E  A ) 
+ 
+E   A 
+You really know how to set the mood 
+E   A 
+And you really get inside the groove 
+F#m                            B 
+Cool cat Tapping on the toe with a new hat 
+A                              B 
+Just cuising Driving along like the swing king 
+             A                  B 
+Feeling the beat of my heart 
+                       C#m       D 
+Feeling the beat of my heart - yeah yeah 
+C#m - D 
+Feeling the beat of my heart 
+C#m - D 
+Feeling the beat of my heart 
+C#m - D 
+Feeling the beat of my heart 
+E   A 
+Feeling the beat of my heart

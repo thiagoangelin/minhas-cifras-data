@@ -1,0 +1,49 @@
+Bob Dylan - Wallflower 
+ 
+     G 
+Wallflower, wallflower 
+           C         G 
+Won't you dance with me? 
+             D      G 
+I'm sad and lonely too. 
+     G 
+Wallflower, wallflower 
+           C         G 
+Won't you dance with me? 
+ G              D        G 
+I'm fallin' in love with you. 
+ 
+ D                                   G 
+Just like you I'm wondrin' what I'm doin' here. 
+ A                                      D* 
+Just like you I'm wondrin' what's goin' on. 
+ 
+ G 
+Wallflower, wallflower 
+           C          G 
+Won't you dance with me? 
+ G              D       G 
+The night will soon be gone. 
+ 
+ D                               G 
+I have seen you standing in the smoky haze 
+ A                                    D* 
+And I know that you're gonna be mine one of these days, 
+ 
+Mine alone. 
+ 
+ G 
+Wallflower, wallflower 
+        C         G 
+Take a chance on me. 
+ G             D        G 
+Please let me ride you home. 
+ 
+D* = After playing the D, progress to G using the tab below: 
+ 
+{|---------------------| 
+{|---------------------| 
+{|---------------------| 
+{|---------------------| 
+{|---3----2----0-------| 
+{|------------------3--|

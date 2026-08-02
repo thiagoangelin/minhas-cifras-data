@@ -1,0 +1,26 @@
+Elvis Presley - This Is My Heaven 
+ 
+A 
+This is my heaven 
+                D 
+Being here with you 
+                A 
+Make it last forever 
+This is my heaven 
+It's a dream come true 
+Make it last forever 
+E 
+Come to me now 
+             A 
+And take my hand 
+DM                      A 
+This is the paradise I plan 
+You're like an angel 
+Sent from up above 
+Let's stay close together 
+You brought me heaven 
+When I shared your love 
+Make it last forever 
+Here 'neath the sky beside the sea 
+This is my heaven 
+When you come to me

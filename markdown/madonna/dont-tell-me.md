@@ -1,0 +1,63 @@
+Madonna - Dont Tell Me 
+ 
+ 
+ 
+Verse: 
+ 
+Don't tell..... 
+ 
+Tell the rain... 
+ 
+Tell the wind... 
+ 
+Cause you said so... 
+ 
+Repita isso na música inteira, menos no refrão. 
+Os acordes da música inteira, inclusive o refrão, são D, Am, C, G. 
+ 
+Letra 
+ 
+Don`t tell me to stop  
+Tell the rain not to drop  
+Tell the wind not to blow  
+'Cause you said so, hmmm  
+ 
+Tell the sun not to shine  
+Not to get up this time, no, no  
+Let it fall by the way  
+But don`t leave me where I lay down  
+ 
+Refrão  
+Tell me love isn`t true  
+It`s just something that we do  
+Tell me everything I`m not  
+But please don`t tell me to stop  
+ 
+Tell the leaves not to turn  
+But don`t ever tell me I`ll learn, no, no  
+Take the black off a crow  
+But don`t tell me I have to go  
+ 
+Tell the bed not to lay  
+Like the open mouth of a grave, yeah  
+Not to stare up at me  
+Like a calf down on its knees  
+ 
+Refrão 
+(Ao invés de cantar "But please don`t tell me to stop" como na 
+ primeira vez, cante "But don`t ever tell me to stop") 
+ 
+(Don`t you ever) 
+Please don`t  
+Please don`t  
+Please don`t tell me to stop  
+ 
+(Don`t you ever)  
+Don`t you ever  
+Don`t ever tell me to stop  
+ 
+(Tell the rain not to drop)  
+Tell the bed not to lay  
+Like a open mouth of a grave, yeah  
+Not to stare up at me  
+Like a calf down on its knees

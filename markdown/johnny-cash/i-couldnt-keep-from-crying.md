@@ -1,0 +1,32 @@
+Johnny Cash - I Couldnt Keep From Crying 
+ 
+ 
+   A               A7 
+ I SAW YOU WALKING BY HIS BDE , 
+ D 
+HEARD YOU WHISPER ALL THOSE LIES 
+    A                      E7 
+AND I COULDN'T KEEP FROM CRYING 
+     A                     A7 
+YOU SANG HIM LOVE SONGS TENDERLY 
+D 
+JUST THE WAY YOU SANG TO ME 
+    A  E7                  A   A7 
+AND I COULDN'T KEEP FROM CRYING 
+ 
+CHORUS 
+  D 
+I SAW YOU CAPTUD  ALL HIS CHARMS 
+A               A7 
+ WHILE HE HELD YOU IN HIS ARMS 
+D 
+ WITH HIS PD TTY WORDS AND WAYS 
+A                E7 
+IN YOUR HEART HE TOOK MY PACE 
+ 
+  A                      A7 
+I STOOD AND WATCHED HIM STEAL A KISS 
+D 
+  FROM TWO LIPS I KNOW I'LL E SS 
+    A   E7                 A 
+AND I COULDN'T KEEP FROM CRYING

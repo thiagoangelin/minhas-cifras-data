@@ -1,0 +1,34 @@
+Natiruts - Gotas De Vidro 
+ 
+Cm7                    Bbm7 
+As gotas de vidro são perfeitas pra demonstrar 
+Cm7 
+Folhas no final de abril 
+Bbm7 
+Felicidade sua que partiu 
+Cm7 
+E a nossa concepção 
+Bbm7 
+O que for claro é certo e ponto 
+Cm7 
+O que for belo é certo e pronto 
+Bbm7 
+E vamos morrendo assim 
+Cm7 
+Peço forças pra enfrentar 
+Bbm7                  Db7M 
+Talvez até possa ter um rio são só pra mim 
+Cm7 
+Ver você feliz viver  
+Db7M             Cm7 
+Cuidar do seu amor 
+Db7M                           Cm7 
+(Kaya, Kaya, Kayô) 
+Cm7         Bbm7       Cm7 
+Se um dia eu lutar e perder 
+         Bbm7 
+Em vão será o meu pranto 
+Cm7                     Bbm7 
+Ao nascer do sol a nova chance 
+            Cm7     Bbm7          
+Não estará longe,    longe

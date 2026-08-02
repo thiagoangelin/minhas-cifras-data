@@ -1,0 +1,55 @@
+Toquinho - Ao Que Vai Chegar 
+ 
+ [Intro]  D  Gm  D  
+          G/A  A7 
+ 
+D6/9 
+Voa coração 
+             G7+            G D/F# 
+Que a minha força te conduz 
+   Em7                 G/A      D6/9           G/A A7 
+Que o sol de um novo amor em breve vai brilhar 
+D6/9 
+Vara a escuridão 
+          G7+                 G D/F# 
+Vai onde a noite esconde a luz 
+ Em7                A7      C/D        D7 
+Clareia seu caminho e acende seu olhar 
+  G7+                    A/G               F#m7 B7/9- 
+Vai onde aurora mora e acorda um lindo dia 
+              Em7        A7               Am7       D7 
+Colhe a mais bela flor      que alguém já viu nascer 
+    G7+            A/G               F#m7 
+E não esqueça de trazer força e magia 
+              Cm6    Bm6          A7        D6/9 
+O sonho e a fantasia          e alegria de viver 
+ 
+( D  Gm  D )   
+( G/A  A7 ) 
+ 
+D6/9 
+Voa coração 
+       G7+           G  D/F# 
+Que ele não deve demorar 
+    Em7                G/A        D6/9 G/A A7 
+E tanta coisa mais quero lhe oferecer 
+ D6/9 
+O brilho da paixão 
+     G7+                   G  D/F# 
+Pede uma estrela pra emprestar 
+   Em7    A7                C/D        D7 
+E traga junto a fé e um novo amanhecer 
+         G7+              A/G              F#m7 B7/9- 
+Convida as luas cheia, minguante e crescente 
+               Em7       A7 
+E de onde se planta a paz 
+    Am7         D7 
+Da paz quero a raiz 
+     G7+             A/G              F#m7 
+E uma casinha lá onde mora o sol poente 
+      Cm6         Bm6    Em  A7     C/D 
+Pra finalmente a gente simplesmente 
+   D7 
+Ser feliz 
+     G7+          D 
+Convida .....  Ser feliz

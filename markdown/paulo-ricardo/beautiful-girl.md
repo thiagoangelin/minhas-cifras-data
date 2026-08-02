@@ -1,0 +1,46 @@
+Paulo Ricardo - Beautiful Girl 
+ 
+(intro) (B E B E B E B E) G#m D#m G#m D#m E F# E F# 
+ 
+B               E      B                  E 
+Nicky's in the corner, with a black coat on 
+B               E        B                E 
+Running from a bad home, with some cat inside 
+B                  E        B                E 
+Now where did you find her, among the neon lights 
+B                 E                      B          E 
+That haunt the streets outside, she says stay with me 
+ 
+F#         G#m             E    (B C#m B - repete em todo  
+início de refrão) 
+Beautiful girl (stay with me) 
+F#         G#m             E 
+Beautiful girl (stay with me) 
+C#m           E 
+She wanna go home 
+ 
+B                E       B                 E 
+From doorway to doorway, street corner to corner 
+B     E                  B        E              B 
+Neon ghosts in the city, and she says stay with me 
+ 
+(same chords as intro) 
+Stay with me 
+Stay with me 
+Stay with me 
+ 
+(same chords as first stanza and chorus) 
+She's so scared, so very frightened 
+Anything can happen, right here tonight 
+Beautiful girl (stay with me) 
+Beautiful girl (stay with me) 
+She wanna go home 
+ 
+B          E 
+Stay with me (beautiful girl) 
+B          E 
+Stay with me (beautiful girl) 
+B          E 
+Stay with me (beautiful girl) 
+B          E                   B 
+Stay with me (beautiful girl)

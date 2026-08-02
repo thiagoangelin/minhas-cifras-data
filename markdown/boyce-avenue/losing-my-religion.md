@@ -1,0 +1,131 @@
+Boyce Avenue - Losing My Religion 
+ 
+     Am 
+Oh, life is bigger 
+Em 
+  It's bigger than you 
+                 Am 
+And you are not me 
+                         Em 
+The lengths that I will go to 
+                       Am 
+The distance in your eyes 
+Em                      Dm 
+  Oh, no I've said too much 
+         G9 
+I set it up 
+ 
+Am 
+That's me in the corner 
+                   Em 
+That's me in the spot light 
+             Am 
+Losing my religion 
+                 Em 
+Trying to keep up with you 
+       Am 
+And I don't know if I can do it 
+ 
+Em                      Dm 
+  Oh no, I've said too much 
+                 G9 
+I haven't said enough 
+ 
+[Refrão] 
+ 
+F 
+I thought that I heard you laughing 
+    G                       Am   Am/E 
+I thought that I heard you sing 
+    F                    G    Am  G9 
+I think I thought I saw you try 
+ 
+           Am 
+Every whisper 
+                 Em 
+Of every waking hour 
+                    Am 
+I'm choosing my confessions 
+           Em 
+Trying to keep an eye on you 
+ 
+        Am 
+Like a hurt, lost and blinded fool, fool 
+Em                      Dm 
+  Oh, no I've said too much 
+         G9 
+I set it up 
+ 
+Am 
+Consider this, consider this 
+     Em 
+The hint of the century 
+           Am 
+Consider this 
+                Em 
+The slip that brought me 
+ 
+To my knees failed 
+Am
+
+What if all these fantasies 
+     Em 
+Come    flailing around 
+          Dm  G9 
+Now I've said    too much 
+ 
+[Refrão] 
+ 
+F 
+I thought that I heard you laughing 
+    G                       Am   Am/E 
+I thought that I heard you sing 
+    F                    G    Am  G9 
+I think I thought I saw you try 
+ 
+                           F 
+I thought that I heard you laughing 
+    G                       Am   Am/E 
+I thought that I heard you sing 
+    F                    G    Am  G9 
+I think I thought I saw you try 
+ 
+( C  D9 ) 
+( C  D9 ) 
+ 
+C       D9 
+But that was just a dream 
+  C       D9 
+That was just a dream 
+ 
+                     Am 
+That's me in the corner 
+                   Em 
+That's me in the spot light 
+             Am 
+Losing my religion 
+           Em 
+Trying to keep up with you 
+       Am 
+And I don't know if I can do it 
+Em                     Dm 
+  Oh, no I've said too much 
+                 G9 
+I haven't said enough 
+ 
+[Refrão] 
+ 
+F 
+I thought that I heard you laughing 
+    G                       Am   Am/E 
+I thought that I heard you sing 
+    F                    G    Am  Am/E 
+I think I thought I saw you try 
+      F                   G 
+But that was just a dream 
+  Am               Am/E 
+Try, cry, why, try 
+  F 
+That was just a dream 
+ G       Am            G9         Am 
+Just a dream, just a dream, dream

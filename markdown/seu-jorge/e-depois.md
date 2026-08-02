@@ -1,0 +1,27 @@
+Seu Jorge - E Depois 
+ 
+(intro) Bbm7 Ebm7 Fm7 
+ 
+Bbm7          Ebm7            Bbm7 
+É dia de te ver, que sorte grande, sim senhor... 
+Bbm7      Ebm7           Bbm7 
+É mamão no mel, algodão doce azul 
+ 
+    Ebm7                Bbm7 
+E é bom, acende uma alegria tipo curumim 
+                  Ebm7 
+Por causa do que vibra dentro de você 
+        Fm7       Bbm7 
+Você não tem idéia como sou feliz 
+ 
+Bbm7            Ebm7           Bbm7 
+Às cinco eu passo aí para um sorvete 
+Bbm7           Ebm7           Bbm7 
+Levo o disco do Bob que você me pediu 
+ 
+   Ebm7 
+E aí... a gente vai passear 
+  Bbm7 
+E aí... a gente vai namorar 
+  Ebm7        Fm7        Bbm7 
+E depois... e depois... e depois...

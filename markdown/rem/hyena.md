@@ -1,0 +1,48 @@
+Rem - Hyena 
+ 
+ 
+E                      A2  A 
+Night time fell at the opening, 
+In the final act of the beginning of time. 
+Hyena take your role, the stage is set. 
+The town is safe again tonight 
+ 
+      G    D    A 
+             Hyena (I see the day ahead) 
+             Hyena (and all that I've cried through) 
+             Hyena (God knows you're doin' that, don't  
+you?) 
+ 
+        [The open chord sequence with the moving bass line 
+ is: 
+ 
+        D(strummed repeatedly) Am    D    Am    E 
+ 
+   {lyr: don't you?} 
+ 
+E                     A2   A 
+Hyena, sister look to your hand 
+Man you serve communal interest, 
+She'll tell you when and where and how and why you'd hurt 
+A beautiful young lady 
+ 
+Hyena (I see the day ahead) 
+Hyena (and all that I've cried through) 
+Hyena (God knows you're doin' that, don't you?) 
+ 
+The only thing to fear is fearlessness 
+The bigger the weapon the greater the fear 
+Hyena is ambassador to here 
+ 
+Night time fell like the closing 
+Meager pay, but recognition 
+Hyena crawls on his belly out 
+The town is safe again tonight 
+ 
+Hyena (I see the changes, man) 
+Hyena (Goin' on 'cross the way) 
+Hyena (I see my road ahead) 
+Hyena (Don't know if I should stay) 
+Hyena (I see you holding him,) 
+Hyena (and all that I've cried through) 
+Hyena (God knows you're doin' that, don't you?)

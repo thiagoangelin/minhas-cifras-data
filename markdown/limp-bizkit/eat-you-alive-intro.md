@@ -1,0 +1,6 @@
+Limp Bizkit - Eat You Alive Intro 
+ 
+This is my first tab so go a little easy on me... 
+Drop C 
+ 
+Pm...............................................

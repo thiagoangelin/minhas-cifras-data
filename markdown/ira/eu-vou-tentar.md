@@ -1,0 +1,85 @@
+Ira - Eu Vou Tentar 
+ 
+B            F# 
+Hoje eu saio cedo 
+       E             B 
+Sem saber se vou voltar 
+   B              F#  
+Caminho entre os carros 
+         E        B 
+Deixo a rua me levar 
+           E 
+Vou ser feliz 
+         B  F# E B 
+Longe daqui 
+ 
+   E 
+E mesmo que eu encontre 
+Um caminho diferente 
+Que aproxime o eu de mim 
+E afaste o eu da gente 
+ 
+           B F# E B  
+Eu vou tentar 
+           B F# E B  
+Eu vou tentar 
+ 
+    B          F#    
+Vou só sem uma foto, 
+        E              B  
+uma lembrança, uma canção 
+    B          F#  
+Te deixo de herança,  
+         E         B 
+o som do velho violão 
+ 
+       E 
+Acorde Mi Maior 
+                      B F# E B 
+Pra você ter algo de mim 
+ 
+   E 
+E sempre que estiver sozinha 
+Nas tardes de domingo 
+É só você pensar que eu 
+Eu vou voltar sorrindo 
+ 
+           B F# E B  
+Eu vou tentar 
+           B F# E B  
+Eu vou tentar 
+ 
+          F#                E  
+Eu vou tentar fazer você feliz 
+                          B F# E B 
+Nem que seja pela última vez 
+          F#                 E  
+Eu vou tentar fazer você sentir 
+                       B F# E B 
+Como tudo na primeira vez 
+           B F# E B 
+Eu vou tentar... 
+ 
+   E 
+E sempre que estiver sozinha 
+Nas tardes de domingo 
+É só você pensar que eu 
+Eu vou voltar sorrindo 
+ 
+          B F# E B
+
+Eu vou tentar 
+ 
+          F#                E  
+Eu vou tentar fazer você feliz 
+                          B F# E B 
+Nem que seja pela última vez 
+          F#                E  
+Eu vou tentar fazer você feliz 
+                          B F# E B 
+Nem que seja pela última vez 
+ 
+B            F# 
+Hoje eu saio cedo 
+       E             B 
+Sem saber se vou voltar...

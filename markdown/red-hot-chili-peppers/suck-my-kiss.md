@@ -1,0 +1,92 @@
+Red Hot Chili Peppers - Suck My Kiss 
+ 
+Intro 2x: 
+ 
+Yeah, oh yeah 
+Yeah, oh yeah 
+Hit me 
+ 
+Should have been, could have been 
+Would have been dead 
+If I didn't get a message 
+Goin' thru' my head 
+I am what I am 
+Most motherfuckers 
+Don't give a damn 
+Aw baby think you can 
+Be my girl, I'll be your man 
+Someone full of fun 
+Do me 'till I'm well done 
+Little Bo peep 
+Cumin' from my stun gun 
+Beware... take care 
+Most motherfuckers 
+Have a cold ass stare 
+Aw baby please be there 
+Suck my kiss cut me my share 
+ 
+Hit me you can't hurt me 
+Suck my kiss 
+Kiss me please pervert me 
+Stick with this 
+Is she talking dirty 
+Give to me sweet sacred bliss 
+Your mouth was made to suck my kiss 
+ 
+(Segunda Parte - Igual a Primeira Parte) 
+ 
+Look at me can't you see 
+All I really want to be 
+Is free from a world 
+That hurts me 
+I need relief 
+Do you want me girl 
+To be your thief 
+Aw baby just for you 
+I'd steal anything that you want me to 
+K - I - S - S - I - N - G 
+Chicka chicka dee 
+Do me like a banshee 
+Low brow is how 
+Swimming in the sound 
+Of bow wow wow 
+Aw baby do me now 
+Do me here I do allow 
+ 
+Hit me you can't hurt me 
+Suck my kiss 
+Kiss me please pervert me 
+Stick with this 
+Is she gonna curtsy? 
+Give to me sweet sacred bliss 
+That mouth was made to... 
+ 
+Should have been, could have been 
+Would have been dead 
+If I didn't get the message 
+Goin' thru my head 
+I am what I am 
+Most motherfuckers
+
+Don't give a damn 
+Aw baby think you can 
+Be my girl, I'll be your man 
+Someone full of fun 
+Do me 'till I'm well done 
+Little Bo peep 
+Cummin' from my stun gun 
+Beware... take care 
+Most motherfuckers 
+Have a cold ass stare 
+Aw baby please be there 
+Suck my kiss cut me my share 
+ 
+Terceiro Refrão: 
+ 
+Hit me you can't hurt me 
+Suck my kiss 
+Kiss me please pervert me 
+Stick with this 
+Is she talking dirty 
+Give to me sweet sacred bliss 
+That mouth was made to suck my kiss

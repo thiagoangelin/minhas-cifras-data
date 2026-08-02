@@ -1,0 +1,136 @@
+Rem - Fretless 
+ 
+# 
+ 
+# For the latest collection of R.E.M. chords & tab, go 
+ to 
+# 
+# If you have any corrections or additions to this file,  
+please email them 
+# to * 
+# 
+ 
+FRETLESS  (2 Versions) 
+ 
+FRETLESS (Version 1) 
+ 
+Verses: 
+Chords: Em/Bm (?) (I don't think its a chord, just some  
+random Peter stuff)/G 
+        alternate w/:Em/Bm (?)/G/Bm (?) 
+tab goes like this: 
+ 
+E - - 0 - - 2 - - 3 - - 2 - - 2 - 
+B - 0 - 0 - - 0 - - 0 - - 0 - - 0 
+G 0 - - - 0 - - 0 - - 0 - - 0 - - 
+ 
+alternate with: 
+ 
+E - - 0 - - 2 - - 3 - - 3 - - 3 - 
+B - 0 - 0 - - 0 - - 0 - - 0 - - 0 
+G 0 - - - 0 - - 0 - - 0 - - 0 - - 
+ 
+Prechorus (if that is what it is): ["They come and they  
+come..."] 
+B/A/D/E 
+ 
+Chorus: ["Don't talk to me..."] 
+chords: G/F/Em 
+tab goes like this: 
+ 
+E - - - 3 - - 3 
+B - 0 - - 0 - - 
+G 0 - 0 - - 0 - 
+ 
+E - - - 1 - - 1 
+B - 1 - - 1 - - 
+G 2 - 2 - - 2 - 
+ 
+E - - - 0 - - 0 - - 0 - - 0 
+B - 0 - - 0 - - 0 - - 0 - - 
+G 0 - 0 - - 0 - - 0 - - 0 - 
+ 
+Lyrics: 
+ 
+He's got his work, and she comes easy 
+They each come around when the other is gone 
+Me, I think I got stuck somewhere in between 
+I wouldn't confide in the prodigal son, 
+The dye has been cast, the battle is won 
+The bullets were blanks, a double locked gun 
+I couldn't admit to a minute of fun. 
+ 
+And they come and they come and they come 
+I accept it with a gentle tongue 
+No words spoken, no ? kept 
+ 
+Take it, stomp twice, ring bell 
+Tether that ringing, freeze 
+Enough with the rifle and talk already
+
+We all know what it means 
+Take this conversation to your great divide 
+I can only swallow what I ate, 
+And I don't hate him, and I don't hate her. 
+ 
+And they come and they come and they come 
+I accept it with a gentle tongue 
+No heart broken, no ? kept 
+ 
+Don't talk to me about being alone 
+Don't talk to me about being alone 
+Don't talk to me about being alone 
+ 
+Reach for each other before you leave 
+Reach peace, P-E-A-C-E 
+Don't threaten me with a gentle tease, 
+Don't threaten me with angry 
+Please please please don't try to tell me what I am 
+ 
+And they come and they come and they come 
+I accept it with a gentle tongue 
+No words spoken, no ? except 
+ 
+Don't talk to me about being alone 
+Don't talk to me about being alone 
+Don't talk to me about being alone.... 
+ 
+Ends on Em. 
+ 
+FRETLESS (Version 2) 
+ 
+From: David G Gels 
+ 
+World soundtrack....a beautiful, haunting song, and one  
+that I was 
+surprised not to find already posted....here goes... 
+ 
++|-----0----2----3----2----2|----0----2----3----3------|----0---------------| 
++|----0-0----0----0----0----|---0-0----0----0----0-----|---0-0--------------| 
++|--------------------------|--------------------------|-------etc..--------| 
++|-2------2----2----2----2--|-2-----2----2----2----2---|-2------------------
+|(repeat) 
++|--------------------------|--------------------------|--------------------| 
++|-0------------------------|-0----------------------2~|-0------------------| 
+ 
+That's the basic tune, right there. 
+ 
+     B          (slide)         A               D     D  A 
+  E 
+They come and they come.... 
+ 
+     B          (slide)         A               D 
+ 
+pre-verse: +---0---0---|----0---------------| 
+       +--1---1---1|---0-0------------------| 
+       +-----------|------------------------| 
+       +-----------|-2----------------------|(back to main 
+ riff) 
+       +-2---0-----|------------------------| 
+       +---------2-|-0----------------------| 
+ 
+well, that's it.  I'm not too sure about the "don't talk  
+to me" part...I 
+usually just use a D with a walking down bass line, and it 
+ sounds 
+alright, although it's wrong.

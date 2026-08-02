@@ -1,0 +1,40 @@
+The Cranberries - Saving Grace 
+ 
+INTRO C F G  
+ 
+C       F             G 
+It could happen here today 
+    C     F             G 
+It could happen here today 
+     C       F                  G 
+And I can't wait to see your face 
+   C         F                 G 
+No I can't wait to see your face 
+    C         F                          G 
+Can you hold on while I take hold of myself 
+   C           F                         G 
+Can you hold on while I take hold of myself 
+    C               F                   G 
+You're the little thing, my saving grace 
+   C               F                       G 
+You're just a little thing, my saving grace 
+    C         F          G 
+It could happen here today 
+  C           F          G 
+It could happen here today 
+ C          F         G 
+You are my saving grace 
+C          F           G 
+You are my saving grace 
+C                    F                       G 
+Will you be strong while I take hold of myself 
+C                    F                        G 
+Will you be strong while I take hold of myself 
+C          F            G 
+It could happen here today 
+C          F             G 
+It could happen here today 
+C        F            G 
+You are my saving grace 
+C        F            G 
+You are my saving grace

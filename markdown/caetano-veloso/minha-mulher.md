@@ -1,0 +1,55 @@
+Caetano Veloso - Minha Mulher 
+ 
+F#m7(9)               E7(9)                   F#m7(9) E7(9) 
+Quem   vê assim pensa que  você é muito minha filha   
+F#m7(9)        E7(9)                 F#m7(9) E7(9) 
+Mas na verdade você é bem mais minha mãe   
+ 
+D#7(4)9          D#7(9) 
+Meu bichinho bonito   
+                 D#7(4)9 
+Meu bichinho bonito   
+               D#7(9) 
+Meu bichinho bonito   
+ 
+F#7(9) 
+Tudo é mesmo muito grande assim   
+Porque Deus quer   
+B7(9) 
+Minha mulher   
+E7(9) 
+Minha mulher   
+C#7(4)9     C#7(9) C#7(4)9 C#7(9) 
+Minha mulher   
+ 
+F#m7(9) 
+Quando eu for velho   
+E7(9) 
+Quando eu for velhinho   
+    F#m7(9)  E7(9) 
+Bem velhinho   
+F#m7(9) 
+Como seremos   
+E7(9) 
+Como serei   
+       F#m7(9) E7(9) 
+Como será?   
+ 
+D#7(4)9          D#7(9) 
+Meu bichinho bonito   
+                 D#7(4)9 
+ 
+Meu bichinho bonito   
+               D#7(9) 
+Meu bichinho bonito   
+ 
+F#7(9) 
+Tudo é mesmo muito grande assim   
+ 
+Porque Deus quer   
+B7(9) 
+Minha mulher   
+E7(9) 
+Minha mulher   
+C#7(4)9     C#7(9) C#7(4)9 C#7(9) 
+Minha mulher

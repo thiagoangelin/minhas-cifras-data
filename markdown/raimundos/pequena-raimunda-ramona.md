@@ -1,0 +1,64 @@
+Raimundos - Pequena Raimunda Ramona  
+ 
+Intro:  C  F  C  C  F  C 
+ 
+C                F                   G 
+  Olhe só Rodrigo, Rodolfo, Fred e Caniço. 
+C 
+  Feia de cara, mas é boa de bunda. 
+F               G 
+  Olhe só é a pequena Raimunda 
+F 
+  Se ela tá indo até que dá pra enganar 
+C 
+  Se ela tá vindo não é bom nem olhar 
+F 
+  Ela de 4 fica maravilhosa 
+G 
+  Na 3x4 é horrorosa 
+  C 
+    Shit, shit pequena Raimunda. 
+  F                         G 
+    Bunda de sonho a cara é um pesadelo 
+  C 
+    Shit, shit pequena Raimunda. 
+  F                  G 
+    Parece até a namorada do Telo 
+F 
+  Quando eu a vejo eu vou correndo pro bar. 
+C 
+  Encher a cara e conseguir encarar 
+F 
+   Ela de 4 fica maravilhosa 
+G 
+   Essa bundinha ela vai ter que virar 
+Bb                 F       Bb                 F 
+Uuuhh a pequena Raimunda  //  Uuuhh a pequena Raimunda 
+Bb                 F        Bb      C 
+Uuuhh a pequena Raimunda  //  Uuuhh 
+ 
+=Intro:  C  F  C  C  F  C 
+ 
+C 
+  Olhe só que bnitch 
+F                        G 
+  Com essa menina eu dou vinte 
+C 
+  Se assim tá feia é só rodar que ela muda 
+F               G 
+  Olhe só é a pequena Raimunda 
+ 
+F 
+  Quando eu a vejo eu vou correndo pro bar. 
+C 
+  Encher a cara e conseguir encarar 
+F 
+   Ela de 4 fica maravilhosa 
+G 
+   Essa bundinha ela vai ter que virar 
+Bb                 F       Bb                 F 
+Uuuhh a pequena Raimunda  //  Uuuhh a pequena Raimunda 
+Bb                 F        Bb    C 
+Uuuhh a pequena Raimunda  //  Uuuhh 
+ 
+Final:  C  F  C  C  F  C

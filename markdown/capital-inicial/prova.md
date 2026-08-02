@@ -1,0 +1,44 @@
+Capital Inicial - Prova 
+ 
+Dm 
+Vejo seu retrato  
+Am 
+Apenas uma imagem 
+Dm 
+A sombra de alguém  Am 
+Dm 
+Viva porque vivo  
+Am 
+Vivo nos seus sonhos  
+Dm 
+Lento pra te alcançar  
+Am                         Dm 
+Louco pra,louco pra te amar 
+  Am 
+Ô Ô Ô Ô 
+ 
+REFRÃO REPETE DUAS VEZES 
+D 
+Setas indicando caminhos errados 
+Em 
+Chegar só é possível de olhos vendados  
+D        Em    D        Em 
+Ô Ô Ô Ô Ô Ô IÊ Ô Ô Ô Ô Ô Ô IÊ 
+ 
+Dm 
+Tento encarar os fatos  
+Am 
+Você não é mais 
+Dm                 Am 
+Só existe um vazio me preenchendo  
+Dm 
+Dia após dia  
+Am 
+Eu sinto a sua ausência  
+Dm                     Am 
+Tornando a minha vida sem sentido 
+  Am 
+Ô Ô Ô Ô 
+ 
+REFRÃO REPETE QUATRO VEZES 
+(D Em )  Parada

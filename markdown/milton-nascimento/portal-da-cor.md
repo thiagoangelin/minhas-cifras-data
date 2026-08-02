@@ -1,0 +1,44 @@
+Milton Nascimento - Portal Da Cor 
+ 
+ Em     Bm7  Am    Bm7     Em 
+Bom dia natureza, pulmão da terra mãe 
+          Bm7   Am           Bm7     Em 
+Portal da cor futuro, cada nascer do sol 
+        Bm7     Am 
+Carinho companheiro 
+ Bm7        Em 
+É como se a paz 
+          Bm7       Am 
+Cobrisse o mundo inteiro 
+             Bm7    Em 
+Terra, água, fogo e ar 
+ C7+     Bm7     Em 
+Quero o sabor do som 
+ C7+     Bm7  Em 
+Quero tocar visão 
+ C7+       Bm7      Em     Am    F#m7 
+Cheiro de vida é um mar... de gerações 
+ Em     Bm7   Am 
+Procuro a resposta 
+  Bm7          Em 
+Por que criar a dor? 
+           Bm7     Am 
+Se quando estamos juntos 
+              Bm7    Em 
+Temos sonho, força e amor 
+ C7+ Bm7 Em 
+Gema da criação 
+ C7+       Bm7 Em 
+Herdeiro do pintor 
+ C7+    Bm7 Em 
+Dono do amanhã 
+   Am    F#m7 
+Do sim, do não 
+ Em      Bm7    Am  
+Coragem companheiro 
+         Bm7     Em 
+Prá que fechar a voz? 
+     Bm7       Am 
+Se a força do desejo 
+           Bm7      Em 
+Pulsa em cada um de nós

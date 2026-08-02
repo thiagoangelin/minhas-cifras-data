@@ -1,0 +1,151 @@
+Cassia Eller - Polly 
+ 
+E  G             D     C    
+  Polly wants a Cracker 
+E  G 
+ I Think I should 
+      D      C 
+ get off her first 
+E  G 
+  I Think she wants 
+    D    C 
+some water 
+E  G  
+   To put out the 
+D    C 
+blow torch 
+D  C 
+   It isn't me 
+G  Bb 
+ We have some seed 
+D  C 
+   Let me clip 
+G  Bb 
+ Your dirty wings 
+D  C              G 
+   Let me take a ride 
+        Bb 
+Don't hurt yourself 
+D  C 
+  I want some help 
+G    Bb 
+  To please myself 
+D     C 
+ I've got some rope 
+G     Bb 
+  You have been told 
+D     C 
+  I promise you 
+G  Bb 
+ I've been true 
+D C            G 
+ Let me take a ride 
+       Bb 
+Don't hurt yourself 
+D  C 
+ I want some help 
+G   Bb 
+  To please myself 
+ 
+(E G D C) 
+ 
+E  G            D      C 
+  Polly wants a cracker 
+E  G 
+   Maybe she would 
+D          C 
+Like some food 
+E   G            D   C 
+  Asks me to untie her 
+E   G 
+   A chase would be 
+D          C 
+nice for a few 
+ 
+D   C 
+ It isn't me 
+G   Bb 
+  We have some seed 
+D   C
+
+ Let me clip 
+G   Bb 
+ Your dirty wings 
+D  C           G 
+  Let me take a ride    
+      Bb 
+Don't hurt yourself 
+D   C4 
+  I want some help 
+G     Bb 
+  To please myself 
+D      C 
+  I've got some rope 
+G     Bb 
+  You have been told 
+D     C 
+  I promise you 
+G  Bb 
+ I've been true 
+D  C              G 
+  Let me take a ride 
+    Bb 
+Don't hurt yourself 
+D   C 
+ I want some help 
+G   Bb 
+  To plase myself 
+ 
+Só o baixo:(Em G D C) 
+ 
+Polly said... 
+E   G 
+  Polly says her 
+D        C 
+back hurts 
+E    G 
+   And she's just 
+ D          C 
+as bored as me 
+E   G 
+  She caught me 
+D     C 
+off my guard 
+E    G 
+  It amazes me, 
+    D            C 
+the will of instintc 
+ 
+D   C 
+ It isn't me 
+G   Bb 
+  We have some seed 
+D   C 
+ Let me clip 
+G   Bb 
+ Your dirty wings 
+D  C           G 
+  Let me take a ride    
+      Bb 
+Don't hurt yourself 
+D   C4 
+  I want some help 
+G     Bb 
+  To please myself 
+D      C 
+  I've got some rope 
+G     Bb 
+  You have been told 
+D     C 
+  I promise you
+
+G  Bb 
+ I've been true 
+D  C              G 
+  Let me take a ride 
+    Bb 
+Don't hurt yourself 
+D   C 
+ I want some help 
+G   Bb 
+  To plase myself...

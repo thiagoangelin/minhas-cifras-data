@@ -1,0 +1,42 @@
+Elvis Presley - So High 
+ 
+Capo 3 
+            D 
+Well, He's so high (so high you can't get over Him) 
+   A 
+So wide (so wide you can't get around Him) 
+   G 
+So low (so low you can't get under him) 
+          C          D           A          D  
+Great God Almighty (you must come in at the door) 
+ 
+Oh well, He's high (so high you can't get over Him) 
+He's wide (so wide you can't get around Him) 
+So low (so low you can't get under him) 
+The mighty lamb (you must come in at the door) 
+D 
+Well I went down in the valley 
+                                A 
+You know I did over there ever stay 
+   D                     G 
+My soul got happy in the valley 
+           D            A         D 
+You know I stayed right there all day 
+ 
+Well, He's high (so high you can't get over Him) 
+And he's wide (so wide you can't get around Him) 
+I know he's so low (so low you can't get under him) 
+The mighty lamb (you must come in at the door) 
+ 
+Well I ain't been to heaven but I'm, I'm told 
+The streets the streets are pearls 
+You know the mighty mighty 
+Mighty gates are gold 
+And He's high (so high you can't get over Him) 
+So wide (so wide you can't get around Him) 
+He's so low (so low you can't get under him) 
+The mighty lamb (you must come in at the door) 
+Well, He's high (so high you can't get over Him) 
+And he's wide (so wide you can't get around Him) 
+I know he's so low (so low you can't get under him) 
+The mighty lamb (you must come in at the door)

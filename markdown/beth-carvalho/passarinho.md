@@ -1,0 +1,60 @@
+Beth Carvalho - Passarinho 
+ 
+C     G7                  C 
+Quero viver como um passarinho 
+C     A7           Dm     A7 
+Cantar, voar sem direção 
+Dm    A7                       Dm 
+Quando quiser construir meu ninho 
+G7                  C         G7 
+Hei de encontrar um coração 
+C     G7                  C  A7 
+Por enquanto eu quero viver 
+ Dm      A7     Dm 
+Com toda liberdade 
+F   Bb7        Em       A7 
+Cantando aqui, pousando ali 
+Dm   G7          C 
+Esta é a minha vontade 
+       G7 
+Quero viver 
+C     G7                  C 
+Quero viver como um passarinho 
+C     A7           Dm     A7 
+Cantar, voar sem direção 
+Dm    A7                       Dm 
+Quando quiser construir meu ninho 
+G7                  C         G7 
+Hei de encontrar um coração 
+C     G7                  C  A7 
+Por enquanto eu quero viver 
+ Dm      A7     Dm 
+Com toda liberdade 
+F   Bb7        Em       A7 
+Cantando aqui, pousando ali 
+Dm   G7          C    A7 
+Esta é a minha vontade 
+ 
+Dm7    A7              Dm7 
+Não, eu não quero prisão 
+A7               Dm7 
+Para o meu coração 
+G7        C  C7 
+Eu não quero 
+F    Bb7             Em 
+Será bem triste o meu fim 
+A7        Dm 
+Se eu não conseguir 
+G7                C 
+Ter a minha vida assim 
+C7 
+Será 
+ 
+F    Bb7              Em 
+Será bem triste o meu fim 
+A7               Dm 
+Se eu não conseguir 
+G7                C 
+Ter a minha vida assim 
+       G7 
+Quero viver

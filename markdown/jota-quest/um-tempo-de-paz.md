@@ -1,0 +1,58 @@
+Jota Quest - Um Tempo De Paz 
+ 
+C#m  G#m  A  E  (Intro - 2x) 
+ 
+C#m             G#m      A 
+Não, não, diga nunca mais 
+          E                 C#m 
+Nossa história não vai ter fim 
+             G#m    A 
+Nosso planos desiguais 
+           E                   C#m 
+Nos completa, e eu te quero assim 
+               G#m       A 
+Não, não, diga nunca mais 
+         E                C#m 
+Viva o sonho do inicio ao fim 
+            G#m     A          B 
+Nossa juventude vai nos mostrar o caminho 
+ 
+E                    B 
+Vem deixar tudo pra trás 
+                             A 
+Vem que a vida reservou pra gente 
+     E 
+Um tempo de paz 
+     B 
+Um tempo de paz 
+E                     B 
+Vem que é hora de aprender 
+                             A 
+Vem que o amor pode mudar a gente, a gente 
+     E               B 
+Te quero demais, te quero demais 
+ 
+C#m                  G#m 
+Hoje é tão longe, lá onde o tempo esconde 
+   A                       E 
+Esquece essa intriga, eu quero te ter (2x) 
+ 
+C#m             G#m      A 
+Não, não, diga nunca mais 
+          E                 C#m 
+Nossa história não vai ter fim 
+             G#m    A 
+Nosso planos desiguais 
+           E                   C#m 
+Nos completa, e eu te quero assim 
+               G#m       A 
+Não, não, diga nunca mais 
+         E                C#m 
+Viva o sonho do inicio ao fim 
+            G#m     A          B 
+Nossa juventude vai nos mostrar o caminho 
+ 
+C#m                  G#m 
+Hoje é tão longe, lá onde o tempo esconde 
+   A                       E 
+Esquece essa intriga, eu quero te ter (10x)

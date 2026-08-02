@@ -1,0 +1,55 @@
+Natiruts - Nossa Missao 
+ 
+Intro: Bb7+ C#7+ 
+ 
+          F 
+eu quero ficar 
+C#7+ 
+livre pra sentir 
+           F 
+a brisa do mar 
+     C#7+ 
+e poder traduzir 
+              F 
+no que fez chorar  
+   C#7+                       F 
+no que faz lembrar, de tubo de bom 
+   F#7+                   F 
+ver a paz fluir vinda dos olhos seus 
+F#7+                     F 
+e olhar pro ceu e sentir deus 
+F#7+ 
+qualquer deus, é... 
+ 
+Bb7+ 
+nossa missao 
+C#7+ 
+nossa lição 
+Bb7+          C#7+ 
+Nossa lição   eehh 
+ 
+             F 
+nao quero saber  
+C#7+ 
+quanto tempo faz 
+             F 
+de quanto sofri 
+C#7+ 
+nao lamento mais 
+            F 
+sera rendicao  
+C#7+ 
+onde existe paz 
+             F 
+não pago pra ver  
+F#7+                        F 
+a cor da tarde purpura anoitecer 
+F#7+                      F       F#7+ 
+e só ver a noite e ser feliz,  ser feliz ehhhhhhh 
+ 
+Bb7+ 
+nossa missao 
+C#7+ 
+nossa lição 
+Bb7+          C#7+ 
+Nossa lição   éé...

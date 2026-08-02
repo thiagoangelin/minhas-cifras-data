@@ -1,0 +1,31 @@
+Barao Vermelho - Certo Dia Na Cidade 
+ 
+ C 
+ Já nem sei quanto tempo faz 
+ Ele foi como quem se distrai 
+ F 
+ Viu na cor de um som a cor que atrai 
+C                                  Bb 
+ Foi num solo que não volta atrás 
+C 
+ Tchau, mãezinha, fui beijar o céu 
+ A vida não tem tamanho 
+   F 
+ Tchau, paizinho, eu vou levando fé 
+C 
+ É tudo luz e sonho 
+         F  Em  Dm   C 
+ É tudo luz  e  so...nho 
+ F   Em   Dm   C   F   Em   Dm   C   G   Dm 
+ Eu vou viver, vou sentir tudo 
+ Eu vou sofrer, eu vou amar demais 
+F              Em 
+ Ei, garoto, a força que me conduz 
+F 
+ É leve e é pesada 
+       Em 
+ É uma barra de ferro jogada no ar 
+F         Em        F 
+ Eu vou levando fé 
+                G 
+ Eu vou levando fé

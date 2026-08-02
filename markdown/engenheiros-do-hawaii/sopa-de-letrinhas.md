@@ -1,0 +1,62 @@
+Engenheiros Do Hawaii - Sopa De Letrinhas 
+ 
+[Intro] Em  D 
+ 
+Em 
+Nosso amor é nazifascista 
+   D 
+Você se esconde, eu sigo a tua pista 
+   Em 
+Eu fico sozinho, mas não fico em paz 
+   D 
+Eu volto pra casa, você volta atrás 
+ 
+Em 
+Nosso amor é medieval 
+   D 
+É como uma pedra em vidro de catedral 
+Em 
+Ontem à noite, eu tive um sonho exótico 
+     D 
+Nós dois, por aí, transando sexo gótico 
+ 
+C                Bm 
+Eu fico sozinho, teu beijo me arranha 
+C                    B                Em 
+Um estranho no ninho, ninguém estranha 
+ 
+Em 
+Nosso amor é uma abobrinha 
+       D 
+Eu escrevo teu nome numa sopa de letrinhas 
+   Em 
+Eu fico sonhando em ser astronauta 
+   D 
+Eu olho pra lua e sinto a tua falta 
+ 
+Em 
+Nosso amor é pós-moderno 
+      D 
+"Eu quero que você me aqueça nesse inverno" 
+Em 
+Tenho andado aéreo 
+ 
+Como tropas minhas no ataque 
+        D 
+Fim de noite, fim de mundo 
+ 
+Lá no fundo do conhaque 
+ 
+C                Bm 
+Eu fico sozinho, teu beijo me arranha 
+C                    B                 Em 
+Um estranho no ninho, ninguém estranha 
+ 
+Em 
+Nosso amor é nazifascista 
+    D 
+Eu tento fugir, você me conquista 
+    Em 
+Eu fico sozinho, mas não fico em paz 
+    D 
+Eu volto pra casa, você volta atrás

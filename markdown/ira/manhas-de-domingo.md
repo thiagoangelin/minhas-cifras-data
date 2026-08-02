@@ -1,0 +1,76 @@
+Ira - Manhas De Domingo 
+ 
+Intro: A 
+ 
+A 
+Nas manhas de Domingo 
+               G 
+Parece que todos olham pra voce 
+A 
+Atravessando as ruas 
+Sem olhar pros farois 
+            G 
+Nas manhas de Domingo 
+D                      A 
+Parece que a noite valeu a pena 
+Nas manhas de Domingo 
+     G 
+Conversando com os amigos invisiveis 
+A 
+Seu rosto ainda reflete 
+  G 
+A noite que passou 
+D 
+Voce chega em casa 
+E 
+Com a cabeca em outro lugar 
+D 
+Seu rosto ainda reflete 
+E              A 
+Uma grande felicidade 
+Nas manhas de Domingo 
+               G 
+Parece que todos olham pra voce 
+A 
+Atravessando as ruas sem olhar pros farois 
+           G 
+Nas manhas de Domingo 
+D                     A 
+Parece que a noite valeu a pena 
+G          D 
+Sua familia esperava 
+G          D 
+Ja e hora do almoço 
+G 
+Todos lhe olham 
+D 
+Mas voce nao ve ninguem 
+G             D 
+Sua cabeaa esta em outro lugar 
+G 
+Parece que realmente 
+C               A 
+A noite valeu a pena 
+Nas manhas de Domingo 
+Parece que todos sempre 
+  G 
+Esquecem da Segunda feira 
+A 
+E as horas se passam 
+  G 
+E voce nao voltou 
+D 
+Voce chega em casa 
+E 
+Com a cabeca em outro lugar 
+D 
+Seu rosto ainda reflete 
+E              A 
+Uma grande felicidade
+
+G            D 
+E agora o que te espera 
+G            D    G  C 
+E agora o que te espera 
+A 
+Nas manhas de Domingo

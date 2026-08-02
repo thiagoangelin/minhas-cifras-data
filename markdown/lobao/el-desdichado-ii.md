@@ -1,0 +1,73 @@
+Lobao - El Desdichado Ii 
+ 
+Intro:(C5  D#5  F#5 G#5     C5   G#5   F#5   D#5) (C5   
+D#5  F#5 G#5     C5   G#5 ) 
+C5          D#5           F#5 G#5 
+Eu sou o Tenebroso, o Irmão sem irmão, 
+C5        G#5   F#5   D#5 
+o Abandono,  Inconsolado, 
+C5      D#5  F#5 G#5 
+ o Sol negro 
+C5        G#5 
+ da melancolia 
+    C5        D#5      F#5 G#5 
+Eu sou Ninguém, a Calma sem alma 
+C5       G#5   F#5   D#5 
+que assola, atordoa e vem 
+C5      D#5  F#5    G#5 
+No desmaio do final de 
+C5   G#5 
+cada dia 
+ 
+C5 
+Eu sou a Explosão, o Exu, o Anjo, o Rei 
+B5 
+O samba-sem-canção, o Soberano 
+C5        D#5    F#5 G#5      C5   G#5 
+de toda a alegria que existia 
+ 
+C5 
+Eu sou a Contramão da contradição 
+B5 
+Que se entrega a Qualquer deus-novo-embrião Pra traficar 
+C5          D#5         F#5       G#5       C5   G#5 
+o meu futuro por um inferno mais tranqüilo 
+ 
+C5 
+Eu sou Nada e é isso que me convém 
+B5 
+Eu sou o sub-do-mundo e o que será 
+C5    D#5  F#5 G#5     C5   G#5   F#5   D#5 
+que me detém? 
+Intr. 
+C5          D#5    F#5 G#5 
+Eu sou o Poderoso, o Bababã, 
+C5         G#5   F#5   D#5 
+o Bão! Eu sou o sangue, 
+C5          D#5      F#5 G#5 
+ não!Eu sou a Fome! do homem 
+C5                                 G#5 
+que come na brecha da mão de quem vacila 
+ C5  D#5  F#5 G#5 
+Eu sou a Camuflagem que engana o chão 
+C5            G#5           F#5   D#5 
+A Malandragem que resvala de mão em mão 
+C5             D#5        F#5          G#5 
+Eu sou a Bala que voa pra sempre, sem rumo, 
+C#5   G#5 
+perdida 
+ 
+             C5 
+Eu sou a Explosão, o Exu, o Anjo, o Rei 
+           C5 
+Eu sou o Morro, o Soberano, a Alegoria 
+      C5      D#5  F#5 G#5          C5   G#5 
+ que foi a minha vida 
+ 
+C5 
+Eu sou a Execução, a Perfuração 
+C5
+
+O Terror da próxima edição dos jornais 
+C5          D#5       F#5 G#5          C5   G#5 
+Que me gritam, me devassam e me silenciam

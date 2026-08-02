@@ -1,0 +1,38 @@
+U2 - Together Fine 
+ 
+Intro: D G 
+ 
+D              G 
+Come together fine  
+Am                     D  G 
+Will you stay there alone all the night?  
+D                  G 
+Come together fine  
+Am                              D G 
+Wanna you seat here by my side now?  
+D                         G 
+God knows that I want it.  
+Am                                      D   G 
+What do I want? Just stay with you.forever.  
+ 
+Girl you know, you belong me  
+For sure the time that you want to  
+I was blessed by God now  
+Putting you, in front of my heart  
+ 
+*Sad woman, happy woman, just fall in love with me.(2x)  
+ 
+God knows that I love you  
+So much that I can't live.without you.  
+When I, am thinking about you.  
+I can hear your breathing  
+As you was by my side.  
+ 
+*Sad woman, happy woman, just fall in love with me.(2x)  
+ 
+Come together fine (4x)  
+Will you stay there alone all the night?  
+Come together fine  
+Wanna you seat here by my side now?  
+God knows that I want it.  
+What do I want? Just stay with you.forever.

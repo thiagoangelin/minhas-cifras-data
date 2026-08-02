@@ -1,0 +1,39 @@
+Alceu Valenca - Dente De Ocidente 
+ 
+(intro) E 
+ 
+  E 
+Essa espuma sobre a praia 
+ 
+É um dente de ocidente 
+ 
+É um dente, um osso, um dente 
+                  G E 
+Vomitado pelo mar 
+ 
+E                     G E 
+Vem em ondas poluídas 
+E                    G E 
+Vem em nome da moral 
+E 
+Vem na crista dessa onda 
+                   G E D C 
+A cultura ocidental 
+ 
+C                        E 
+E a espuma branca se lança 
+C                   E 
+Na força da preamar 
+C                    E 
+Em ondas curtas, notícias 
+C                  E 
+Na hora do meu jantar 
+ 
+C                      E 
+Vem nos mistérios da noite 
+C                     E 
+Na clara essência do dia 
+C                 E 
+Nos anúncios luminosos 
+C                E  (E) 
+No vestido de Maria

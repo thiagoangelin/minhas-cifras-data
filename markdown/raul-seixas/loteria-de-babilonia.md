@@ -1,0 +1,68 @@
+Raul Seixas - Loteria De Babilonia 
+ 
+[Intro] E  E7/B 
+ 
+                  G              A   E 
+Vai e grita ao mundo que você está certo 
+          G          A             E 
+Você aprendeu tudo enquanto estava mudo 
+  G           A       E 
+Agora é necessário gritar e cantar Rock 
+         F#                A 
+E demonstrar o teorema da vida 
+             A  A#  B 
+E os macetes do xadrez 
+ 
+  D              A          E 
+Você tem as respostas das perguntas 
+  D              A            E 
+Resolveu as equações que não sabia 
+    D            A             E 
+E já não tem mais nada o que fazer a não ser 
+   F# 
+Verdades e verdades 
+        A                      A  A# B 
+Mais verdades e verdades para me dizer 
+  A A#  B  Cm  C#m 
+A delarar 
+ 
+                                                B  Cm  C#m 
+Tudo o que tinha que ser chorado já foi chorado 
+                                  B  Cm  C#m 
+Você já cumpriu os doze trabalhos 
+                                       B  Cm  C#m 
+Reescreveu livros dos séculos passados 
+                                      C#m  Cm  B 
+Assinou duplicatas inventou baralhos 
+                                 B  A#  A 
+Passeou de dia e dormiu de noite 
+                          G#m        A 
+Consertou vitrolas para ouvir música 
+                G#m           A 
+Sabe trechos da Bíblia de cor 
+                G#m 
+Sabe receitas mágicas de amor 
+ 
+F#m                          B7 
+Conhece em Marte um amigo antigo lavrador 
+         F#m                       B7 
+Que te ensinou a ter do bom e do melhor 
+A     B7 
+Do melhor 
+ 
+       D            A          E 
+Mas o que você não sabe por inteiro 
+   D      A     E 
+É como ganhar dinheiro 
+             D           A       E 
+Mas isso é fácil e você não vai parar 
+  F#                         A 
+Você não tem perguntas pra fazer 
+                       A   A#  B 
+Porque só tem verdades pra dizer 
+     A  A# B 
+Pra declarar 
+ 
+( D  A  E ) 
+( D  A  E ) 
+( D  A  E )

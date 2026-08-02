@@ -1,0 +1,93 @@
+Raul Seixas - Ta Na Hora 
+ 
+Intro: A D 
+ 
+ D 
+Andei durante dez anos 
+         Em 
+Fazendo planos para falar 
+     A 
+Com seres vindo do espaço 
+          D 
+Com a resposta para me dar 
+                     D7 
+Porém quando estava pronto 
+           G 
+para o contato minha 
+    Gm      D              A 
+Pequena me disse você vai ver 
+           D 
+tudo no cinema 
+                    A 
+E aonde que está a vida 
+                         D 
+E onde que está a experiência 
+                      A 
+Já te entregam tudo pronto sempre em nome 
+Da ciência sempre em troca da 
+   D 
+vivência 
+                   A 
+E aonde que tá a vida vida 
+                  D 
+E a minha independência 
+Depois de muita espera 
+          Em 
+Quem eu queria quis me encontrar 
+  A 
+um banho decente 
+              D 
+Escovei meus dentes pra lhe beijar 
+                   D7 
+Guardei lugar no motel 
+            G 
+Pra lua de mel 
+                   Gm 
+Que eu sempre esperei 
+   D          A              D 
+Porém na hora H eu não levantei 
+                  A 
+Tá na hora do trabalho 
+                      D 
+Tá na hora de ir pra casa 
+                 A 
+Tá na hora da esposa e enquanto eu vou pra frente 
+                     D 
+Toda a minha vida atrasa 
+                   A 
+Eu tenho muita paciência 
+                    D 
+Mas a minha independência 
+Aonde é que tá 
+Durante a vida inteira 
+          Em 
+Eu trabalhei pra me aposentar 
+    A 
+Paguei seguro de vida 
+         D 
+Para morrer sem me aporrinhar 
+                   D7
+
+Depois de tanto esforço 
+             G             Gm 
+O patrão me deu caneta de ouro 
+    D             A                D 
+Dizendo enfia no bolso e vai se virar 
+                  A 
+Tá na hora da velhice 
+                    D 
+Tá na hora de ir deitar 
+                 A 
+Tá na hora da cadeira de balanço do pijama 
+                  D 
+Do remédio pra 
+                A 
+Oh Divina Providência 
+                  D 
+E a minha independência 
+          E7               A 
+Ah E minha vida e minha vida 
+            G     G# A E7 D 
+Onde é que está 
+G    D 
+Onde é

@@ -1,0 +1,52 @@
+Elba Ramalho - Frevo Meio Envergonhado 
+ 
+Bm 
+Não sou de nenhuma tribo 
+                             Em 
+A minha ciranda não tem roda não 
+                    F# 
+Eu faço de tudo um pouco 
+                              Bm 
+Mas ninguém viu, ninguém sabe não 
+ 
+B7   Em                      Bm 
+Sou desse jeito meio envergonhada 
+               F#             Bm 
+mas quando eu danço,vou até o chão 
+B7   Em                      Bm 
+Sou desse jeito meio envergonhada 
+               F#             Bm 
+Mas quando eu danço,vou até o chão 
+ 
+Bm 
+Será que eu posso ensinar 
+ 
+A desligar o botão 
+        F#        Bm 
+E viver só com o coração 
+B7   Em 
+Vida é feita pra amar, 
+                  Bm 
+fazer o que bem quiser 
+    F#                         Bm 
+Tô aprendendo a chupar cana e assoviar 
+B7   Em 
+Vida é feita pra amar, 
+                  Bm 
+fazer o que bem quiser 
+     F#                         Bm 
+Tô aprendendo a chupar cana e assoviar 
+ 
+Bm       B7   Em       F# 
+Esse é o meu frevo,meu fogo 
+     D7       B7 
+Meu eterno carnaval 
+                Em 
+Eu vou correndo pra não me atrasar 
+F#          Bm 
+Vambora lá dançar.   
+ 
+Solo
+  Bm Em F# Bm B7 Em F# Bm (F#) 
+ 
+Repete tudo outra vez

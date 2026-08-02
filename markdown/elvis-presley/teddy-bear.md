@@ -1,0 +1,41 @@
+Elvis Presley - Teddy Bear 
+ 
+intru=(C F C) 
+ 
+C 
+Baby let me be, 
+F C 
+your lovin' Teddy Bear 
+F 
+Put a chain around my neck, 
+F C 
+and lead me anywhere 
+G7 
+Oh let me be 
+[NC] C 
+Your teddy bear. 
+ 
+F G7 
+I don't wanna be a tiger 
+F G7 
+Cause tigers play too rough 
+F G7 
+I don't wanna be a lion 
+F G7 
+'Cause lions ain't the kind 
+C 
+you love enough. 
+[NC] C 
+Just wanna be, your Teddy Bear 
+F 
+Put a chain around my neck 
+F C 
+and lead me anywhere 
+G7 
+Oh let me be 
+C 
+Your teddy bear. 
+ 
+Baby let me be, around you every night 
+Run your fingers through my hair, 
+And cuddle me real tight.

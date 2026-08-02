@@ -1,0 +1,28 @@
+Nenhum De Nos - Enquanto Conversamos 
+ 
+(intro) D5 E5 F5 A5 D5 E5 F5 E5 
+ 
+ D5            E5         F5           A5 
+Enquanto conversamos procuramos compreender 
+ D5            E5         F5           E5 
+Por que uma porta se fechou atrás de nós 
+ D5            E5         F5           A5 
+Havia um homem no apartamento ao lado 
+ D5            E5    F5    E5 
+Ele não tinha nem a quem dizer... 
+ 
+ Bb5                       A5 
+Que havia uma vontade angustiante de sumir 
+ Bb5              A5 
+E apenas um lugar aonde ir 
+ Bb5                       A5 
+Que havia uma vontade angustiante de sumir 
+ Bb5              A5 
+E apenas um lugar aonde ir 
+ 
+ D5       E5       F5       A5 
+Hoje ele não mora mais ali! 
+ D5       E5       F5       E5 
+Hoje ele não mora mais ali! 
+ 
+( D5 E5 F5 A5 D5 E5 F5 E5 )

@@ -1,0 +1,127 @@
+O Rappa - O Que Sobrou Do Ceu 
+ 
+[Intro] E  D#m7  G#m 
+ 
+[Refrão] 
+ 
+E             D#m7   G#m 
+Ô la la Ô la la    ê a 
+E             D#m7   G#m 
+Ô la la Ô la la   êê a 
+E             D#m7   G#m 
+Ô la la Ô la la    ê a 
+E             D#m7   G#m 
+Ô la la Ô la la   êê a 
+ 
+[Primeira parte] 
+ 
+        E 
+Faltou luz mas era dia 
+   D#m7         G#m 
+O sol invadiu a sala 
+ E 
+Fez da TV um espelho 
+      D#m7                    G#m 
+Refletindo o que agente esquecia 
+        E               D#m7  G#m 
+Faltou luz mas era diiia,  di-i-a 
+        E                D#m7  G#m 
+Faltou luz mas era dia, dia, dia 
+ 
+[Segunda parte] 
+ 
+   E 
+O som das crianças brincando nas ruas 
+ D#m7                 G#m 
+Como se fosse um quintal 
+      E 
+A cerveja gelada na esquina 
+ D#m7              G#m 
+Como se espantasse o mal 
+C#m7 
+O chá pra curar essa azia 
+    G#m 
+Um bom chá pra curar essa azia 
+ C#m7                 G#m7 
+Todas as ciências de baixa tecnologia 
+ C#m7                          G#m7 
+Todas as cores escondidas nas nuvens da rotina 
+ 
+[Pré-Refrão] 
+ 
+     G#m   F# 
+Pra gente ver 
+    E                   G#m  F# Bbm11 
+Por entre os prédios e nós 
+     E     F#  ( E  F# ) 
+Pra gente ver 
+                 G#m  F# Bbm11 
+O que sobrou do céu 
+ 
+[Refrão] 
+ 
+E             D#m7   G#m 
+Ô la la Ô la la    ê a 
+E             D#m7   G#m 
+Ô la la Ô la la   êê a 
+E             D#m7   G#m 
+Ô la la Ô la la    ê a 
+E             D#m7   G#m
+
+Ô la la Ô la la   êê a 
+ 
+[Primeira parte] 
+ 
+        E 
+Faltou luz mas era dia 
+   D#m7         G#m 
+O sol invadiu a sala 
+ E 
+Fez da TV um espelho 
+      D#m7                    G#m 
+Refletindo o que agente esquecia 
+        E               D#m7  G#m 
+Faltou luz mas era diiia,  di-i-a 
+        E                D#m7  G#m 
+Faltou luz mas era dia, dia, dia 
+ 
+[Segunda parte] 
+ 
+   E 
+O som das crianças brincando nas ruas 
+ D#m7                 G#m 
+Como se fosse um quintal 
+      E 
+A cerveja gelada na esquina 
+ D#m7              G#m 
+Como se espantasse o mal 
+C#m7 
+O chá pra curar essa azia 
+    G#m 
+Um bom chá pra curar essa azia 
+ C#m7                 G#m7 
+Todas as ciências de baixa tecnologia 
+ C#m7                          G#m7 
+Todas as cores escondidas nas nuvens da rotina 
+ 
+[Pré-Refrão] 
+ 
+     G#m   F# 
+Pra gente ver 
+    E                   G#m  F# Bbm11 
+Por entre os prédios e nós 
+     E     F#  ( E  F# ) 
+Pra gente ver 
+                 G#m  F# Bbm11 
+O que sobrou do céu 
+ 
+[Refrão] 
+ 
+E             D#m7   G#m 
+Ô la la Ô la la    ê a 
+E             D#m7   G#m 
+Ô la la Ô la la   êê a 
+E             D#m7   G#m 
+Ô la la Ô la la    ê a 
+E             D#m7   G#m 
+Ô la la Ô la la   êê a

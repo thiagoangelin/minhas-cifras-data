@@ -1,0 +1,58 @@
+Roberto Carlos - Se Voce Quer 
+ 
+ A                       E 
+Se você quer voltar pra mim 
+                        A 
+Não vai ser como era antes 
+                           E 
+Tem que ser tudo como eu quero 
+                        A 
+Se não não vamos ser amantes 
+                       E 
+Você bem sabe do que eu falo 
+                      A 
+O que sofri já foi bastante 
+ 
+                          E 
+Se você quer voltar pra mim 
+                    A 
+Condições eu não aceito 
+                          E 
+Você bem sabe que eu te quero 
+                        A 
+Mas não me fale desse jeito 
+                         E 
+Porque por bem você me leva 
+                       A        A7 
+Mas dessa forma nada feito 
+ 
+                       D 
+Mas eu não posso permitir 
+                  E 
+Esse amor a me ferir 
+                         A 
+Que me queiras quando queres 
+                    E 
+Que dividas teu carinho 
+                    D 
+Entre amigos e canções 
+                     A     A7 
+E quem sabe com mulheres 
+ 
+                     D 
+Mas eu sempre fui assim 
+                   E 
+Um boêmio, um sonhador 
+                 A 
+Pela vida apaixonado 
+                    E 
+Ser assim não é defeito 
+                  D 
+Me assuma desse jeito 
+                        A 
+Pra que eu fique do seu lado 
+ 
+                 D       E 
+Se você quiser voltar 
+                        A 
+Se você quiser que eu volte

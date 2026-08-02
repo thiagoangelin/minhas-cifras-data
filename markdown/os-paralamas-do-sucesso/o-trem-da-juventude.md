@@ -1,0 +1,44 @@
+Os Paralamas Do Sucesso - O Trem Da Juventude 
+ 
+    F#   
+Minha alma é lavada desencardida 
+e quem destratou a sua vida foi você 
+Desamarrada, desimpedida, desermada 
+Voa livre pelo mundo até escurecer 
+ 
+Ebm            Ab        C# 
+Quando faz frio perto do mar 
+C#m           F#         B 
+Quando não há nuvens no ceu 
+Bm             E        A        D 
+Quando sopra o vento terral de manhã 
+       G#       C#      F#   
+Vale a pena acordar pra ver 
+ 
+F# 
+Sempre atrasada, sempre iludida 
+De que vai voltar à vida que voce deixou 
+O tempo, os homes 
+As marcas de noites e dias mal vividos 
+Nada disso te perdoou 
+ 
+Ebm        Ab        C# 
+Rede de surfistas no mar 
+C#m         F#     B 
+Ligados por computador 
+Bm        E            A    D 
+Novas maravilhas pra se admirar 
+       G#          C#    F#   
+Não me venha com a velha dor 
+ 
+Ebm            Ab        C# 
+O trem da juventude é veloz 
+C#m         F#         B 
+Quando foi olhar já passou 
+Bm               E       A           D 
+Os trilhos do destino cruzando entre nós 
+     G#       C#      F#   
+Pela vida, trazendo o novo. 
+ (Eb F#) 
+ 
+(Repete tudo de novo)

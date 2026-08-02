@@ -1,0 +1,52 @@
+Ramones - Needles And Pins 
+ 
+Solo da Introdução 
+ 
+F# 
+I saw her today, I saw her face 
+                   Ebm 
+It was the face I love, and I knew 
+               F# 
+I had to run away 
+                               Ebm 
+And get down on my knees and pray, that they go away 
+                   F#               D#m 
+And still it begins, needles and pins 
+                   B                         C# 
+Because of all my pride, the tears I gotta hide 
+ 
+                        F# 
+Oh I thought I was smart, I stole her heart 
+                   Ebm 
+I didn't think I'd do, but now I see 
+                            F# 
+She's worth to him than me, let her go ahead 
+                  Ebm 
+Take his love instead, and one day she will see 
+                     F#                         Ebm 
+Just how to say please, and get down on her knees 
+                      B                                 C# 
+Oh that's how it begins, she'll feel those needle and pins 
+Hurtin' her, hurtin' her 
+ 
+   A#                                    G# 
+   Why can't stop, and tell myself I'm wrong, I'm wrong, so wrong 
+   F#                                           F 
+   Why can't I stand up, and tell myself I'm strong 
+ 
+                      A# 
+Because,  saw her today, I saw her face 
+                      Gm 
+It was the face I love, and I knew 
+                A# 
+I had to run away 
+                                Gm 
+And get down on my knees and pray, that they go away 
+                   A#               Gm 
+And still it begins, needles and pins 
+                      D#                    F 
+Because of all my pride, the tears I gotta hide 
+              A# 
+Needle and pins 
+Needle and pins 
+Needle and pins

@@ -1,0 +1,85 @@
+Johnny Cash - Devils Right Hand 2 
+ 
+     E                               A             E  
+Well about the time my daddy left to fight the big war 
+                           B       E 
+Saw my first pistol in the general store 
+                          A     E 
+In the general store when I was thirteen 
+                                  B        E 
+Thought it was the finest thing I ever had seen 
+                            A           E 
+I asked if I could have one when I grew up 
+                                  B           E 
+Mama dropped a dozen eggs and she really blew up 
+                         A           E 
+She really blew up and I didn't understand 
+                            B             E 
+Mama said the pistol is the Devil's right hand 
+ 
+[Chorus] 
+A                        E 
+She really blew up and I didn't understand 
+B                           E 
+Mama said the pistol is the Devil's right hand 
+    A                       E 
+The Devil's right hand, the Devil's right hand 
+B                           E 
+Mama said the pistol is the Devil's right hand 
+ 
+[Verse] 
+   E                       A            E 
+My very first pistol was a cap 'n' ball Colt 
+                                   B             E 
+Shoots as fast as lightning but it loads a might slow 
+                            A          E 
+It loads a might slow and I soon found out 
+                                   B             E 
+It can get you into trouble but it can't get you out 
+                                A      E 
+Then I went and bought myself a Colt .45 
+                            B           E 
+Called a "Peacemaker" but I didn't know why 
+                       A           E 
+I never knew why and I didn't understand 
+                                   B             E 
+'Cause Mama said the pistol is the Devil's right hand 
+ 
+[Chorus] 
+A                      E 
+I never knew why and I didn't understand 
+B                           E 
+Mama said the pistol is the Devil's right hand 
+    A                       E 
+The Devil's right hand, the Devil's right hand 
+B                           E 
+Mama said the pistol is the Devil's right hand 
+ 
+[Verse] 
+      E                     A       E 
+I got into a card game in a company town 
+                              B            E 
+Caught a minor cheatin' and I shot the dog down 
+                   A                E 
+Shot the dog down, watched the dog fall 
+                                 B               E 
+Never touched his holster, never had a chance to draw 
+                                      A              E 
+The Trial was in the morning and they drug me out of bed 
+                            B        E
+
+Asked me how I pleaded, not guilty I said 
+                          A             E 
+Not guilty I said, you've got the wrong man 
+                                    B             E 
+Nothin' touched the trigger but the Devil's right hand 
+ 
+[Chorus] 
+A                  E 
+Not guilty I said, you've got the wrong man 
+B                                   E 
+Nothin' touched the trigger but the Devil's right hand 
+    A                      E 
+The Devil'sright hand, the Devil's right hand 
+B                                   E 
+Nothin' touched the trigger but the Devil's right hand

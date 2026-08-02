@@ -1,0 +1,48 @@
+Jota Quest - Velocidade 
+ 
+ 
+Intro: E A 
+ 
+        E                              
+Ultrapassando as barreiras 
+     A 
+Da luz e do som 
+    E                                       
+Correndo mais que o tempo 
+         A 
+Eu tô vivendo 
+         E                          
+Ultrapassando os limites 
+     A      
+Da tua compreensão 
+     E                              
+Correndo mais que o tempo 
+         A 
+Eu tô vivendo 
+    E                                          
+A mente não consegue acompanhar 
+          A  
+Até a matéria se altera, se dissipa 
+      E 
+Estourando o giro 
+ 
+Por cima, por baixo 
+      A  
+Por dentro, por fora 
+Mas tem que ser agora 
+F#m 
+   Adrenalina 
+B 
+ Anfetamina 
+F#m            B 
+       Um novo tipo de morfina 
+F#m         B                    F#m 
+   Nas veias sangue explodindo gasolina 
+         B 
+A contramão alternativa 
+   E 
+Velocidade 
+   A 
+Velocidade 
+   E               A  
+Vivendo em alta velocidade

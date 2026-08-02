@@ -1,0 +1,28 @@
+Caetano Veloso - Marinheiro So 
+ 
+(Adaptação de Caetano Veloso) 
+ 
+E7            A                  
+Eu não sou daqui - Marinheiro só   
+               E                
+Eu não tenho amor - Marinheiro só   
+            B7                
+Eu sou da Bahia - Marinheiro só   
+             E                
+de São Salvador - Marinheiro só   
+                   B7                 
+O marinheiro,marinheiro - Marinheiro só   
+                    E                  
+quem te ensinou a nadar - Marinheiro só   
+                   B7                
+ou foi o tombo do navio - Marinheiro só   
+                     E                  
+ou foi o balanço do mar - Marinheiro só   
+E7            A                 
+Oi lá vem,lá vem - Marinheiro só   
+               E                     
+Como ele vem faceiro - Marinheiro só   
+         B7                   
+Todo de branco - Marinheiro só   
+             E                  
+com seu bonézinho - Marinheiro só

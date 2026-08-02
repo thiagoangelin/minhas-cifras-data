@@ -1,0 +1,28 @@
+Beth Carvalho - Dia Seguinte 
+ 
+Dm  D7     Gm                 A7                      Dm  
+E   depois quando a festa acabar o que  vai ser dessa vida 
+      D7     Gm    A7                         Dm 
+Vai voltar ao que era antes de passar pela avenida 
+     D7    Gm       A7                               Dm 
+Nem melhor  , nem pior porque não pode ser mais dolorida 
+    D7                              Gm              
+Que sera desse mundo de branco e de azul quando o som 
+              A7   Dm       D7                       Gm 
+Das pastoras emudecer , e o som da batida do surdo parar igual 
+             A7      Dm     A7 
+Um coração para de bater 
+ 
+2° parte 
+Dm     D7  Gm      A7                            Dm  
+Que   será dessa porta bandeira que foi tão aplaudida 
+D7    Gm           A7                      Dm 
+Amanhã quando recomeçar a tristeza interrompida 
+   D7   Gm      A7                           Am    
+E esse rei que perde a coroa e a glória consentida                 
+                D7                Gm                A7 
+Volta a ser camelô biscateiro ou gari ou de berro na mão por aí 
+Dm                           D7         Gm                 
+Reinar//poderá ser mais um pingente que cai que no ano que vem 
+     A7        Dm 
+Ninguém vai notar.

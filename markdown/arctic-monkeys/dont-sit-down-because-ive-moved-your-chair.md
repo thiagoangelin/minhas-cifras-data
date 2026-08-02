@@ -1,0 +1,27 @@
+Arctic Monkeys - Dont Sit Down Because Ive Moved 
+Your Chair 
+ 
+ 
+ 
+Break a mirror, roll the dice 
+Run with scissors through a chip pan fire fight 
+Go into business with a grizzly bear 
+But just don't sit down, cause I've moved your chair 
+ 
+Find a well known hardman and start a fight 
+Wear your shell suit on bonfire night 
+ 
+Fit a circular hole with a peg that's square 
+But just don't sit down, cause I've moved your chair 
+ 
+(ohhhh yeah yeah yeah) 
+(ohhhh yeah yeah yeah) 
+ 
+Bite the lightning and tell me how it tastes 
+Kung-fu fighting on your rollerskates 
+Do the macarena in the devil's lair 
+But just don't sit down, cause I've moved your chair 
+ 
+(ohhhh yeah yeah yeah) 
+(ohhhh yeah yeah yeah) 
+(ohhhh yeah yeah yeah)

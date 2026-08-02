@@ -1,0 +1,61 @@
+Pitty - Pequena Morte 
+ 
+Em                           A9           Em 
+   Gosto o jeito que você se despe dos costumes 
+Em                          A9             Em 
+   O jeito que assume que o negócio é se arriscar 
+Em                           A9         Em 
+    Eu tinha prometido não ceder à compulsão 
+Em                                  A9          Em 
+    Mas é uma agressão dizer pra um bicho não caçar 
+ 
+Em 
+O bom é que 
+A9       Bb5           B5            Bb5          Em 
+Depois, o final é a pequena morte lenta de nós dois 
+ 
+Em                      A9            Em 
+   E do nada a sua mão ocupa minha cintura 
+Em                        A9       Em 
+  Fica uma quentura demarcando o lugar 
+Em                          A9              Em 
+  O seu olho jura, e eu já saquei que essa noite 
+Em                                 A9            Em 
+   De um jeito ou de outro a gente vai se entrelaçar 
+ 
+Em 
+O bom é que 
+A9       Bb5           B5            Bb5          Em 
+Depois, o final é a pequena morte lenta de nós dois 
+ 
+Em                  F       E 
+Desagradável não te ver por aí 
+Em                  F       E 
+Insuportável não te ter por aqui 
+Em                  F         E 
+Ainda outro dia eu tentei com alguém 
+Em                     F       E 
+E o que eu queria era colar em você, meu bem 
+ 
+Em                           A9           Em 
+   De repente a gente nessa dança muito doida 
+Em                    A9              Em 
+    Rolando, suando, nunca para de pulsar 
+Em                       A9                   Em 
+    Lá se vão as horas, ninguém conta mais o tempo 
+Em                  A9              Em 
+    O arrebatamento não demora a chegar 
+ 
+ Bm 
+O bom é que 
+G          C         Am           A9          Em 
+Depois, o final é a pequena morte lenta de nós dois 
+ 
+Em                  F       E 
+Desagradável não te ver por aí 
+Em                  F       E 
+Insuportável não te ter por aqui 
+Em                  F         E 
+Ainda outro dia eu tentei com alguém 
+Em                     F       E 
+E o que eu queria era colar em você, meu bem

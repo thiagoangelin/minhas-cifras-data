@@ -1,0 +1,51 @@
+Dominguinhos - Canta Luiz 
+ 
+Intro: D F#m Em D/ D F#m Em D 
+ 
+ D7      G   A7      D 
+Canta Luiz, canta Luiz                    | 
+ Bm      G                A7       D  D7   | 
+Tua sanfona e teu cantar me faz feliz     |1ª Vez 
+ D7      G F#         Bm                   |Refrão 2X 
+Canta Luiz, toca pra nós.                 | 
+          G                 A7  D          | 
+Quero dormir e acordar com tua voz        | 
+ 
+D           Em             F#      Bm 
+Vai, asa branca, cantar lá no juazeiro. 
+            Em              A          D D7 
+Que o assum preto já chegou pra te escutar 
+D7       G               F#      Bm 
+Diz a cauã que me espere no umbuzeiro 
+       G              A7         D 
+E o carão já está começando a cantar 
+ 
+D7      G   A7      D 
+Canta Luiz, canta Luiz 
+Bm      G                A7       D  D7 
+Tua sanfona e teu cantar me faz feliz 
+D7      G F#         Bm 
+Canta Luiz, toca pra nós. 
+         G                 A7  D 
+Quero dormir e acordar com tua voz 
+ 
+D       Em            F#        Bm 
+Uma sanfona, gibão e chapéu de couro. 
+       G                A7     D  D7 
+E o cantar desse grande sanfoneiro 
+D7      G               F#       Bm 
+Sua canção já completou bodas de ouro 
+          G               A7          D 
+Sendo cantada nos rincões do mundo inteiro 
+ 
+D7      G   A7      D 
+Canta Luiz, canta Luiz 
+Bm      G                A7       D  D7 
+Tua sanfona e teu cantar me faz feliz 
+D7      G F#         Bm 
+Canta Luiz, toca pra nós. 
+         G                 A7  D 
+Quero dormir e acordar com tua voz 
+ 
+Solo
+  D F#m Em D/ D F#m Em D

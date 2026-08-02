@@ -1,0 +1,81 @@
+Zelia Duncan - Ralador 
+ 
+G 
+Pra dor de amor 
+        Am     G 
+Eu não faço sala 
+Am      G 
+Amor me deixa 
+Am      G 
+Outro amor me embala 
+           C 
+Eu sou um côco 
+           D 
+Que seu ralador 
+      G 
+Não rala 
+(Viu!) 
+           C 
+Eu sou um côco 
+             D 
+Que seu ralador 
+      G 
+Não rala...(2x) 
+G 
+A tristeza quando chega 
+                      Am 
+Se deixar, ela se instala 
+                   D 
+Se ela vê peito vazio 
+                     G 
+Quer fazer festa de gala 
+Ooooh! 
+                    G 
+Mas comigo não tem jeito 
+                   C 
+Ela nem desfaz a mala 
+                         G 
+Porque o amor quando me deixa sinhô! 
+      D                G 
+Tem outro em ponto de bala... 
+G 
+Pra dor de amor 
+        Am     G 
+Eu não faço sala 
+Am      G 
+Amor me deixa 
+Am      G 
+Outro amor me embala 
+           C 
+Eu sou um côco 
+           D 
+Que seu ralador 
+      G 
+Não rala 
+(Viu!) 
+           C 
+Eu sou um côco 
+             D 
+Que seu ralador 
+      G 
+Não rala...(2x) 
+ 
+G 
+A tristeza a gente sente (Ô Ô Ô) 
+Am 
+   Quando o seu chicote estala (Ô Ô Ô) 
+G                          Am 
+Se ela vê sinal de pranto (Ô Ô Ô) 
+D                     G
+
+Lambe o beiço e se regala, Ô! 
+G 
+Mas meu peito não se curva  (Ô Ô Ô) 
+Am                      D 
+   A borda, tacão, bengala (Ô Ô Ô) 
+G                         Am 
+  Meu amor que é de quilombo (Iáiá, kekerê, iê, iê) 
+         D                 G 
+Não se prende em dor de senzala... 
+D 
+Ah, pra dor...

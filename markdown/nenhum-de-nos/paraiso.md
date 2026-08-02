@@ -1,0 +1,76 @@
+Nenhum De Nos - Paraiso 
+ 
+Intro: A  D   A  D   A  D   A  D   A  D   A  D  E   
+ 
+A              D 
+Nada tem que ser 
+     A                 D 
+Da maneira que eu pensei  
+        A          G A 
+Tanto para conheceer  
+  F#m       D            A 
+Apenas um começo para mim  
+      F#m        D           A 
+Que vem   se afasta tanto assim   
+      D        E 
+Mas isso tanto faz   
+  D            E 
+Ficamos longe tempo demais  
+A        B       G#m           A 
+Eu não tenho paraíso pra te oferecer  
+   F#m      B 
+O fim da viagem 
+     F#m        B 
+No fim desse rio 
+F#m    B            A 
+Um oceano nos espera 
+              E 
+No fim desse rio 
+A              D             A             D9 
+Ah   ah   ah   ah   ah   ah; ah   ah   ah   ah   ah   ah   ah   
+A             D 
+Eu sei o que vejo e vivo 
+A           D 
+Para encurtar estradas 
+A            D 
+Regressar na primavera  
+    A         G         A 
+e encontrar a casa aberta 
+    F#m         D          A 
+E quem se afasta   tanto assim 
+    F#m       D            A 
+Espero um recomeço para mim 
+      D          E 
+Não há tristeza nas janelas 
+      D         E 
+E as flores são verdadeiras 
+A        B       G#m              A 
+Eu não tenho paraíso pra te oferecer 
+   F#m      B 
+O fim da viagem 
+     F#m        B 
+No fim desse rio 
+F#m   B         A 
+Um oceano nos espera 
+              E 
+No fim desse rio 
+A        B      G#m              A 
+Eu não tenho paraíso pra te oferecer 
+       F#m     B 
+Mas o fim da viagem 
+    F#m        B 
+No fim desse rio 
+F#m    B         A 
+Um oceano nos espera 
+              E 
+No fim desse rio 
+ 
+A              D              A            D9 
+Ah   ah   ah   ah   ah   ah; ah   ah   ah   ah   ah   ah   ah
+
+A             D              A 
+ah   ah   ah   ah   ah   ah   ah   ah   ah   ah   
+                 D             A             D9 
+Ah   ah   ah   ah   ah   ah; ah   ah   ah   ah   ah   ah   ah   
+A              D             A 
+ah   ah   ah   ah   ah   ah   ah   ah   ah   ah.

@@ -1,0 +1,42 @@
+Frejat - Tua Cancao 
+ 
+D              Bm        F#m          G  
+Te faço uma canção tão antiga e tão bonita  
+D                      Bm          F#m          G  
+Não tem queixa, nem ferida, é proteção pra toda vida  
+          D               Bm  
+Porque você entende meus sonhos  
+     F#m                     G  
+Teu sexo tem o gosto que eu gosto  
+    D                  Bm  
+Tua boca, carne, tua saliva  
+      F#m               G  
+Fazem minha carne mais viva  
+   E                  A  
+Então eu faço esse carinho  
+    F#               G  
+E assim fico menos sozinho  
+         D      G  
+Meu coração não chora mais  
+   E                    A (D G C G)  
+Na ponta de qualquer espinho  
+          D         Bm  
+Não tenha medo do futuro  
+     F#m                     G  
+Do escuro ou da hora de acordar  
+         D  
+Dorme em paz, amor  
+  Bm        F#m           G  
+O tempo que minha canção soar  
+        D          D7+  
+E não deixe de sonhar  
+         D7             G  
+Com o possível e o impossível  
+     Em                  A  
+No amor é quase sempre assim  
+F#          G  
+Tudo imprevisível  
+     D           D7+ D7 G Em A  
+Não deixe de sonhar  
+F#           G    D  
+Tudo imprevisível

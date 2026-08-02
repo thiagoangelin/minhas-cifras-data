@@ -1,0 +1,54 @@
+Alceu Valenca - Bobo Da Corte 
+ 
+INTRODUÇÃO:D 
+ 
+                   D 
+NEM TODO BEIJO É PECADO, NEM TODA FRUTA É MAÇÃ. 
+ 
+NEM TODO RÉU É CULPADO, NEM TODA CULPA É CRISTÃ. 
+                    D 
+NEM TODA CARTA É MARCADA, NEM TODA LENTE É 
+RAYBAN. 
+                                C     G    D 
+NEM TODA NOITE É NOITADA, NEM TODA LUZ É MANHÃ. 
+ 
+                  D 
+NEM TODO BEIJO É PECADO, NEM TODA FRUTA É MAÇÃ. 
+ 
+NEM TODO RÉU É CULPADO, NEM TODA CULPA É CRISTÃ. 
+                    D 
+NEM TODA CARTA É MARCADA, NEM TODA LENTE É 
+RAYBAN. 
+                                C     G    D 
+NEM TODA NOITE É NOITADA, NEM TODA LUZ É MANHÃ. 
+ 
+                 D 
+POIS EU EXIJO RESPEITO, POR MEU DESMANTELO. 
+ 
+TEUS OLHOS VERMELHOS, SE VENDO NO ESPELHO. 
+ 
+E QUERENDO VOAR, POR ISSO EU EXIJO RESPEITO. 
+ 
+POR TUAS PALAVRAS NA BOCA DA NOITE, NA BOCA DO 
+BOBO DA CORTE.  
+(D) 
+SOLO... 
+                   D 
+NEM TODO BEIJO É PECADO, NEM TODA FRUTA É MAÇÃ. 
+ 
+NEM TODO RÉU É CULPADO, NEM TODA CULPA É CRISTÃ. 
+                    D 
+NEM TODA CARTA É MARCADA, NEM TODA LENTE É 
+RAYBAN. 
+                               C      G    D 
+NEM TODA NOITE É NOITADA, NEM TODA LUZ É MANHÃ. 
+ 
+                 D 
+POIS EU EXIJO RESPEITO, POR TEU DESMANTELO. 
+ 
+TEUS OLHOS VERMELHOS, SE VENDO NO ESPELHO. 
+ 
+E QUERENDO VOAR, POR ISSO EXIJO RESPEITO. 
+                                                        D 
+POR TUAS PALAVRAS NA BOCA DA NOITE, NA BOCA DO 
+BOBO DA CORTE.

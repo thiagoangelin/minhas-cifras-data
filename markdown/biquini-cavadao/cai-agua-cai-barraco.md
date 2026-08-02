@@ -1,0 +1,151 @@
+Biquini Cavadao - Cai Agua Cai Barraco 
+ 
+Intr: Am F Am F  
+ 
+    Am 
+Cai agua  
+Cai barraco  
+Desentra todo mundo  
+     F 
+Cai agua  
+Cai montanha  
+                      Am F 
+E enterra quem morreu   
+             Am 
+É sempre assim todo verão  
+O tempo fecha  
+Inunda tudo  
+            F 
+É sempre assim todo verão  
+Um dia acaba o mundo  
+            Am F 
+       todo  
+    Am 
+Derreba o muro  
+O prédio podre  
+A casa velha  
+ 
+F 
+Empurra a velha  
+Pega a bolsa  
+E sai batida  
+          C             Bm 
+E sobe o morro, sobe o pau  
+               Am 
+      sobe o diabo  
+Em                   Bm 
+Desce o pau em toda gente,  
+                Am 
+      a gente "temo"  que  "corrê  
+          C           Bm 
+Corre pra cima e pra baixo,  
+            Am        Em 
+      se enfia num buraco  
+                 Bm 
+Manda fogo na policia pr' esses  
+        Am 
+       caras "aprendê"  
+         C              Bm 
+E sobe o morro, sobe o pau  
+                Am 
+      sobe o diabo  
+Em                   Bm 
+Desce o pau em toda gente,  
+                Am 
+      a gente "temo"  que  "corrê  
+          C           Bm 
+Corre pra cima e pra baixo,  
+           Am         Em 
+      se enfia num buraco  
+                 Bm 
+Manda fogo na policia pr' esses  
+        Am 
+       caras   
+             Am F Am F 
+      "aprendê"  
+               Am 
+Tem mais um filho na barriga   
+Outra criança pra mamar  
+         F
+
+Vai ser criado pela rua  
+                        Am F 
+Vai ter muito que ralar  
+   Am 
+O povo anda armado   
+ 
+O povo anda armado  
+       F 
+O povo todo anda armado  
+E esta cansado de sofrer  
+           C              Bm 
+ E sobe o morro, sobe o pau  
+                Am 
+      sobe o diabo  
+Em                   Bm 
+Desce o pau em toda gente,  
+                Am 
+      a gente "temo"  que  "corrê  
+          C           Bm 
+Corre pra cima e pra baixo,  
+           Am        Em 
+      se enfia num buraco  
+                 Bm 
+Manda fogo na policia pr' esses  
+        Am 
+       caras "aprendê"  
+         C              Bm 
+E sobe o morro, sobe o pau  
+                Am 
+      sobe o diabo  
+Em                   Bm 
+Desce o pau em toda gente,  
+                Am 
+      a gente "temo"  que  "corrê  
+          C           Bm 
+Corre pra cima e pra baixo,  
+            Am        Em 
+      se enfia num buraco  
+                 Bm 
+Manda fogo na policia pr' esses  
+        Am         Am  F Am F 
+       caras "aprendê"  
+Am 
+Bate no filho, bate boca, bateria  
+      bate palma  
+E não para de bater  
+F 
+Bate filho, bate boca   
+     bateria, bate uma  
+E não para de bater  
+Am 
+Bate no filho, bate na boca   
+     bateria, bate bola  
+E não para de bater  
+F 
+Bate no filho, bate na boca,  
+    bateria, bate bola  
+                    C Bm Am 
+E não para de bater  
+Em                   Bm 
+Desce o pau em toda gente,  
+                Am            C   Bm Am 
+      a gente "temo"  que  "corrê  
+          C           Bm 
+Corre pra cima e pra baixo,  
+            Am         Em 
+      se enfia num buraco  
+                 Bm 
+Manda fogo na policia pr' esses  
+        Am
+
+       caras "aprendê"  
+        C              Bm 
+ E sobe o morro, sobe o pau  
+                Am 
+      sobe o diabo  
+          C           Bm 
+Corre pra cima e pra baixo,  
+           Am        Em 
+      se enfia num buraco  
+Num buraco

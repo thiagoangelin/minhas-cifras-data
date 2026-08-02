@@ -1,0 +1,254 @@
+Guns N Roses - Cornshucker 
+ 
+(intro) E G A C 
+ 
+E                             G 
+My heart is full of love for you 
+A                          C 
+I wanna get right next to you 
+ 
+E 
+She's a cornchucker 
+G 
+A real buttfucker 
+A 
+Gotta wash my dick 
+A 
+After she makes me buttfuck her 
+ 
+E 
+Cornchucker 
+G 
+A real buttfucker 
+A 
+Gonna stick my dick 
+A 
+Right up her ass 
+ 
+E 
+She's a cornchucker 
+G 
+A real buttfucker 
+A 
+Gotta wash my dick 
+A 
+After she makes me buttfuck her 
+ 
+E 
+Cornchucker 
+G 
+A real buttfucker 
+A 
+Gonna stick my dick 
+A 
+Right up her ass 
+ 
+E 
+Gimme a dime 
+  G 
+Gotta call my pimp 
+              A 
+When I heard her ask 
+A 
+It made me go limp 
+E 
+Two weeks later 
+        G 
+My sex life was drab 
+A 
+Instead of a wang 
+A 
+All I had was a scab 
+E 
+If you're sleazy 
+G 
+You better think I'm first 
+A 
+'Cause I've got a dick like liverwurst! 
+ 
+E
+
+She's a cornchucker 
+G 
+A real buttfucker 
+A 
+Gonna watch my dick 
+A 
+As I make her butt pucker 
+ 
+E 
+Cornchucker 
+G 
+A real buttfucker 
+A 
+Hey, hey, hey, hey, hey! 
+ 
+(verso) 
+E 
+She's a cornchucker 
+G 
+A real butt fucker 
+A 
+Gonna watch my dick 
+A 
+As I make her butt pucker 
+ 
+E 
+She's a cornshucker 
+G 
+A real buttfucker 
+A 
+Gonna stick my dick 
+A 
+Right up her ass 
+ 
+E 
+She's a cornchucker 
+G 
+A real butt fucker 
+A 
+Gonna watch my dick 
+A 
+As make her butt pucker 
+ 
+E 
+Cornchucker 
+G 
+A real buttfucker 
+ 
+(verso) 
+Playing over below lyrics 
+Oh yeah! 
+Ooh I like it! 
+So tight! 
+"Kinda tongue in cheek, you know?" 
+ 
+E 
+She's a cornchucker 
+G 
+A real butt fucker 
+A 
+Gonna watch my dick 
+A 
+As I make her butt pucker 
+ 
+E 
+She's a cornchucker 
+G 
+A real butt fucker 
+A 
+Gonna watch my dick
+
+A 
+As I make her butt pucker 
+ 
+E 
+She's a cornchucker 
+G                A 
+A real butt fucker 
+ 
+E 
+She's a cornchuckeR 
+G 
+A real butt fucker 
+A 
+Gonna stick my dick way up her ass 
+E 
+Cornchucker 
+G 
+A real buttfucker 
+A 
+Gonna watch my dick 
+A 
+As I make her butt pucker 
+ 
+E 
+Cornchucker 
+G 
+A real buttfucker 
+A 
+Gonna stick my dick 
+A 
+Right up her ass 
+ 
+E 
+She's a cornchucker 
+G 
+A real buttfucker 
+A 
+Gonna wash my dick 
+A 
+After she makes me buttfuck her 
+ 
+E 
+Cornchucker 
+G 
+A real buttfucker 
+A 
+Huh, ha, ha, ha! 
+ 
+E 
+Cornchucker 
+G               A 
+A real buttfucker 
+ 
+E                 G 
+Oooh, she's a cornchucker 
+A 
+A real buttfucker 
+ 
+(verso) 
+ 
+E                             G 
+My dick was full of cum for you 
+A                           C 
+I wanna be deep inside of you 
+ 
+One more time! 
+ 
+E 
+She's a cornchucker 
+G
+
+A real butt fucker 
+A 
+Gonna watch my dick 
+A 
+As I make her butt pucker 
+ 
+E 
+She's a cornchucker 
+G 
+A real butt fucker 
+A 
+Gonna stick my dick 
+A 
+Right up her ass 
+ 
+E 
+Cornchucker 
+G 
+A real buttfucker 
+A 
+Gonna watch my dick 
+A 
+As I make her butt pucker 
+ 
+E 
+Cornchucker 
+G 
+A real buttfucker 
+A 
+She's a motherfucker 
+A 
+Goddamn fucker 
+ 
+E 
+She's a cornchucker 
+G 
+A real butt fucker 
+A 
+Ha, ha, ha, ha, ha! 
+ 
+A  A  A  A   E 
+1, 2, 3, 4

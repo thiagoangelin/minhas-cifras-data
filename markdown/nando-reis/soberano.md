@@ -1,0 +1,65 @@
+Nando Reis - Soberano 
+ 
+Intro: F#m B 
+ 
+F#m 
+Soberano 
+B 
+Império Vencedor 
+F#m 
+Vermelho no sangue 
+B 
+Branco no céu redentor 
+ 
+D 
+Preto cor do mistério 
+F#°              D C#m C B Bb A B 
+E um desejo interno 
+ 
+F#m 
+Tem nome de santo 
+B 
+E o nome dessa cidade 
+F#m 
+Três cores no manto, seis vezes no topo 
+B 
+Sua majestade 
+ 
+D 
+Faz com que eu te ame tanto 
+F#°                     D C#m C B Bb A B 
+Só sei que eu te amo tanto 
+ 
+F#m 
+Soberano 
+B 
+Seis vezes campeão 
+F#m 
+Três cores vibrando, pulsando 
+B 
+Dentro do meu coração 
+ 
+D 
+E eu te amo tanto 
+F#° 
+Só sei que eu te amo tanto 
+ 
+Refrão 
+ 
+A 
+E a estranha força desse encantamento 
+A7 
+Ganha força quando junta tanta gente 
+D 
+E a força desse time entrando em campo 
+Dm7 
+Aumenta a força quando ouço esse canto 
+ 
+    A 
+São Paulo 
+    A7 
+São Paulo 
+    D 
+São Paulo 
+    Dm7 
+São Paulo

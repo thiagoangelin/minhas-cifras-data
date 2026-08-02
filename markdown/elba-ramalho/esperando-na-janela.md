@@ -1,0 +1,41 @@
+Elba Ramalho - Esperando Na Janela 
+ 
+(intro) G  Am7  D7  G, G  Am7  D7  G  C  
+ 
+         G              Am7 
+Ainda me lembro do seu caminhar 
+                 D7                G 
+Do seu jeito de olhar eu me lembro bem 
+                           Am7 
+Fico querendo sentir o seu cheiro 
+          D7            G 
+E daquele jeito que ela tem 
+                           Am7 
+O tempo todo eu fico feito tonto 
+            D7                 G 
+Sempre procurando, mas ela não vem, 
+                       Am7 
+Esse aperto no fundo do peito 
+               D7                  G 
+Desses que o sujeito não pode agüentar 
+                            Am7 
+Esse aperto aumenta o meu desejo 
+                D7                  G 
+E eu não vejo a hora de poder lhe falar 
+ 
+                         Am7 
+Por isso eu vou na casa dela, ai, ai 
+D7                      G 
+Falar do meu amor pra ela, vai 
+                      Am7 
+Tá me esperando na janela, ai, ai 
+D7                G      C G 
+Não sei se vou me segurar 
+                         Am7 
+Por isso eu vou na casa dela, ai, ai 
+D7                      G 
+Falar do meu amor pra ela, vai 
+                      Am7 
+Tá me esperando na janela, ai, ai 
+D7                G       C G 
+Não sei se vou me segurar.

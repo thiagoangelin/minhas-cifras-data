@@ -1,0 +1,60 @@
+Titas - Racio Simio 
+ 
+Introdução: A C G 
+ 
+   C                                G 
+   O anão tem um carro com rodas gigantes 
+   A                         C 
+   Dois elefantes incomodam muito mais 
+   G                     A 
+    Só os mortos não reclamam 
+                      C 
+   Os brutos também mamam 
+                    G 
+   Mamãe eu quero mamar 
+  A                   C 
+   Eu não tenho onde morar 
+  G                           A 
+   Eu moro aonde não mora ninguém 
+  C                    G 
+   Quem tem grana que dê a quem não tem 
+  A            C           A                     C 
+   Racio símio, racio símio, racio símio, racio símio   
+ 
+  A                       C 
+   Quem esporra sempre alcança 
+  A            C 
+   Com Maná adubando dá 
+  A                C 
+   Ninguém joga dominó sozinho 
+  A                        C 
+   É dos carecas que elas gostam mais 
+      A                      C 
+   A soma dos catetos é o quadrado da hipotenusa 
+  A                       C 
+   Nem tudo que se tem se usa 
+  G          F            G             F 
+   Racio símio, racio símio, racio símio, racio símio 
+  A             C            A            C 
+   Racio símio, racio símio, racio símio, racio símio   
+ 
+  C                       G 
+   Os cavalheiros sabem jogar damas 
+  C                        G 
+   Os prisioneiros podem jogar xadrez 
+  C                     G 
+   Só os chatos não disfarçam 
+                   C 
+   Os sonhos despedaçam 
+              G 
+   A razão é sempre do freguês 
+  C                   G 
+   Eu não tenho onde morar 
+  A                        C 
+   Moro aonde não mora ninguém 
+  G 
+   Quem come prego sabe o cú que tem 
+  G             F            G           F 
+   Racio símio, racio símio, racio símio, racio símio   
+  A             C            A           C 
+   Racio símio, racio símio, racio símio, racio símio

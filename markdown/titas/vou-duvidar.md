@@ -1,0 +1,97 @@
+Titas - Vou Duvidar 
+ 
+(Sérgio Britto/Paulo Miklos) 
+ 
+~ = Passagem rápida 
+Intro: 
+ 
+Bb~C~Bb~C C Bb C D# Bb Bb~C~Bb~C 
+C Bb C F# F Bb~C~Bb~C C Bb C D# Bb Bb~C~Bb~C C Bb C 
+F# F D# C 
+ 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar até do que eu posso ver 
+ 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar de mim mesmo e de você 
+ 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar daquilo que é pra respeitar 
+ 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar só pra ver no que vai dar 
+ 
+C                       G Bb  
+Vou duvidar, vou duvidar 
+ 
+Bb~C~Bb~C                    G Bb Bb~C~Bb~C 
+Vou perguntar por que 
+ 
+C                       G Bb 
+Vou duvidar, vou duvidar 
+ 
+Bb~C~Bb~C                    G Bb Bb~C~Bb~C 
+Eu vou pagar pra ver 
+ 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar do que eu não sei como explicar  
+ 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar que é pra poder acreditar 
+ 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar do que já tá sacramentado 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar de quem nunca fez nada errado 
+ 
+C                       G Bb  
+Vou duvidar, vou duvidar 
+ 
+Bb~C~Bb~C                    G Bb Bb~C~Bb~C 
+Vou perguntar por que 
+ 
+C                       G Bb 
+Vou duvidar, vou duvidar 
+ 
+Bb~C~Bb~C                    G Bb Bb~C~Bb~C 
+Eu vou pagar pra ver 
+ 
+Repete intro 
+ 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar de quem pensa que é melhor  
+ 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar daquilo que já sei cor 
+ 
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar de quem não põe o pé na lama
+
+C                       G               Bb Bb~C~Bb~C 
+Vou duvidar de quem diz que não se engana  
+ 
+C                       G Bb  
+Vou duvidar, vou duvidar 
+ 
+Bb~C~Bb~C                    G Bb Bb~C~Bb~C 
+Vou perguntar por que 
+ 
+C                       G Bb 
+Vou duvidar, vou duvidar 
+ 
+Bb~C~Bb~C                    G Bb Bb~C~Bb~C 
+Eu vou pagar pra ver 
+ 
+C                       G Bb  
+Vou duvidar, vou duvidar 
+ 
+Bb~C~Bb~C                    G Bb Bb~C~Bb~C 
+Vou perguntar por que 
+ 
+C                       G Bb 
+Vou duvidar, vou duvidar 
+ 
+Bb~C~Bb~C                    G Bb Bb~C~Bb~C 
+Eu vou pagar pra ver 
+ 
+Repete intro e acaba a música

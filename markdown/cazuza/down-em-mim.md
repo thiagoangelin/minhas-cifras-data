@@ -1,0 +1,81 @@
+Cazuza - Down Em Mim 
+ 
+[Intro] Am  G  E7  Am  G 
+        Am  G  E7  F7  
+ 
+[Primeira Parte] 
+ 
+Am                            
+   Eu não sei o que o meu corpo abriga 
+        G 
+Nestas noites quentes de verão 
+   E7 
+E nem me importa que mil raios partam 
+             Am             G 
+Qualquer sentido vago de razão 
+ 
+[Refrão] 
+ 
+             Am         
+Eu ando tão down 
+             G          
+Eu ando tão down 
+E7 
+Outra vez vou te cantar, vou te gritar 
+        F7                
+Te rebocar do bar 
+ 
+[Segunda Parte] 
+ 
+Am 
+   E as paredes do meu quarto vão assistir comigo 
+      G 
+A versão nova de uma velha história 
+E7 
+  E quando o sol vier socar minha cara 
+        Am                   G 
+Com certeza você já foi embora 
+ 
+[Refrão] 
+ 
+             Am          
+Eu ando tão down 
+             G          
+Eu ando tão down 
+E7 
+Outra vez vou me esquecer 
+                        F7                     
+Pois nestas horas pega mal sofrer 
+ 
+[Terceira Parte] 
+ 
+Am 
+   Da privada eu vou dar com a minha cara 
+G 
+  De panaca pintada no espelho 
+          E7 
+E me lembrar, sorrindo, que o banheiro 
+       Am               G 
+É a igreja de todos os bêbados 
+ 
+[Refrão] 
+ 
+             Am          
+Eu ando tão down 
+             G           
+Eu ando tão down 
+             E7 
+Eu ando tão down 
+             F7
+
+Down, down, down 
+ 
+[Solo] Am  G  E7  Am  G 
+       Am  G  E7  F7 
+ 
+                  Am         
+Mas, eu ando tão down 
+             G 
+Eu ando tão down 
+ 
+[Final] F7  G  Am

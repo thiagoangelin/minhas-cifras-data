@@ -1,0 +1,41 @@
+Titas - Porrada 
+ 
+Intro: (G5   E5    G5    E5 F5 G5) 
+      G5                                  E5 
+Nota dez para as meninas da torcida adversária 
+        G5                         E5 
+Parabéns aos acadêmicos da associação 
+        G5                                      E5 
+Saudações para os formandos da cadeira de direito 
+   G5                           E5 
+A todas as senhoras muita consideração. 
+ 
+    G5        E5 
+Porrada! Nos caras que não fazem nada. 
+    G5                  E5 
+Porrada! Porrada! Nos caras que não fazem nada. 
+ 
+(A) 
+Medalinhas para o presidente 
+Condecorações aos veteranos 
+Bonificações para os bancários 
+Congratulações para os banqueiros 
+ 
+    G5        E5 
+Porrada! Nos caras que não fazem nada. 
+    G5                  E5 
+Porrada! Porrada! Nos caras que não fazem nada. 
+ 
+G5               E5 
+Distribuição de panfletos 
+G5                 E5 
+Reivindicação dos direitos 
+G5                 E5 
+Associação de pais e mestres 
+G5                      E5 
+Proliferação das pestes 
+ 
+    G5        E5 
+Porrada! Nos caras que não fazem nada. 
+    G5                  E5 
+Porrada! Porrada! Nos caras que não fazem nada.

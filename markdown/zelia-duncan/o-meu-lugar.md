@@ -1,0 +1,54 @@
+Zelia Duncan - O Meu Lugar 
+ 
+ 
+ 
+A9                 D9     
+Tento fazer desse lugar o meu lugar 
+ 
+  A9                    D9 
+Apenas por enquanto, enquanto isso durar 
+ 
+A9                   D9 
+O que me separa de você agora  
+ 
+A9                 D9                     
+Um avião, um oceano e outros planos 
+ 
+E 
+ e muitos enganos... 
+ 
+A9    D9      A9    D9      
+  yeeeeah, uououuuuuuuuuu 
+ 
+A9                          D9 
+Por enquanto espero e vou vivendo 
+ 
+  A9                  D9  
+Apenas fantasio os meus dias aqui 
+ 
+  A9        D9 
+yeeeeah, e isso é verdadeiro 
+ 
+A9                     D9 
+Me troco, me arrojo ao menos por enquanto... 
+ 
+E 
+  Enquanto isso durar... 
+ 
+G  D/F#    D9   
+Como     voltar 
+ 
+    A9                E 
+No way, não sei nem divagar sobre nós 
+ 
+G  D/F#    D9 
+Como    voltar 
+ 
+      Dm  
+E esperar o prêmio intenso... 
+ 
+A9                         E  
+  De voltar prá mim....diferente.... 
+ 
+       D9                      (repete intro) 
+Vou tentar fazer daqui o meu lugar

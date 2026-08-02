@@ -1,0 +1,83 @@
+Guns N Roses - Street Of Dreams 
+ 
+Intro (piano arranged for guitar)| 
+ 
+G                                  F 
+ All the love in the world couldn't save you 
+G                    F 
+ All the innocence inside 
+G                            F 
+ You know I tried so hard to make you 
+  G                              F 
+Ooo I wanna make you change your mind 
+ 
+G                         F 
+ And it hurts too much to see you 
+G                          F 
+ And how you left yourself behind 
+G                            F 
+ You know I wouldn't want to be you 
+G                           F 
+ Now there's a hell I can't describe 
+ 
+         G 
+So now I wander through my days 
+Am 
+Trying to find my ways 
+       G 
+To the feelings that I felt 
+            Am 
+I saved for you and no one else 
+ 
+              G 
+And though as long as this road seems 
+            Am 
+I know it's called the street of dreams 
+               C 
+But that's not stardust on my feet 
+            F 
+It leaves a taste that's bittersweet 
+                  G     F  G   F   A  E 
+That's called the blues 
+ 
+C                  D             Em 
+ I don't know just what I should do 
+C            D         Em 
+Everywhere I go I see you 
+C                      D                      Em    A 
+You know it's what you planned, this much is true Whoa 
+C                  D                 Em               
+What I thought was beautiful, don't live inside of you  
+      C     G 
+anymo... oore 
+ 
+C                 D              Em 
+I don't know just what I should do 
+C            D         Em    A 
+Everywhere I go I see you 
+C                      D                      Em 
+You know it's what you planned, this much is true 
+C                  D                 Em               
+What I thought was beautiful, don't live inside of you  
+A     C  A   G   A 
+anymore 
+ 
+Intro| C A G D C A 
+ 
+C                  D 
+What this means to me 
+             Em
+
+Is more than I know you believe 
+C                  D 
+What I thought of you now 
+    Em 
+Has cost more that it should for me 
+C                  D 
+What I thought was true before 
+     Em 
+Were lies I couldn't see 
+C                  D 
+What I thought was beautiful 
+   Em              C D Em C D Em C D E C D Em A 
+Is only memories

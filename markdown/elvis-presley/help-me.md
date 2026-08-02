@@ -1,0 +1,39 @@
+Elvis Presley - Help Me 
+ 
+     
+     Intro: D D D D 
+ 
+     D             D            A 
+     Lord, help me walk another mile... just one more mile 
+      A            A            D 
+     I'm tired of walking all alone 
+     D             D             A 
+     Lord, help me smile another smile... just one more smile 
+     A                    A              D 
+     I know, I just can't make it, on my own 
+ 
+     CHORUS: 
+     G                               D 
+     I never thought I needed help before 
+     A                                     D 
+     I thought that I could do things by myself 
+     G                                  D  
+     Now I know I just can't take it anymore 
+ 
+     A [tacet] 
+     With a humble heart, on bended knee, I'm begging you please 
+      D 
+     Help me 
+ 
+     Come down from your golden throne to me, lonely me  
+     I need to feel the tough of your tender hand 
+     Remove the chains of darkness and let me see, Lord, let me 
+see  
+     Just where I fit into your master plan. 
+ 
+     CODA: 
+     A [tacet] 
+     With a humble heart, on bended knee, I'm begging you please 
+ 
+     G          G               G       A D  
+     Help...

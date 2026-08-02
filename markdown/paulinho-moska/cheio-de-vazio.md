@@ -1,0 +1,95 @@
+Paulinho Moska - Cheio De Vazio 
+ 
+Intr.: ( C7M C5+ / F13 Bb7(11#) ) 4x 
+ 
+C7M          C5+          F13 
+O vazio é um meio de transporte 
+  Bb7(11#)             C7M C5+  F13 Bb7(11#) 
+Pra quem tem coração cheio 
+C7M        C5+           F13 
+Cheio de vazios que transbordam 
+    Bb7(11#)        C7M C5+  F13 Bb7(11#) 
+Seus sentidos pelo meio 
+C7M         C5+       F13 
+Meio que circunda o infinito 
+   Bb7(11#)       C7M C5+  F13 Bb7(11#) 
+Tão bonito de tão feio 
+C7M        C5+           F13 
+Feio que ensina e que termina 
+  Bb7(11#)         C7M C5+  F13 Bb7(11#) 
+Começando outro passeio 
+ 
+F13 Bb7(11#) 
+Uh uh uh uh 
+Am7(9)     D7(9/13)          Dm7(6/9) 
+       Lá do outro lado do céu 
+  D7(9/13)         Dm7(9/11)/A 
+Alguém derrama num papel 
+G7(b9/13)        C/G 
+Novos poemas de amor 
+ 
+C7M            C5+ 
+Amor é o nome que se dá 
+ F13       Bb7(11#)         C7M C5+  F13 Bb7(11#) 
+Quando se percebe o olhar alheio 
+C7M            C5+          F13 
+Alheio à tudo que não for aquilo 
+       Bb7(11#)        C7M C5+  F13 Bb7(11#) 
+Que está dentro do teu seio 
+C7M                C5+ 
+Porque seio é o alimento 
+           F13          Bb7(11#)       C7M C5+  F13  
+E ao mesmo tempo a fonte para o desbloqueio 
+Bb7(11#) 
+ 
+C7M                     C5+         F13 
+E desbloqueio é quando aquele tal vazio 
+     Bb7(11#)             C7M C5+  F13 Bb7(11#) 
+Se transforma em amor que veio 
+ 
+F13 Bb7(11#) 
+Uh uh uh uh 
+Am7(9)     D7(9/13)          Dm7(6/9) 
+       Lá do outro lado do céu 
+  D7(9/13)         Dm7(9/11)/A 
+Alguém derrama num papel 
+G7(b9/13)        C/G   Gm6 
+Novos poemas de amor 
+F7M(9)/C 
+Uh uh 
+     E7/B          Am7(9) 
+Lá do outro lado do céu 
+  D7(9/13)         Dm7(9/11)/A 
+Alguém derrama num papel 
+G7(b9/13)        C7M C5+  F13 Bb7(11#) 
+Novos poemas de amor 
+    C7M C5+  F13 Bb7(11#) 
+De amor... 
+    C7M C5+  F13 Bb7(11#) 
+De amor...
+
+ 
+C7M          C5+          F13 
+O vazio é um meio de transporte 
+  Bb7(11#)             C7M/G 
+Pra quem tem coração cheio 
+ 
+ACORDES: 
+ 
+C7M _____________ x32000 
+C5+ _____________ x32110 
+F13 _____________ 1x3231 
+Bb7(11#) ________ x13130 
+Am7(9) __________ x05500 
+D7(9/13) ___________ x54500 
+Dm7(6/9) ________ x53500 
+Dm7(9/11)/A _____ 553533 
+G7(b9/13) _______ 3x3130 
+C/G _____________ 332010 
+Gm6 _____________ 3x233x 
+F7M(9)/C ________ 887080 
+E7/B ____________ 776700 
+C7M/G ___________ 332000 
+ 
+OBS: Os acordes aqui escritos são os que o PAULINHO MOSKA  
+usa... eu vi! :P

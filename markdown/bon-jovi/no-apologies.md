@@ -1,0 +1,88 @@
+Bon Jovi - No Apologies 
+ 
+  
+Asus2 
+Thunder cracks the sky is crying  
+On her back she's pushing trying  
+Asus2/F#              E                Dsus2 
+He holds her hand and meals beside her bed  
+Asus2 
+Break a silence baby screaming  
+In slow-motion she ain't dreaming  
+Asus2/F#                 E            Dsus2      D5 
+She close her eyes look up to god and sun  
+ 
+Chorus: 
+         F#m   A      D 
+Should I cry a little more  
+         F#m   A      D 
+Should I try a little more  
+  F#m      F#m/G# A        D 
+I payed the cause laugh it off  
+    F#m   F#m/G#   F#m/A   F#m/C#   D 
+And do it all a    thousand times a day  
+        Am9 
+No Regrets  
+Verse: 
+Asus2 
+Living's hard and dying's easy  
+I miss days they won't defeat me  
+Asus2/F#           E         D 
+I'd like to burn a candle at ???  
+Asus2 
+In book some heart's been broken hearted  
+Asus2/G 
+Runaway from fires I've started  
+  Asus2/F#         E                Dsus2    D5 
+I didn't break but tried my best to ???  
+Chorus: 
+         F#m   A      D 
+Should I cry a little more  
+         F#m   A      D 
+Should I try a little more  
+  F#m      F#m/G# A        D 
+I payed the cause laugh it off  
+    F#m   F#m/G#   F#m/A   F#m/C#   D 
+And do it all a    thousand times a day  
+ 
+Bridge: 
+    F# 
+No Regrets  
+    A           D          F#m 
+The things I've done (No Regrets)  
+A         D          F#m      
+Wars I've won (No Regrets)  
+A         D             F#m 
+Fire I've started (No Regrets)  
+    F#m/G# F#/A     D 
+For fake departed (Hey Hey)  
+Guitar Solo: 
+F#m   A   D  
+F#m   A   D  
+F#m   F#m/G  F#m/A F#m/C  D  
+Bridge2: 
+(511 509  610 509  511) --> repeating 
+Thunder cracks the sky is crying  
+On her back she's pushing trying  
+Holds her hand and meals beside her  
+On the bed he's there to guide her
+
+E (heavy chord) 
+ 
+Chorus: 
+         F#m   A      D         
+Should I cry a little more  
+         F#m   A      D 
+Should I die a little more  
+         F#m   A      D 
+Should I fly a little more  
+          F#m    A      D 
+Hold head high a little more  
+  F#m       F#m/G#  A       D 
+I payed the cause laugh it off  
+    F#m   F#m/G#   F#m/A   F#m/C#     
+And do it all a    thousand times a day  
+ 
+(F#m  A  D) -- > repeating 
+Should I, Should I, Should I, Should I  
+No Regrets, No Regrets, No Regrets, No Regrets

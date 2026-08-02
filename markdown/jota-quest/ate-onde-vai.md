@@ -1,0 +1,96 @@
+Jota Quest - Ate Onde Vai 
+ 
+Intro:  (C5,B5)2vezes E 
+ 
+C7+(9)    Bm7           C7+(9)   Bm7 
+         O bem vence o mal  mais uma vez 
+C7+(9)   Bm7       Am7         Bm7 
+         E mais um beijo teu 
+C7+(9)  Bm7     C7+(9)       Bm7 
+         E é por isso que eu não te deixo 
+C7+(9)  Bm7        Am7        Bm7 
+         E mais um beijo teu 
+ 
+(C7+(9)   Bm7) 
+     A saudade e a novidade 
+     Tão longe e tão perto 
+     Tão frio e tão quente? 
+Am7          Bm7 
+     Até onde vai o coração da gente? 
+ 
+(C7+(9)   Bm7) 
+     As palavras e as promessas 
+     Tão passado e tão presente 
+     Tão eterno enquanto dure 
+Am7         Bm7 
+     E o coração em cubos          (INTRO) 1x 
+ 
+(C7+(9)   Bm7) 
+     As igrejas e os bares 
+     Tão mentira e tão verdade 
+     Tão mais simples que eu pensava 
+Am7        Bm7 
+     E o coração dispara 
+(C7+(9)   Bm7) 
+     O sexo e o amor 
+     A tolerância e o terror 
+     Tão red, tão hot 
+Am7    Bm7 
+     Tão vida e tão morte 
+ 
+           (C5,B5) 
+          Até onde vai 
+          Até onde vai          2X 
+             E 
+         O coração da gente? 
+ 
+C7+(9)     Bm7        C7+(9)    Bm7 
+         O bem vence o mal  mais uma vez 
+C7+(9)  Bm7        Am7         Bm7 
+         E mais um beijo teu 
+C7+(9)  Bm7     C7+(9)       Bm7 
+         E é por isso que eu não te deixo 
+C7+(9)  Bm7        Am7        Bm7 
+         E mais um beijo teu 
+ 
+(C7+(9)   Bm7) 
+     Os latinos da América 
+     Da Península Ibérica 
+     Os mistérios do Oriente 
+Am7    Bm7 
+     A luz do sol poente 
+(C7+(9)   Bm7) 
+     A luta e a fortuna 
+     Tão culta quanto burra 
+     Tão minha quanto sua 
+Am7         Bm7 
+     E o coração mergulha 
+             (C5,B5) 
+          Até onde vai
+
+          Até onde vai 
+            E 
+      O coração da gente? 
+ 
+C7+(9)    Bm7          C7+(9)   Bm7 
+         O bem vence o mal  mais uma vez 
+C7+(9)  Bm7        Am7         Bm7 
+         E mais um beijo teu 
+C7+(9)  Bm7    C7+(9)        Bm7 
+         E é por isso que eu não te deixo 
+C7+(9)  Bm7        Am7        Bm7 
+         E mais um beijo teu 
+ 
+(C7+(9)   Bm7) 
+            É o melhor que nós temos 
+C7+(9)   Bm7        Am7             Bm7 
+            É o que há pra esse momento 
+(C7+(9)   Bm7) 
+            E nós temos muito tempo 
+C7+(9)    Bm7       Am7     Bm7 
+            Temos o tempo inteiro do mundo 
+                   (C5,B5) 
+                   Até onde vai 
+                   Até onde vai 
+                      E 
+                 O coração da gente?

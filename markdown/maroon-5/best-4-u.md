@@ -1,0 +1,165 @@
+Maroon 5 - Best 4 U 
+ 
+    F  Am  G  Em 
+I just want the best for you 
+ 
+                   F 
+Yeah another night out 
+         Am 
+I get drunk, I get high 
+ 
+Then you call and I lie 
+         G 
+And say I'm on my way now 
+             Em 
+Yeah, I say I'm on my way now 
+                   F 
+Show up when it's light out 
+                Am 
+When you're dressing for work 
+ 
+And I'm mumbling words 
+           G 
+I don't know what to say now 
+               Em 
+No, I don't know what to say now 
+ 
+F                            Am 
+You tell me I don't care, tell me I never try 
+ G                     Em 
+I said I'm sorry maybe a million times 
+ F                  Am 
+It's gonna hurt ya if I don't say goodbye 
+ G                     Em 
+You don't believe me, you don't believe me 
+ 
+        F 
+I just want the best for you 
+        Am 
+I just want the best for you 
+             G 
+But I'm just not the best for you 
+           Em 
+You don't want what I'm gonna put ya through 
+          F 
+I just want the best for you 
+         Am 
+I just want the best for you 
+             G 
+But I'm just not the best for you 
+             Em 
+You don't want what I'm gonna put ya through 
+ 
+      F 
+Oh oh no, baby 
+       Am 
+Oh oh no, baby 
+      G 
+Oh oh, baby 
+            Em 
+You don't want what I'm gonna put ya through 
+ 
+  F 
+Parties with shots and powder 
+  Am 
+But you'd rather sleep eight hours 
+  G 
+And I know you got your doubts 
+   Em 
+'Cause I can't turn this life around, baby
+
+    F 
+Thought it was just a phase 
+   Am 
+'Til I woke up a thousand days later 
+ G                          Em 
+Realizing I'm the same as I was before I saw your face 
+ 
+    F                       Am 
+You tell me I don't care, tell me I never try 
+ G                   Em 
+I said I'm sorry maybe a million times 
+ F                  Am 
+It's gonna hurt ya if I don't say goodbye 
+ G                     Em 
+You don't believe me, you don't believe me 
+ 
+        F 
+I just want the best for you 
+        Am 
+I just want the best for you 
+             G 
+But I'm just not the best for you 
+           Em 
+You don't want what I'm gonna put ya through 
+         F 
+I just want the best for you 
+         Am 
+I just want the best for you 
+             G 
+But I'm just not the best for you 
+            Em 
+You don't want what I'm gonna put ya through 
+ 
+       F 
+Oh oh no, baby 
+       Am 
+Oh oh no, baby 
+      G 
+Oh oh, baby 
+            Em 
+You don't want what I'm gonna put ya through 
+        F 
+Oh oh no, baby 
+       Am 
+Oh oh no, baby 
+        G 
+Oh oh, baby 
+          Em 
+I just want the best for you 
+ 
+   F                        Am 
+You tell me I don't care, tell me I never try 
+  G                 Em 
+I said I'm sorry maybe a million times 
+ F                     Am 
+It's gonna hurt ya if I don't say goodbye 
+ G                    Em 
+You don't believe me, you don't believe me 
+ 
+         F 
+I just want the best for you 
+         Am 
+I just want the best for you 
+            G 
+But I'm just not the best for you (for you) 
+            Em 
+You don't want what I'm gonna put ya through 
+          F 
+I just want the best for you (just want the best for you) 
+          Am
+
+I just want the best for you (just want the best for you) 
+             G 
+But I'm just not the best for you (I'm not the best for you) 
+              Em 
+You don't want what I'm gonna put ya through 
+ 
+        F 
+Oh oh no, baby 
+        Am 
+Oh oh no, baby 
+      G 
+Oh oh, baby 
+            Em 
+You don't want what I'm gonna put ya through 
+        F 
+Oh oh no, baby (Yeah) 
+        Am 
+Oh oh no, baby (Yeah) 
+      G 
+Oh oh, baby 
+          Em                  F  Am  G 
+I just want the best for you 
+          Em 
+I just want the best for you

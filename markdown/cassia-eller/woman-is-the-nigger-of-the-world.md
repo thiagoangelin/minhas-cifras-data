@@ -1,0 +1,75 @@
+Cassia Eller - Woman Is The Nigger Of The World 
+ 
+De: John Lennon (co-composta com Yoko Ono) 
+ 
+Intro: E G# C#m E A Am E 
+ 
+E             G#            C#m    E 
+Woman is the nigger of the world 
+A           Am               E 
+Yes, she is   think about it 
+Woman is the nigger of the world 
+Think about it, do something about it 
+ 
+G     A 
+F#m                             D 
+We make her paint her face and dance 
+A                                              E 
+If she won't be a slave we say that she don't love us 
+F#m                                         D 
+If she's real, we say she's trying to be a man 
+G                                              B 
+While putting her down we pretend that she's above us 
+ 
+Woman is the nigger of the world 
+Yes, she is, if you don't believe me take a look at the  
+one you're with 
+Woman is the slave of the slaves 
+Ah yeah, better scream about it 
+ 
+Saxophone solo over chorus chords 
+ 
+We make her bear and raise our children 
+And then we leave her flat for being a fat old mother hen 
+We tell her home is the only place she should be 
+Then we complain that she's too unworldly to be our friend 
+ 
+Woman is the nigger of the world 
+Yes, she is, if you don't believe me take a look at the  
+one you're with 
+Woman is the slave to the slaves 
+Yeah, alright 
+ 
+Guitar solo over chorus chords 
+ 
+We insult her every day on TV 
+And wonder why she has no guts or confidence 
+When she's young we kill her will to be free 
+While telling her not to be so smart we put her down for  
+being so dumb 
+ 
+Oh well, woman is the nigger of the world 
+Yes, she is, if you don't believe me take a look at the  
+one you're with 
+Woman is the slave to the slaves 
+Yes, she is, if you believe me, you better scream about it 
+ 
+F#m                             D 
+We make her paint her face and dance 
+We make her paint her face and dance 
+We make her paint her face and dance 
+We make her paint her face and dance 
+We make her paint her face and dance 
+We make her paint her face and dance 
+ 
+Acordes Usados 
+       EADGBE 
+A:     x02220 
+Am:    x02210 
+F#m:   244222
+
+E:     022100 
+D:     xx0232 
+G:     320033 
+C#m:   446654 
+G#:    466544

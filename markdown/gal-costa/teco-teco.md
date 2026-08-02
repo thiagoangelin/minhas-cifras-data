@@ -1,0 +1,37 @@
+Gal Costa - Teco Teco 
+ 
+ D                    D7M 
+Teco-teco, Teco-teco Teco-teco 
+ 
+             D             Em  
+Na bola de gude era o meu viver  
+         Em/D                 A7  
+Quando criança no meio da garotada  
+                                    D  
+Com a sacola do lado só jogava pra valer  
+A7         D        D7M            D7  
+Não fazia roupa de boneca nem tão pouco  
+ D                 F#º                          Em  
+Comidinha com as garotas do meu bairro que era natural  
+         G        G#º     D/A  
+Subia em poste, soltava papagaio  
+Bm             Em       A7      D    A/C#  
+Até os meus 14 anos era esse meu mal  
+ 
+    Bm                  Bm7M 
+Com a mania de garota fogazã  
+                        B7(9)              Em  
+Em toda parte que eu passava Encontrava um fã  
+       D     C#m7(5-)     F#7     Bm  
+Quando havia festa na capela do lugar  
+        Bm/A           G#º        C#7(9)    F#7  
+Era a primeira a ser chamada para ir cantar  
+ 
+         Bm                       Bm7M 
+Assim vivendo eu vi meu nome ser falado  
+                       B7(9)                       Em  Em/D  
+Em todo canto, em todo lado até por quem nunca me viu  
+ C#m7(5-)          F#7     Bm       Bm7/A        G#º  
+E hoje a minha grande alegria é cantar com cortesia  
+      F#7         Bm  Bb7  A7  
+Para o povo do Brasil

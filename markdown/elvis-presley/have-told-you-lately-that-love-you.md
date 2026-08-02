@@ -1,0 +1,50 @@
+Elvis Presley - Have Told You Lately That Love You 
+ 
+VERSE ONE  
+ 
+Have I C told you lately that I G love you  
+ 
+Could I tell you once again some-{C} how ... C7  
+ 
+Have I F told with all my heart and C soul how I adore you  
+ 
+Well, G darling, I'm telling you C now.   
+ 
+       My heart would F break in two... if I should lose C you  
+ 
+I'm no G good without you any-{C} how ... C7  
+ 
+Oh, have I F told you lately that I C love you  
+ 
+Well, G darling, I'm telling you C now.       
+ 
+VERSE TWO  
+ 
+Have I C told you lately how I G miss you  
+ 
+When the stars are shining in the C sky ... C7  
+ 
+Have I F told you why the nights are C lonely when you're not with 
+me  
+ 
+Well, G darling, I'm telling you C now.  
+ 
+       My heart would F break in two... if I should lose C you  
+ 
+I'm no G good without you any-{C} how ... C7  
+ 
+Oh, have I F told you lately that I C love you  
+ 
+Well, G darling, I'm telling you C now.       
+ 
+CHORUS : PLAY INSTRUMENTALLY  
+ 
+CHORUS: VOCALS  
+ 
+My heart would F break in two... if I should lose C you  
+ 
+I'm no G good without you any-{C} how ... C7  
+ 
+Oh, have I F told you lately that I C love you  
+ 
+Well, G darling, I'm telling you C now.

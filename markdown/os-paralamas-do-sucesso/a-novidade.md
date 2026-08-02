@@ -1,0 +1,41 @@
+Os Paralamas Do Sucesso - A Novidade 
+ 
+A7+  Bm 
+A novidade veio dar a praia 
+Na qualidade rara de sereia 
+Metade o busto de uma deusa maia 
+Metade um grande rabo de baleia 
+A novidade era o máximo 
+Do paradoxo escondido na areia 
+Alguns a desejar seus beijos de deusa 
+Outros a desejar seu rabo pra ceia 
+ 
+C#m7         Bm7 
+O mundo tão desigual 
+ C#m7       Bm7      C#m7  Bm7 
+Tudo é tão desigual 
+C#m7 
+O, o, o, o... 
+                 Bm7 
+De um lado esse carnaval 
+ C#m7            Bm7 
+De outro a fome total 
+C#m7      Bm7 
+O, o, o, o 
+ 
+A7+  Bm 
+E a novidade que seria um sonho 
+O milagre risonho da sereia 
+Virava um pesadelo tão medonho 
+Ali naquela praia, ali na areia 
+A novidade era a guerra 
+Entre o feliz poeta e o esfomeado 
+Estraçalhando uma sereia bonita 
+Despedaçando o sonho pra cada lado 
+ 
+C#m7         Bm7 
+Ô mundo tão desigual 
+A7+  Bm 
+A novidade era o máximo 
+C#m7         Bm7 
+Ô Mundo tão desigual

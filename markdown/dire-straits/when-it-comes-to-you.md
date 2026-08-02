@@ -1,0 +1,73 @@
+Dire Straits - When It Comes To You 
+ 
+[Intro] G  G  Dm7  G 
+        G  G  Dm7  G 
+ 
+G5 
+If we can't get along we oughta be apart 
+        Dm                                        G5 
+And I'm wondering where'd you get that cold, cold heart 
+ 
+Set me free - sign my release 
+    Dm                                G5 
+I'm tired of being the villain of the piece 
+ 
+[Refrão] 
+ 
+                     C 
+You been givin' me a bad time 
+                 G5 
+Tell me what'd I do 
+ 
+How come I always get a hard time 
+F                      G5 
+Honey when it comes to you 
+        C                          G5 
+Sayin' things that you didn't have to 
+ 
+How come I always get a hard time 
+F                      G5 
+Honey when it comes to you 
+ 
+G5 
+You only get one life - this I know 
+        Dm                           G5 
+I wanna get my licks in now before I go 
+ 
+The fire of love is dead and cold 
+        Dm                       G5 
+I gotta satisfy the hunger in my soul 
+ 
+                     C 
+You been givin' me a bad time 
+                 G5 
+Tell me what'd I do 
+ 
+How come I always get a hard time 
+F                      G5 
+Honey when it comes to you 
+        C                          G5 
+Sayin' things that you didn't have to 
+ 
+How come I always get a hard time 
+F                      G5 
+Honey when it comes to you 
+ 
+( G5  G5  Dm  G5 ) 
+( G5  G5  Dm  G5 ) 
+( C  G5  G5  F  G5 ) 
+( C  G5  G5  F  G5 ) 
+ 
+G5 
+If we can't get along we oughta be apart 
+        Dm                                        G5 
+And I'm wondering where'd you get that cold, cold heart 
+ 
+Set me free - sign my release 
+    Dm                                G5 
+I'm tired of being the villain of the piece
+
+                     C 
+You been givin' me a bad time 
+                 G5 
+Tell me what'd I do

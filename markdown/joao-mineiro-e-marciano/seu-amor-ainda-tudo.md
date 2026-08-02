@@ -1,0 +1,68 @@
+Joao Mineiro E Marciano - Seu Amor Ainda Tudo 
+ 
+[Intro] Bm  Em  A  D  F#7 
+ 
+[Primeira Parte] 
+ 
+  Bm                                  Em 
+Muito prazer em revê-la, você está bonita 
+F#7                                      Bm 
+Muito elegante, mais jovem, tão cheia de vida 
+Bm                                 Em 
+Eu ainda falo de flores e declamo seu nome 
+F#7                                    B     F#7 
+Mesmo meus dedos me traem e disco seu telefone 
+ 
+[Refrão] 
+ 
+ B      B7M       B6         B7M B 
+É, minha cara, mudei, minha cara 
+                      E 
+Mas por dentro eu não mudo 
+ C#m   C#m7M   C#m7      C#m6         F#7 
+O sentimento não para, a doença não sara 
+                 B     F#7 
+Seu amor ainda é tudo, tudo 
+ 
+B                  G#m             C#m  C#m7M  C#m7  C#m6 
+Daquele momento até hoje esperei você 
+   F#7                                 B  E  F#7 
+Daquele maldito momento até hoje, só você 
+   B                  G#m               C#m  C#m7M  C#m7  C#m6 
+Eu sei que o culpado de não ter você sou eu 
+ F#7                                B F#7   B 
+E esse medo terrível de amar outra vez é meu 
+ 
+( Bm  Em  Bm ) 
+( F#7  Bm  F#7 ) 
+ 
+[Segunda Parte] 
+ 
+ Bm                             Em 
+Sei, não devia dizer, disse perdoa 
+F#7                                    Bm 
+Bem que eu queria encontrá-la e sorrir numa boa 
+Bm                                  Em 
+Mas convenhamos a vida nos faz tão pequenos 
+F#7                                    B     F#7 
+Nos preparamos pra muito e choramos por menos 
+ 
+[Refrão] 
+ 
+  B     B7M       B6         B7M B 
+É, minha cara, mudei, minha cara 
+                      E 
+Mas por dentro eu não mudo 
+ C#m   C#m7M   C#m7     C#m6         F#7 
+O sentimento não pára a doença não sara 
+                 B     F#7 
+Seu amor ainda é tudo, tudo 
+ 
+B                  G#m             C#m  C#m7M  C#m7  C#m6 
+Daquele momento até hoje esperei você 
+   F#7                                 B  E  F#7 
+Daquele maldito momento até hoje, só você 
+   B                  G#m               C#m  C#m7M  C#m7  C#m6 
+Eu sei que o culpado de não ter você sou eu 
+ F#7                                     B    E   B 
+E esse medo terrível de amar outra vez é meeeee...u

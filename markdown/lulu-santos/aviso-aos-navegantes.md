@@ -1,0 +1,40 @@
+Lulu Santos - Aviso Aos Navegantes 
+ 
+[Intro]  F#m79  B7/13  A7M/B  G#m79  C#7(b13)  C#7 
+ 
+[Solo] 
+ 
+ F#m79                      B7/13     A7M/B 
+Se existe alguém na linha, se tem alguém no ar 
+       G#m79                     C#7(b13)  C#7 
+Por favor responda agora não me faça  esperar 
+ F#m79                 B7/13   A7M/B 
+Há uma certa urgência, alô, informação 
+   G#m79                       C#7(b13)      C#7 
+Aqui sou eu sozinho, do outro lado não sei, não sei 
+ 
+F#m7/9    B7/13  B/4/7/9/13     G#m7/9   
+S.   O.  S.     so..........lidão   
+C#7/b13 C#7  
+ 
+F#m7/9   B7/13  B/4/7/9/13      G#m7/9  
+S. O.   S.     so...........lidão   
+C#7/b13 C#7   
+ 
+F#m79                B7/13    A7M/B 
+Instalei uma antena, e lancei um sinal 
+ G#m79             C#7(b13)  C#7 
+Nada no radar, procuro no  dial 
+F#m79                  B7/13       A7M/B 
+Aviso aos navegantes, tem mais alguém aí 
+   G#m79                        C#7(b13)  C#7 
+Só ouço o som da minha própria voz a repetir 
+ 
+F#m7/9    B7/13  B/4/7/9/13     G#m7/9   
+S.   O.  S.     so..........lidão   
+C#7/b13 C#7  
+ 
+F#m7/9   B7/13  B/4/7/9/13      G#m7/9  
+S. O.   S.     so...........lidão   
+ 
+( C#7/b13  C#7 )

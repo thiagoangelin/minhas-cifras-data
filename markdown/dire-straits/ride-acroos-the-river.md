@@ -1,0 +1,45 @@
+Dire Straits - Ride Acroos The River 
+ 
+Em       D    Em  
+ 
+         Em                        D       Em    D     
+   I'm a soldier of freedom in the army of man          
+Em                              D         Em     D  
+   We are the chosen, we're the partisan  
+G      C                         D           Bm     G  
+   The cause it is noble and the cause it is just  
+Bm        C                           D     Bm     B  
+   We are ready to pay with our lives if we must  
+ 
+         C                     Am            D C D  Am C D    
+   Gonna ride across the river deep and wide  
+Bm C                            D         Em  
+   Ride across the river to the other side  
+ 
+Bm       Em                        D      Em   D  
+   I'm a soldier of fortune, I'm a dog of war  
+Em                                  D           Em   D  
+   And we don't give a damn who the killing is for  
+G           C                     D         Bm     G  
+   It's the same old story with a different name  
+Bm C                        D       Bm  
+   Death or glory, it's the killing game  
+ 
+         C                     Am            D C D  Am C D    
+   Gonna ride across the river deep and wide  
+Bm C                            D         Em  
+   Ride across the river to the other side  
+ 
+   Em                             D               Em    D  
+   Nothing gonna stop them as the day follows the night  
+Em                               D                 Em    D  
+   Right becomes wrong, the left becomes the right  
+G           C                             D       Bm      G  
+   And they sing as they march with their flags unfurled  
+Bm   C                     D            Bm  
+   Today in the mountains, tomorrow the world  
+ 
+         C                     Am            D C D  Am C D    
+   Gonna ride across the river deep and wide  
+Bm C                            D         Em  
+   Ride across the river to the other side

@@ -1,0 +1,52 @@
+Capital Inicial - Um Homem Sem Rosto 
+ 
+Intro:G Bm C D 
+ 
+G                          Bm 
+Ruas a noite, a cidade é cruel 
+             C                    D 
+No meio dos carros, o inferno e o céu 
+G                       Bm 
+Eu olho de longe ela passar 
+              C                      D 
+Amando por dentro o que eu não posso tocar 
+ 
+Refrão: 
+    G 
+Um homem sem rosto 
+             Bm 
+Ela olha e não me vê 
+             C 
+me sinto tão mal 
+    Am 
+Vou sair, ir e voltar 
+                        D 
+Vou cair, levantar sem medo 
+ G 
+Um homem sem rosto 
+             Bm 
+Ela olha e não me vê 
+              C 
+Me sinto tão mal 
+    Am 
+Vou sair, ir e voltar, 
+                       D 
+Vou cair, levantar pra sempre 
+(Intro) 
+          G 
+Ouço o silêncio 
+             Bm 
+Nada sai do lugar 
+               C 
+Vejo em câmera lenta 
+            D 
+O relógio parar 
+                 G 
+O tempo é o castigo 
+                  Bm 
+Eu sei porque me sinto assim 
+            C 
+Os dias de chuva 
+                D 
+Eu sinto pena de mim 
+(Refrão)

@@ -1,0 +1,67 @@
+Elvis Presley - Little Sister 
+ 
+[Intro]  E 
+ 
+(E) 
+Little sister, dont you  
+Little sister, dont you  
+                                A 
+Little sister, dont you kiss me once or twice  
+Then say its very nice  
+                     E    E7 
+And then you run  
+ 
+B7 
+     Little sister, dont you  
+C                  B7           E 
+Do what your big sister done  
+ 
+(E) 
+Well, I dated your big sister  
+And took her to a show  
+I went for some candy  
+Along came jim dandy  
+And they snuck right out of the door  
+Little sister, dont you  
+Little sister, dont you  
+                                A 
+Little sister, dont you kiss me once or twice  
+Then say its very nice  
+                    E7   B7 
+And then you run  
+Little sister, dont you  
+ C                 B7           E      E7 
+Do what your big sister done  
+(E) 
+Ev'ry time I see your sister  
+Well shes got somebody new  
+Shes mean and shes evil  
+Like that old boll weevil  
+Guess Ill try my luck with you  
+Little sister, don't you  
+Little sister, don't you  
+                                A 
+Little sister, don't you kiss me once or twice  
+Then say its very nice  
+                     E    E7 B7 
+And then you run  
+Little sister, dont you  
+  C                B7           E      E7 
+Do what your big sister done  
+ 
+(E) 
+Well, I used to pull your pigtails  
+And pinch your turned-up nose  
+But you been a growin  
+And baby, its been showin  
+From your head down to your toes  
+Little sister, dont you  
+Little sister, dont you  
+                                A 
+Little sister, dont you kiss me once or twice  
+Then say its very nice  
+                     E   B7 
+And then you run  
+Little sister, dont you  
+ C                                E 
+Do what your big sister done

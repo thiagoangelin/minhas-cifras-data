@@ -1,0 +1,72 @@
+Coldplay - Wish I Was Here 
+ 
+Intro: F 
+ 
+F            C 
+It's been a night 
+        F 
+Such a night 
+        Am 
+Such a long night 
+F        C         F 
+Watch myself disappear 
+          Bb   C 
+Into the wild side 
+          F         C 
+Said goodbye to my hard side 
+F            C        F 
+Sang, saw a jackal appear 
+ 
+       Bb           C 
+Every road that's wrong 
+                F       Am 
+Seems like the road I'm on 
+       Bb        C        Bb  F 
+Every sign just seems unclear 
+            Bb          C 
+Won't you come switch me on  
+     Bb                F 
+Don't know where I've gone 
+    Gm              F 
+And I, I wish I was here 
+ 
+( F ) 
+ 
+F     C 
+In a fight 
+        F 
+Such a fight 
+         Am 
+You love our fight 
+F        C              F 
+I'm not lying, this I swear 
+                 Bb     C 
+The demons that hide inside 
+        F           C 
+To the wild, why am I tired? 
+F        C           F 
+How come I'm never there? 
+ 
+       Bb           C 
+Every road that's wrong 
+                F       Am 
+Seems like the road I'm on 
+       Bb        C        Bb  F 
+Every sign just seems unclear 
+              Bb         C 
+Won't you come switch me on  
+   Bb                    F 
+I don't know where I've gone 
+    Gm              F 
+And I, I wish I was here 
+ 
+( F ) 
+ 
+Bb  C   F 
+O_________oh (x3) 
+ 
+    Gm               F 
+And I, I wish I was here
+
+    Gm               F 
+And I, I wish I was here

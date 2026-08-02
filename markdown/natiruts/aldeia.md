@@ -1,0 +1,38 @@
+Natiruts - Aldeia 
+ 
+Intro : C D 
+ 
+(Refrão 2X) 
+G                 A 
+I don't belong here 
+C                 F 
+Sei que não é mais o meu lugar 
+G                 A 
+I don't belong here 
+C                 F 
+Não tenho data pra voltar 
+ 
+G            D    F           C             G 
+Saudade da aldeia,     com certeza vou chorar 
+                D   F             C             G  
+Lembrando da sereia    que me ensinou a namorar 
+                D   F          C              G 
+Dos amigos do peito,   tanta história pra contar 
+              A    C    F          G    C D 
+O mar, a lua cheia,   decidi vou viajar 
+ 
+REFRÃO 
+ 
+G          D      F           C              G 
+E a vida se renova,   em cada esquina uma lição 
+                   D  F      C            G 
+Coragem posta à prova,   vou seguir na direção 
+        D                    F       C          G 
+Da estrada atrás de um sonho    que eu nem sei onde vai dar 
+  A                               C  F G  C  D 
+Mas boto fé que a cada passo que eu der,  meu caminho á 
+iluminar 
+ 
+Solo : G A C F 
+ 
+REFRÃO

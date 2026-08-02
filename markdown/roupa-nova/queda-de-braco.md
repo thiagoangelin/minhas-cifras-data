@@ -1,0 +1,56 @@
+Roupa Nova - Queda De Braco 
+ 
+(intro) Em 
+ 
+ Em 
+Quero você sem inocência 
+Posso acalmar sua carência 
+ Am            C 
+O que vai ser? Vem dizer 
+ G            D 
+Dou tudo pra saber 
+ 
+ Em 
+Quero provar Sua indecência 
+Sem arriscar Toda imprudência 
+ Am             C 
+E sem pudor vou tentar 
+ G            D 
+Não machucar você 
+ 
+ G                              D/F# 
+Eu sempre tento e você me da o fora 
+ Em 
+Mas dessa vez eu senti que é a hora 
+ C                   D 
+E nem vem contando história 
+ Am                Bm 
+Cola seu corpo no meu 
+ 
+            C             Am 
+Oohh oohh oohh ,oohh oohh oohh 
+           D               Bm 
+Esquece o mundo e vai mais além 
+            C              Am 
+Oohh oohh oohh ,oohh oohh oohh 
+         D           Bm             C 
+Entra no meu jogo que vai ficar tudo bem 
+ D                 Em 
+Eu vou ficar muito bem 
+ 
+ Em 
+Quero teu ar de adolescência 
+Quero te amar sem paciência 
+ Am              C 
+Se duvidar sem pensar 
+ G             D 
+Vou te fazer feliz 
+ 
+ Em 
+Quero abusar com elegância 
+Vou te propor pouca distância 
+ 
+  Am              C 
+E em minhas mãos devagar 
+ G            D 
+Vou carinhar você.

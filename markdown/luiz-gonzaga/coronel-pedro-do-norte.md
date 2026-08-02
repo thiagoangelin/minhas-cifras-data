@@ -1,0 +1,82 @@
+Luiz Gonzaga - Coronel Pedro Do Norte 
+ 
+     A  A#º      Bm 
+Coroné Pedro do Norte 
+         E 
+É homem forte 
+  E/G#         A 
+Coroné do bigodão 
+D 
+Amigo do amigo 
+   A 
+Inimigo do inimigo 
+B7 
+Dizendo sim é sim 
+  E            D/F#   E/G# 
+Dizendo não é não 
+     A  A#º    Bm 
+Coroné tava danado 
+      E         E/G#    A       A7 
+Aperriando com a nova geração 
+        D 
+Dizia ele, 
+      E         C#m 
+Meto bala, mato tudo 
+     F#m         Bm 
+Num deixo um cabeludo 
+      E            A 
+E acabou-se a questão 
+           D 
+Mandou buscar 
+        A 
+Um delegado 
+          E        E/G#         A7 
+Pra perseguir cabeludos transviados 
+           D 
+Eu vou limpar 
+        A 
+Minha cidade 
+           E 
+Depois dormir 
+   E/G#            A    A7 
+Na maior tranqüilidade 
+D     E  C#m   F#m   Bm   E 
+A minha menina que estuda 
+        A         A7 
+Muito breve vai chegar 
+D      E    C#m 
+Não é para ela 
+F#m     Bm      E 
+Nem de longe 
+       A 
+Um cabeludo avistar 
+ 
+    A   A#º     Bm 
+Coroné Pedro do Norte 
+          E 
+Um homem forte 
+       E/G#            A 
+Estava ali com a multidão 
+D 
+Prefeito, delegado 
+     A 
+A família de um lado 
+   B7 
+Um padre de batina 
+  E             D/F#   E/G# 
+Beata e sacristão 
+     A  A#º     Bm 
+Coroné impaciente
+
+          E 
+Viu finalmente 
+        E/G#          A   A7 
+O trem chegar na estação 
+       D         E 
+E a mocinha graciosa 
+      C#m 
+Foi saltando 
+  F#m             Bm 
+Desceu do trem puxando 
+        E         A 
+Um cabeludo pela mão

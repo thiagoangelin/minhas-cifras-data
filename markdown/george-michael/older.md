@@ -1,0 +1,103 @@
+George Michael - Older 
+ 
+ 
+Intro: E Gm x 2  
+ 
+Em  
+I should have known  
+   Gm  
+It seemed too easy  
+Em  
+You were there  
+Gm                  E          Gm  
+And I was breathing blue  
+ 
+Bm7  
+Strange  
+G                           Bm7  
+Don?t you think I?m looking older?   
+G  
+But something good has happened to me  
+Am           D  
+Change is a stranger  
+B  
+You have yet to know  
+G                  C  
+Well you?re out of time  
+Am  
+I?m letting go  
+B         C  
+You?ll be fine  
+Am  
+Well that much I know  
+B              C  
+You?re out of time  
+Am  
+I?m letting go  
+Dm                 D  
+I?m not the man you want  
+ 
+Em  
+I should have known  
+Gm  
+It seemed too easy  
+Em  
+You were there  
+Gm                 E         Gm  
+I thought I needed you  
+ 
+Bm7  
+Strange  
+G                           Bm7  
+Don?t you think I?m looking older?   
+G  
+But something good has happened to me  
+Am             D  
+Change is a stranger  
+B  
+Who never seems to show  
+G                  C  
+Well you?re out of time  
+Am  
+I?m letting go  
+B          C  
+You?ll be fine  
+B  
+(or maybe you wont)  
+B              C  
+You?re out of time  
+Am
+
+I?m letting go  
+Dm                  D  
+I?m not the man you want  
+ 
+Bm D Bm Em Am D B  
+ 
+Em                              Am  
+I never should have looked back in your direction  
+Bm  
+I know that  
+               Em      Am  
+Just the same old fights again, baby  
+Em                     Am  
+These are wasted days without affection  
+B  
+I?m not that foolish anymore  
+ 
+G                  C  
+Well you?re out of time  
+Am  
+I?m letting go  
+B          C  
+You?ll be fine  
+B  
+(or maybe you wont)  
+B             C  
+You?re out of time  
+Am  
+I?m letting go  
+Dm                  D  
+I?m not the man you want  
+ 
+E Gm Em Gm

@@ -1,0 +1,9 @@
+Black Sabbath - Letters From Earth 
+ 
+ 
+what if i send... 
+ 
+earth... 
+ 
+this part is a little tricky. It is meant to be played by  
+2 guitars or more...

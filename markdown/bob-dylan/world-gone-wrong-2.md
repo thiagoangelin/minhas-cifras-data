@@ -1,0 +1,89 @@
+Bob Dylan - World Gone Wrong 2 
+ 
+ 
+ 
+I just keep playing a D, suspend the 4th,  
+slide up to the 4th fret(Esus4), go back to a D, suspend  
+the 4th again again, then the 2nd, and back to a D. 
+ 
+However, feel free to improvise. Use a harmonica if you wish ;)  
+ 
+Intro: D 
+ 
+ D 
+Strange things have happened, like never before. 
+ D 
+My baby told me I would have to go. 
+ D           C7     G 
+I can't be good no more, once like I did before. 
+            A 
+I can't be good, baby, 
+        G                       D 
+Honey, because the world's gone wrong. 
+ 
+ D 
+Feel bad this morning, ain't got no home. 
+ D 
+No use in worrying, 'cause the world gone wrong, 
+ D          C7      G 
+I can't be good no more, once like I did before. 
+            A 
+I can't be good, baby, 
+        G                       D 
+Honey, because the world's gone wrong. 
+ 
+ D 
+I told you, baby, right to your head, 
+ D 
+If I didn't leave you I would have to kill you dead. 
+ D           C7     G 
+I can't be good no more, once like I did before. 
+            A 
+I can't be good, baby, 
+        G                       D 
+Honey, because the world's gone wrong. 
+ 
+ D 
+I tried to be loving and treat you kind, 
+ D 
+But it seems like you never right, you got no loyal mind. 
+ D           C7     G 
+I can't be good no more, once like I did before. 
+            A 
+I can't be good, baby, 
+        G                       D 
+Honey, because the world's gone wrong. 
+ 
+ D 
+If you have a woman and she don't treat you kind, 
+ D 
+Praise the Good Lord to get her out of your mind. 
+ D           C7     G 
+I can't be good no more, once like I did before. 
+            A 
+I can't be good, baby, 
+        G                       D 
+Honey, because the world's gone wrong. 
+ 
+ D 
+Said, when you been good now, can't do no more,
+
+ D 
+Just tell her kindly, "there is the front door." 
+ D           C7     G 
+I can't be good no more, once like I did before. 
+            A 
+I can't be good, baby, 
+        G                       D 
+Honey, because the world's gone wrong. 
+ 
+ D 
+Pack up my suitcase, give me my hat, 
+ D 
+No use to ask me, baby, 'cause I'll never be back. 
+ D           C7     G 
+I can't be good no more, once like I did before. 
+            A 
+I can't be good, baby, 
+        G                       D 
+Honey, because the world's gone wrong.

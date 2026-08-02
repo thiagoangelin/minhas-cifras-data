@@ -1,0 +1,48 @@
+Luiz Gonzaga - Benca Mae 
+ 
+[Intro]  F  Am  Gm  F 
+         F  Am  Gm  F 
+ 
+ F                 Bb 
+ De manhã muito cedin 
+                  F 
+ Vi meu mano levantar 
+Dm             G 
+ Acender o candeeiro 
+ Bb               F  F7 
+ Começou a se arrumar 
+                    Bb 
+ Me dizendo bem baixinho 
+                 F 
+ Mano eu vou viajar 
+Dm                G 
+ Tu toma conta de mãe 
+ Bb                F 
+ Diz pra ela não chorar 
+ 
+      Bb              C 
+ E lá da curva da estrada 
+    Gm              C 
+ Eu vi meu mano acenar 
+   Am               Gm   F 
+ Adeus mano, adeus mano ai ai 
+   Am           Gm        F 
+ Adeus mano, a bença mãe ai ai 
+ 
+ F        Bb   Am        F 
+ Virgem Maria mãe do senhor 
+         Bb    Am      Gm 
+ Tudo morreu, tudo murchou 
+           C    Bb       Gm 
+ Peço por Deus Paz no sertão 
+            C    Bb           F 
+ Traz meu irmão Acaba esse horror 
+ 
+       Bb               C 
+ Não quero ouvir nunca mais 
+    Bb                C 
+ O mano outra vez gritar 
+   Am               Gm   F 
+ Adeus mano, adeus mano ai ai 
+   Am           Gm        F 
+ Adeus mano, a bença mãe ai ai

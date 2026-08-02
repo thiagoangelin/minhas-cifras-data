@@ -1,0 +1,20 @@
+Alceu Valenca - O Da Paixao 
+ 
+Intro: B7  Em  B7  Em (2 vezes) 
+ 
+         B7              Em 
+O P da paixão provoca o poema 
+          B7                    Em 
+E o P do poema é um parto, é um parto 
+             Am                   Em 
+São poucas pegadas nas pedras do porto 
+      Em/D  B7                   Em 
+E um poema torto persegue teus passos 
+          B7                Em 
+O P do passado provoca o presente 
+           B7                        Em 
+É o P do presente que importa, que importa 
+             Am                  Em 
+São poucas palavras que batem no peito 
+   Em/D      B7                 Em 
+No fundo da alma na porta, na porta

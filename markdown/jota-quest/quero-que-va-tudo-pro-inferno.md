@@ -1,0 +1,38 @@
+Jota Quest - Quero Que Va Tudo Pro Inferno 
+ 
+Intro: Em Am B7 (4x) 
+ 
+Em                            Am             B7 
+   De que vale o céu azul e o sol sempre a brilhar 
+ Em                       Am             B7 
+   Se você não vem e eu estou a lhe esperar 
+Bm         E7    Bm          E7 
+só tenho você    no meu pensamento 
+Bm        E7       A           B7 
+E a sua ausência é todo meu tormento 
+    A       B7     E             C#m 
+Quero que você me aqueça neste inverno 
+A          B7              E       Em 
+E que tudo mais vá pro o inferno 
+                           Am          B7 
+   De que vale a minha boa vida de playboy 
+   Em                      Am        B7 
+Se entro no meu carro e a solidão me doi 
+Bm               E7       Bm         E7 
+Onde quer que eu ande     tudo é tão triste 
+Bm         E7      A            B7 
+não me interessa o que de mais existe 
+    A       B7     E             C#m 
+Quero que você me aqueça neste inverno 
+A          B7              E 
+E que tudo mais vá pro o inferno 
+Bm          E7     Bm          E7 
+Não suporto mais você longe de mim 
+   Bm        E7     A 
+Quero até morrer do que viver assim 
+               B7     E             C#m 
+Só quero que você me aqueça neste inverno 
+A          B7            E     C#m 
+E que tudo mais vá pro inferno ou,ou..................... 
+A          B7            E 
+E que tudo mais vá pro inferno

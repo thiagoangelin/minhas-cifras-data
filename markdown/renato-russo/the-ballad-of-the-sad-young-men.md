@@ -1,0 +1,56 @@
+Renato Russo - The Ballad Of The Sad Young Men 
+ 
+Intro: Eb7+  Ab7+  Gm  Fm  Bb7 
+ 
+Eb7+            Ab7+     Gm7 
+Sing a song of sad young man 
+Fm7              Bb7 
+Glasses full of rye 
+Eb7+             Ab7+   Gm7 
+All the news is bad   again so 
+Fm7         Bb7         Eb7+ 
+Kiss your dreams goodbye 
+Ab7+              Adim   Bbm7           Bdim 
+All the sad young men    sitting in the bars 
+Ab/C        Bm6    Bbm7            Eb7/9 
+Knowing neon nights  missing  all the stars 
+Ab7+              C#7/9  Gm7                  C7/9 
+All the sad young men    drifting through the town 
+            Ab7+      Gm7      Fm7 Bb7   Eb7+ 
+Drinking up the night   trying not to   drown 
+Ab7+             Adim  Bbm7          Bdim 
+All the sad young men singing in the cold 
+Ab/C        Bm6   Bbm7                Eb7/9 
+Trying to forget that they're growing old 
+Ab7+              C#7/9 Gm7              C7/9 
+All the sad young men   choking on their worth 
+             Ab7+  Gm7 Fm7     Bb7      Eb7+ Ab7+ Gm Fm Bb7 (2x) 
+Trying to be brave,   running from the truth 
+Eb7+             Ab7+   Gm7 
+Autumm turns the leaves gold 
+Fm7             Bb7 
+Slowly dies the heart 
+Eb7+              Ab7+    Gm7 
+Sad young men are growing old 
+    Fm7         Bb7     Eb7+ 
+And that's the cruelest part 
+Ab7+              Adim Bbm7           Bdim 
+All the sad young men  seek a certain smile 
+Ab/C         Bm6      Bbm7         Eb7/9 
+Someone they can hold for a little while 
+Ab7+         C#7/9 Gm7               C7/9 
+Tired little girl  does the best she can 
+             Ab7+ Gm7     Fm7  Bb7  Eb7+ 
+Trying to be gay  for her sad young man 
+Ab7+            Adim   Bbm7         Bdim 
+While the grimy moon   watches from above 
+Ab/C              Bm6  Bbm7           Eb7/9 
+All the sad young men  play of making love 
+Ab7+        C#7/9  Gm                  C7/9 
+Misbegotten moon   shine for sad young men 
+          Ab7+  Gm               Ab7+    Gm 
+Let your gentle light guide them home tonight 
+Ab7+  Gm  Fm     Bb7    Eb7+ 
+All   the sad   young   men           
+ 
+( Eb7+ Ab7+ Gm Fm Bb7 )

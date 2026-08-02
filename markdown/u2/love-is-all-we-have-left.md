@@ -1,0 +1,45 @@
+U2 - Love Is All We Have Left 
+ 
+Bm                                   A 
+  Nothing to stop this being the best day ever 
+G                         Em 
+  Nothing to keep us from where we should be 
+             Bm                 A 
+I wanted the world but you knew better 
+         G                   Em 
+And that all we have is immortality 
+ 
+D                        A 
+Love, and love is all we have left 
+                  G 
+A baby cries on a doorstep 
+Em                 D 
+Love is all we have left 
+                         A 
+Love, and love is all we have left 
+                     G 
+You argue 'cause you can't accept 
+Em             D 
+Love is all we have left 
+ 
+Bm                                A 
+Now you're at the other end of a telescope 
+G                    Em 
+  Seven billion stars in her eyes 
+   Bm                          A 
+So many stars, so many ways of seeing 
+             G              Em 
+Hey, this is no time not to be alive 
+ 
+D                        A 
+Love, and love is all we have left 
+                  G 
+A baby cries on a doorstep 
+Em             D 
+Love is all we have left 
+                         A 
+Love, and love is all we have left 
+                    G 
+The only thing that can be kept 
+Em             D 
+Love is all we have left

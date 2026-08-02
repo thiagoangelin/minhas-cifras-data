@@ -1,0 +1,99 @@
+Cidade Negra - Cidade Em Movimento 
+ 
+Intro:G#m7 A#m7 B C# 
+ 
+G#m7 A#m7 G#m7 A#m7 
+ 
+    G#m7             A#m7 
+O sol acorda a cidade 
+   G#m7               A#m7 
+mistura a cor da massa 
+       G#m7          A#m7 
+que vai na velocidade 
+      G#m7                  A#m7 
+da luz do astro rei do olhar 
+    G#m7            A#m7 
+sou da cor da cidade 
+       G#m7                A#m7 
+caminho junto com a multidão 
+         G#m7             A#m7 
+que pulsa ao som da verdade 
+       G#m7               A#m7 
+Tambor da nossa comunicação 
+    G#m7 
+que toca no sangue 
+    A#m7 
+que toca os sentidos 
+   B                     C# 
+espalha no ar o batuque das tribos 
+   G#m7              A#m7 
+na força do vento um só movimento 
+   B                   C# 
+deságua na onda que invade e transborda 
+   B                   C# 
+no som que acorda a cidade 
+  G#m7 
+coração de paz,coração de pão tudo 
+    A#m7 
+coração de irmão 
+    G#m7 
+coração rei  
+               A#m7 
+coração de irmão 
+ 
+ G#m7 
+coração de paz,coração de pão tudo 
+    A#m7 
+coração de irmão 
+    G#m7 
+coração rei  
+               A#m7 G#m7 A#m7 G#m7 A#m7 G#m7 A#m7 G#m7 
+A#m7 
+coração de irmão. 
+ 
+     G#m7             A#m7 
+O sol acorda a cidade 
+   G#m7               A#m7 
+mistura a cor da massa 
+       G#m7          A#m7 
+que vai na velocidade 
+      G#m7                  A#m7 
+da luz do astro rei do olhar 
+    G#m7            A#m7 
+sou da cor da cidade 
+       G#m7                A#m7 
+caminho junto com a multidão 
+         G#m7             A#m7 
+que pulsa ao som da verdade 
+       G#m7               A#m7 
+Tambor da nossa comunicação
+
+    G#m7 
+que toca no sangue 
+    A#m7 
+que toca os sentidos 
+   B                     C# 
+espalha no ar o batuque das tribos 
+   G#m7              A#m7 
+na força do vento um só movimento 
+   B                   C# 
+deságua na onda que invade e transborda 
+   B                   C# 
+no som que acorda a cidade 
+  G#m7 
+coração de paz,coração de pão tudo 
+    A#m7 
+coração de irmão 
+    G#m7 
+coração rei  
+               A#m7 
+coração de irmão 
+ 
+ G#m7 
+coração de paz,coração de pão tudo 
+    A#m7 
+coração de irmão 
+    G#m7 
+coração rei  
+ 
+coração de irmão...

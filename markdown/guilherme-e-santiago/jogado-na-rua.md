@@ -1,0 +1,107 @@
+Guilherme E Santiago - Jogado Na Rua 
+ 
+[Intro] D  A  Bm  G 
+        D  A  Em  D/F#  G  A 
+ 
+[Primeira Parte] 
+ 
+        D           G        A 
+Não tá fácil ficar sem teu amor aqui 
+        Em          A 
+Que saudade que dá 
+             G     D 
+Chego a ter dó de mim 
+ 
+      D                   A 
+Meu amor é assim bruto e sincero demais 
+      Em           A 
+Sentimento sem fim 
+       G          D    D7 
+Amo você ninguém mais 
+ 
+[Segunda Parte] 
+ 
+    G 
+Me deixou assim 
+                 Bm 
+Sombra na escuridão 
+      G            Em 
+Arrancou de mim a paz 
+                 A 
+O sorriso e a razão 
+ 
+Uoou uoou uoou uoou  
+ 
+[Refrão] 
+ 
+D 
+Ai 
+      A                             Bm 
+É no som da viola que o peito chora ai 
+        G                           D 
+Nessas noites de lua jogado na rua, ai 
+     A        G 
+Ai amor, ai amor 
+                                   D 
+Nessas noites de lua jogado na rua ai 
+ 
+( G  G#  A ) 
+ 
+                    Bb°             Bm 
+É no som da viola que o peito chora ai 
+        G                           D 
+Nessas noites de lua jogado na rua, ai 
+     A        G 
+Ai amor, ai amor 
+                                   D 
+Nessas noites de lua jogado na rua ai 
+ 
+[Intro] D  A  Bm  G 
+        D  A  Em  D/F#  G  A 
+ 
+[Primeira Parte]           
+ 
+      D                   A 
+Meu amor é assim bruto e sincero demais 
+      Em           A 
+Sentimento sem fim 
+       G          D    D7 
+Amo você ninguém mais
+
+ 
+[Segunda Parte] 
+ 
+    G 
+Me deixou assim 
+                 Bm 
+Sombra na escuridão 
+      G            Em 
+Arrancou de mim a paz 
+                 A 
+O sorriso e a razão 
+ 
+Uoou uoou uoou uoou  
+ 
+[Refrão Final] 
+ 
+D 
+Ai 
+      A                             Bm 
+É no som da viola que o peito chora ai 
+        G                           D 
+Nessas noites de lua jogado na rua, ai 
+     A        G 
+Ai amor, ai amor 
+                                   D 
+Nessas noites de lua jogado na rua ai 
+ 
+( G  G#  A ) 
+ 
+                    Bb°             Bm 
+É no som da viola que o peito chora ai 
+        G                           D 
+Nessas noites de lua jogado na rua, ai 
+     A        G 
+Ai amor, ai amor 
+                                   D 
+Nessas noites de lua jogado na rua ai

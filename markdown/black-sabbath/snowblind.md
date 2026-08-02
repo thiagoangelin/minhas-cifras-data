@@ -1,0 +1,38 @@
+Black Sabbath - Snowblind 
+ 
+ 
+any questions? andrewbiles@hotmail.com 
+(I'm not going to work out the outro solo) 
+_______________________ 
+Lyrics: 
+ 
+What you get and what you see 
+Things that don't come easily 
+Feeling happy in my vein 
+Icicles within my brain 
+(cocaine) 
+ 
+Something blowing in my head 
+Winds of ice, it soon will spread 
+Death would freeze my very soul 
+Makes me happy, makes me cold 
+ 
+My eyes are blind but I can see 
+The snowflakes glisten on the tree 
+The sun no longer sets me free 
+I feel there's no place freezing me 
+ 
+Let the winter sun shine on 
+Let me feel the frost of dawn 
+Fill my dreams with flakes of snow 
+Soon I'll feel the chilling glow 
+ 
+Don't you think I know what I'm doing 
+Don't tell me that it's doing me wrong 
+You're the one that's really a loser 
+This is where I feel I belong 
+ 
+Crystal world with winter flowers 
+Turns my day to frozen hours 
+Lying snowblind in the sun 
+Will my ice age ever come?

@@ -1,0 +1,59 @@
+Johnny Cash - Angel Band 
+ 
+E   A/E   
+   E             A       E 
+My latest sun is sinking fast 
+           B7     E 
+My race is nearly run 
+                    A       E 
+My strongest trials now are past 
+           B7    E 
+My triumph has begun 
+ 
+B7        E 
+Oh, come, angel band 
+B7        E7        E 
+Come and around me, stand 
+    A                    E 
+Oh, bear me away on your snow white wings 
+        B7     E   E7 
+To my immortal home 
+    A                    E 
+Oh, bear me away on your snow white wings 
+        B7     E 
+To my immortal home 
+ 
+     E                A        E 
+I've almost gained my heavenly Home 
+          B7     E 
+My spirit loudly sings 
+                A         E 
+The Holy Ones behold they come 
+           B7       E 
+I hear the sound of wings 
+ 
+B7        E 
+Oh, come, angel band 
+B7        E7        E 
+Come and around me, stand 
+    A                    E 
+Oh, bear me away on your snow white wings 
+        B7     E   E7 
+To my immortal home 
+    A                    E 
+Oh, bear me away on your snow white wings 
+        B7     E 
+To my immortal home 
+ 
+( E A E B7) 
+Oh, bear my longing heart to him 
+Who bled and died for me 
+Whose blood now cleanses from all sin 
+And brings me victory 
+ 
+Oh, come, angel band 
+Come and around me, stand 
+Oh, bear me away on your snowy wings 
+To my immortal home 
+Oh, bear me away on your snowy wings 
+To my immortal home

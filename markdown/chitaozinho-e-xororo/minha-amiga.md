@@ -1,0 +1,40 @@
+Chitaozinho E Xororo - Minha Amiga 
+ 
+(intro) Bb Cm  F7 Bb Cm F7 Bb 
+ 
+Bb                                      Cm 
+É muito tarde pra você voltar, tudo acabou 
+           F7                    Bb 
+A nossa vida separados, transformou - 
+                         Gm          Cm 
+Minha amiga estranhei demais quando a vi 
+         F7                                Bb  Bb7 
+Essas roupas você não usava quando estava aqui. 
+           Eb               Ebm             Bb 
+Que diferença daquela que um dia eu amei demais 
+    G7      Cm                 F7             Bb 
+Você mudou tanto a mulher que era não existe mais. 
+ 
+       F7                         Bb 
+Os seus cabelos pintados eram escuros 
+   F7               Eb               Bb 
+Daquele sorriso inocente nada mais se vê - 
+Bb7         Eb                                   Bb 
+Prefiro lembrar a mulher do passado e chorar por ela 
+                            F7 
+Não adianta insistir que aquela 
+                              Bb 
+Tão pura e tão bela mulher é você. 
+ 
+Bb                                     Cm 
+Quanta mudança a separação lhe proporcionou 
+          F7                              Bb 
+Eu tenho medo que até outro nome você já usou 
+                      Gm                Cm 
+Perdão amiga, por eu estar lhe dizendo assim 
+           F7                             Bb Bb7 
+Desse jeito você não devia retornar  pra mim. 
+              Eb           Ebm              Bb 
+Coloquei uma pedra em nosso futuro, tudo acabou 
+ G7        Cm                   F7              Bb 
+Prefiro pensar que meu grande amor nunca mais voltou.

@@ -1,0 +1,46 @@
+Backstreet Boys - Time 
+ 
+ 
+ 
+I know that I, I can't believe 
+Just what the path has brought me 
+To the man  I wanna be 
+And I know that we have had some times 
+That we can't forget the struggle 
+Cause we have so far to go 
+I know we have changed but, 
+Change can be so good 
+So let's not forget why it's understood that… 
+ 
+CHORUS 
+ 
+Time 
+Look where we are 
+And what we've been through 
+Time 
+Sharin' our dreams 
+Time, it goes on and on everyday, baby 
+Time is what it is come what may 
+ 
+I remember when mom used to say 
+That things are getting better 
+And you'll soon be on your way 
+Remember those days, that we would sing at 
+The drop of a dime 
+Way back when nothing else mattered 
+Oh, I know we've changed but, 
+Change can be so good 
+Oh, so let's not forget why it's understood that… 
+ 
+CHORUS - repeat 
+ 
+So here we are 
+And we'll always stay together 
+And through it all you know 
+We owe it all to you, you, you and you 
+(Time goes on, never stops, it keeps on) 
+ 
+CHORUS - repeat 2X 
+ 
+Time, it goes on and on everyday 
+Time is what it is, come what may, come what may.......

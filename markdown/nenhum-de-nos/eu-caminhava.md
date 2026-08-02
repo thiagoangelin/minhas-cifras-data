@@ -1,0 +1,47 @@
+Nenhum De Nos - Eu Caminhava 
+ 
+[Intro] C  D 
+        C  D 
+ 
+G 
+Eu caminhava 
+Minhas pernas se encontravam,se despediam 
+    C                    D 
+Vencendo cruzamentos,ganhando esquinas 
+    C                      D             G 
+Chegando a lugares que de longe eu enxergava 
+Um estranho,encostado na parede mostrou os braços 
+C                         D 
+Longos brancos braços marcados 
+                   C 
+Ofereceu-lhe a prisão 
+C               D 
+Longos dias contados,entre um tiro 
+        G                Am D G Am D 
+E um espelho eu o deixei 
+C                 Am                  D 
+Eu caminhava e fingia que o tempo passava 
+C                  Am    D  
+Eu caminhava e fingia 
+ 
+[Solo] G  Em  C  D 
+ 
+G                                         Em 
+Eu caminhava e fingia que conhecia as pessoas 
+                            C 
+E fingia que gostava de alguém e 
+                       D 
+Fingia que o tempo passava 
+ 
+G                                         Em 
+Eu caminhava e fingia que conhecia as pessoas 
+                            C 
+E fingia que gostava de alguém e 
+                       D 
+Fingia que o tempo passava 
+ 
+[Solo] F  Bm  F  Bm 
+ 
+( C  D ) 
+( C  D ) 
+( C )

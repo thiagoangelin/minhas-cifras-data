@@ -1,0 +1,91 @@
+Leandro E Leonardo - Colcha De Retalhos Part 
+Chitaozinho E Xororo 
+ 
+[Intro] C  Dm  G  C  A7  Dm 
+        G  C  F  G 
+ 
+[Primeira Parte] 
+ 
+   C 
+Aquela colcha de retalhos 
+Que tu fizeste 
+Juntando pedaço em pedaço 
+          G 
+Foi costurada 
+    Dm 
+Serviu para o nosso abrigo 
+             G 
+Em nossa pobreza 
+   C                G 
+Aquela colcha de retalhos 
+              C   C7 
+Está bem guardada 
+ 
+[Refrão] 
+ 
+ F 
+Agora, na vida rica que está vivendo 
+Terás como agasalho 
+        C 
+Colcha de cetim 
+Mas quando chegar o frio 
+        G 
+No teu corpo enfermo 
+    Dm                G 
+Tu hás de lembrar da colcha 
+          C 
+E também de mim 
+ 
+( Dm  G  C  A7 ) 
+( Dm  G  C  F/C  G ) 
+ 
+[Segunda Parte] 
+ 
+    C 
+Eu sei que hoje não te lembras 
+Dos dias amargos 
+Que junto de mim fizestes 
+             G 
+Um lindo trabalho 
+    Dm 
+Se nesta tua vida alegre 
+             G 
+Tens o que queres 
+    C                    G 
+Eu sei que esquecestes agora 
+               C     C7 
+A colcha de retalhos 
+ 
+[Refrão] 
+ 
+ F 
+Agora, na vida rica que está vivendo 
+Terás como agasalho 
+        C 
+Colcha de cetim 
+Mas quando chegar o frio 
+        G 
+No teu corpo enfermo 
+    Dm                G
+
+Tu hás de lembrar da colcha 
+          C 
+E também de mim 
+ 
+( C  G  Dm  G ) 
+( C  G  C  C7 ) 
+ 
+[Refrão] 
+ 
+ F 
+Agora, na vida rica que está vivendo 
+Terás como agasalho 
+        C 
+Colcha de cetim 
+Mas quando chegar o frio 
+        G 
+No teu corpo enfermo 
+    Dm                G 
+Tu hás de lembrar da colcha 
+          C 
+E também de mim

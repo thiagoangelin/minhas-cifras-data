@@ -1,0 +1,82 @@
+Titas - Saia De Mim 
+ 
+Introd.: Am D  Am D  Am D 
+ 
+  Am                 D 
+  Saia de mim como suor 
+  Am                      D  
+  Tudo que eu sei de cor  
+  Am                 D 
+  Saia de mim como excreto  
+  Am                    D 
+  Tudo que está correto  
+  Am          D 
+  Saia de mim  
+  Am          D 
+  Saia de mim  
+  Am                  D 
+  Saia de mim como um peido  
+  Am                     D 
+  Tudo que for perfeito  
+  Am                  D 
+  Saia de mim como um grito  
+  Am                   D 
+  Tudo que eu acredito  
+  Am                      D 
+  Tudo que eu não esqueça  
+  Am                   D 
+  Tudo que for certeza  
+ 
+     (Am  D  Am  D)  E7 
+ 
+  E7 
+  Saia de mim vomitado  
+  Expelido, exorcizado  
+  Tudo que está estagnado  
+  Saia de mim como escarro  
+  Espirro pus, porra, sarro  
+  Sangue, lágrima, catarro  
+ 
+     E7  G  E7  (Am  D  Am  D) 
+ 
+  Am                 D 
+  Saia de mim como suor 
+  Am                      D  
+  Tudo que eu sei de cor  
+  Am                 D 
+  Saia de mim como excreto  
+  Am                    D 
+  Tudo que está correto  
+  Am          D 
+  Saia de mim  
+  Am          D 
+  Saia de mim  
+  Am                  D 
+  Saia de mim como um peido  
+  Am                     D 
+  Tudo que for perfeito  
+  Am                  D 
+  Saia de mim como um grito  
+  Am                   D 
+  Tudo que eu acredito  
+  Am                      D 
+  Tudo que eu não esqueça  
+  Am                   D 
+  Tudo que for certeza  
+ 
+     (Am  D  Am  D) 
+ 
+  E7
+
+  Saia de mim vomitado  
+  Expelido, exorcizado  
+  Tudo que está estagnado  
+  Saia de mim como escarro  
+  Espirro pus, porra, sarro  
+  Sangue, lágrima, catarro  
+ 
+  E7 
+  Saia de mim a verdade  
+  Saia de mim a verdade  
+  Saia de mim a verdade  
+  Saia de mim a verdade

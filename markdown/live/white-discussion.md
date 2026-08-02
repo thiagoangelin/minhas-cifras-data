@@ -1,0 +1,25 @@
+Live - White Discussion 
+ 
+E  D  C#  C  D  (5ths) 
+ 
+I talk of freedom 
+You talk of the flag 
+I talk of revolution 
+You'd much rather brag 
+And as the decibels of this disenchanting 
+Discourse continue to damnpen the day 
+The coin flips again and again and again 
+And again as our sanity walks away 
+ 
+All this discussion though politically correct 
+Is dead beyond destruction 
+Though it leaves me quite erect 
+ 
+And as the final sunset rolls behind the Earth 
+And the clock is finally dead 
+I'll look at you, you'll look at me 
+And we'll cry alot, but this will be what we said 
+This will be what we said 
+ 
+E                                  C      A 
+Look where all this talking got us baby...

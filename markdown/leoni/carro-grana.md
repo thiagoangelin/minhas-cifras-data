@@ -1,0 +1,48 @@
+Leoni - Carro Grana 
+ 
+[ Leoni/ Beni ] 
+ 
+[Intro:] E Cº C#m7 A B 
+ 
+          E                                 B 
+Houve um tempo em que tudo girava ao meu redor 
+            A          E   B A 
+Dos meus desejos e vontades 
+        E                          Cº 
+E todo mundo ria de tudo que eu dizia 
+                           C#m7  B 
+E eu dizia um monte de bobagens 
+      E                           B 
+Eu achava que tinha de tudo para sempre 
+               A           E  B A 
+Que eu tinha amigos de verdade 
+          E                       Cº 
+Mas a verdade sempre vem bater à porta 
+                       C#m7  B 
+A gente tenha ou não vontade 
+ 
+         E 
+Já tive carro e grana 
+      B           A              E       B A 
+E um monte de convites pra qualquer lugar 
+           E 
+Hoje eu só ando a pé 
+B            A       E  B A 
+Mas eu continuo a andar 
+ 
+              E                         B 
+E aquelas pessoas que andavam ao meu redor 
+          A           E   B A 
+Hoje escolheram uma menina 
+          E                                Cº 
+Que por enquanto acredita em tudo que eles dizem 
+                          C#m7 B 
+É a mesma história toda vida 
+          E                             B 
+O que eu sei eu sei que ela só vai descobrir 
+            A          E  B A 
+Quando ela sair de moda 
+        E                                Cº 
+Um tropeço ensina mais do que o sucesso 
+                         C#m7  B 
+E é tudo bem mais claro agora

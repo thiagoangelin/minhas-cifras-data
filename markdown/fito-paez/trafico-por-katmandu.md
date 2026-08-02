@@ -1,0 +1,66 @@
+Fito Paez - Trafico Por Katmandu 
+ 
+Am 
+  Y te digo : 
+            E     G     Am           E G 
+que desde adentro yo me puedo mover 
+Am           E      G      Am           E G 
+  hice un agujero en una inmensa pared 
+Am          E         G       Am       E G 
+  prendí la radio y escuche y escuche 
+    Am             E     G       Am      E G 
+doscientos chicos mueren hoy sin su AZT 
+ 
+F          E         D7          Fm   Bb 
+Dime Dios, hay stop? donde estés dímelo 
+     C    G/B     Am       Fm         E     Am 
+si hablábamos de luz, del trafico por Katmandu 
+ 
+            E    G      Am          E G 
+No todo el mundo va a dejarse caer 
+Am            E    G        Am                  E G 
+  no todo el mundo va a arrastrarse a tus pies 
+Am          E     G        Am           E G 
+  lo que me falta no es la falta de fe 
+   Am            E    G    Am              E G 
+tendrías que pensarlo seriamente esta vez 
+ 
+F      E          D7       Fm   Bb 
+Ademan Art Deco, muéstrame quémalo 
+     C    G/B    Am     F          E        Am 
+si hablábamos de luz, debajo de la Cruz del Sur 
+ 
+Am         E     G        Am            E G 
+  No tengo prisa no hay a donde llegar 
+Am       E        G        Am             E G 
+  este milagro es de un perfecto cristal 
+Am       E   G        Am             E G 
+  sabiduría pop me lo hizo entender 
+    Am             E        G      Am            E G 
+que siempre fue lo mismo el mono y Citizen Kane 
+        E 
+Yo también perdí quimeras 
+     D7                 D D# E 
+pero me hice buen voyeur 
+ 
+     G 
+Y te digo : 
+Am            E     G     Am           E G 
+  que desde adentro nos podemos mover 
+Am           E       G     Am           E G 
+  hace un agujero en una inmensa pared 
+Am          E    G      Am           E G 
+  después sácate poco a poco la piel 
+   Am             E 
+la sangre es para siempre 
+G    Am            E G 
+nada puedes hacer 
+ 
+F       E         D7    Fm    Bb 
+Además, vos y yo, ámame por favor 
+    C   G/B    Am     F           E       F 
+si amábamos la luz, debajo de la Cruz del Sur 
+             E           D7           Fm  Bb 
+Siempre mas, never stop, te ofrecí mi corazón 
+     C    Gb     Am       F           E    Am   E G 
+si hablábamos de luz, del trafico por Katmandu

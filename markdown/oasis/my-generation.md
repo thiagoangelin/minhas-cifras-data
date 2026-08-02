@@ -1,0 +1,81 @@
+Oasis - My Generation 
+ 
+Chords:  
+G: 320033 
+F:xx3211 
+A: 577655 
+A7:575655 
+ 
+Intro: G F 
+People try to put us d-down  
+G               F       G (once) 
+Talkin' 'bout my generation  
+Just because we get around  
+G               F       G (once) 
+Talkin' 'bout my generation  
+Things they do look awful cold  
+G               F       G (once) 
+Talkin' 'bout my generation  
+I hope I die before I get old  
+G               F       G (once) 
+Talkin' 'bout my generation  
+G               F 
+This is my generation  
+G               F 
+This is my generation, baby  
+ 
+Why don't you all fade away  
+G               F       G (once) 
+Talkin' 'bout my generation  
+Yeah, and don't try and dig what we all say  
+G               F       G (once) 
+Talkin' 'bout my generation  
+I'm not trying to cause a big sensation  
+G               F       G (once) 
+Talkin' 'bout my generation  
+G               F       G (once) 
+I'm just talkin' 'bout my generation  
+Talkin' 'bout my generation  
+G               F 
+My generation this is my generation, baby  
+ 
+Why don't you all fade away  
+A               A7 
+Talk-in' 'bout my generation  
+Yeah, and don't try and dig what we all say  
+A               A7 
+Talkin' 'bout my generation  
+A               A7 
+I'm not trying to cause a big sensation  
+A               A7 
+Talkin' 'bout my generation  
+A               A7 
+I'm just talkin' 'bout my generation  
+A               A7 
+Talkin' 'bout my generation  
+A               A7 
+This is my generation, this is my generation, baby  
+My my my generation  
+my my my  
+My my my generation  
+ 
+People try to put us down  
+G               F       G (once) 
+Talkin' 'bout my generation 
+Just because we get around  
+G               F       G (once) 
+Talkin' 'bout my generation  
+Things they do look awful cold  
+G               F       G (once)
+
+Talkin' 'bout my generation  
+Yeah, I hope I die before I get old  
+G               F       G (once) 
+Talkin' 'bout my generation  
+ G              F       (until the end of the song) 
+This is my generation,  
+This is my generation, baby  
+Talkin' 'bout my generation  
+Talkin' 'bout my generation  
+Talkin' 'bout my generation  
+Talkin' 'bout my generation

@@ -1,0 +1,37 @@
+Erasmo Carlos - Me Acende Com Teu Fogo 
+ 
+Intro: Bm7 A7+ 
+ 
+Bm7 
+Me acende com teu beijo 
+     A7+ 
+Me queima com teu fogo 
+         Bm7 
+E mesmo que eu ponha um ovo 
+          A7+ 
+Sei que estou falando sério 
+         Bm7 
+Me toca com teu corpo 
+A7+ 
+Acende o meu desejo 
+Bm7 
+O meu amor é tanto 
+         F          E           A7+         F# 
+Que eu quero ser enterrado com você do lado 
+ 
+Bm7 
+Me quebra num abraço 
+A7+ 
+Aquece o meu sorriso 
+Bm7 
+Pois é disso que eu preciso 
+A7+ 
+Pra não deixar você jamais 
+Bm7 
+Me prende no teu peito 
+A7+ 
+Me queima com teu fogo 
+Bm7 
+O meu amor é tanto 
+         F          E             A7+      F# 
+Que eu quero ser enterrado com você do lado

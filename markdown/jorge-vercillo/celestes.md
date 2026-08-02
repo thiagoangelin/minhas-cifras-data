@@ -1,0 +1,26 @@
+Jorge Vercillo - Celestes 
+ 
+( Beto Dourah ) 
+ 
+Dm7                   Bb7M 
+Deixa meu coração nevegar 
+ C7(9)            F7M 
+As águas do seu oceano 
+Bb7M                   Eb7M 
+Nau a deriva em outros mares 
+  A7(b13)             Gm7(9) 
+Só quer aportar em seu cais 
+ 
+Mais que os objetos luminosos 
+Mais que o radar dos satélites 
+Seus olhos captaram os meus 
+A mais nova constelação 
+ 
+   Dm7                      Bb7M 
+Milhares e milhares de anos luz 
+C7(9)                    F7M Em7(b5) A7(b13) 
+Sonhos, viagens, mares celes...tes 
+   Dm7                      Bb7M 
+Milhares e milhares de anos luz 
+ C7(9)                 F7M        Em7(b5) A7(b13) 
+Ciganos amores na linhas das minhas mãos

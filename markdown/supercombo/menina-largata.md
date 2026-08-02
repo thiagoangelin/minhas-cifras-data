@@ -1,0 +1,92 @@
+Supercombo - Menina Largata   
+ 
+C     G      Dm         F     
+ Essa menina sempre foi largata 
+C            G              Dm          F 
+ Brigou com os pais e agora quer fugir da casca 
+ 
+( C  G  Dm  F ) 
+( C  G  Dm  F ) 
+ 
+C     G          Dm       F 
+ Você tá triste, teias na sua alma 
+C      G               Dm      F 
+ Mas o casulo é pra fortalecer tuas asas 
+C  G          Dm        F 
+      Vai ser bom pra você 
+ 
+Am          
+Quando tu sair, o céu será teu território 
+G 
+Voe pra você, seja quem quiser 
+           F 
+Faz do teu jeito 
+ 
+Am 
+Quando tu sair, ame tua metamorfose 
+G 
+Cuide de você, seja como for 
+           F 
+Faz do teu jeito 
+          C 
+Sem tropeçar 
+ 
+( G  Dm  F ) 
+( C  G  Dm  F ) 
+ 
+C         G        Dm       F 
+ Floresta é triste, cheia de maldade 
+C      G         Dm           F 
+ Tua armadura só cresce com a idade 
+C  G          Dm        F 
+      Vai ser bom pra você 
+ 
+( C  G  Dm  F ) 
+ 
+Am          
+Quando tu sair, o céu será teu território 
+G 
+Voe pra você, seja quem quiser 
+           F 
+Faz do teu jeito 
+Am 
+Quando tu sair, ame tua metamorfose 
+G 
+Cuide de você, seja como for 
+           F 
+Faz do teu jeito 
+           Am 
+Segue as antenas 
+ 
+( G  F  Em  G#m ) 
+ 
+F            Am       Em            F 
+Quando tu se assumir, quando tu se aceitar-ah 
+F                Am     Em              F 
+Deixa o para-brisa vir, ele quem vai se quebrar, deixa 
+F  Am                Em   F 
+       O tempo construir, yeah 
+F            Am       Em            F
+
+Quando tu se assumir, quando tu se aceitar-ah 
+F                Am     Em              F 
+Deixa o para-brisa vir, ele quem vai se quebrar, deixa 
+F  Am                Em   F 
+       O tempo construir 
+              Dm 
+Teu sonho de voar 
+ 
+Am          
+Quando tu sair, o céu será teu território 
+G 
+Voe pra você, seja quem quiser 
+           F 
+Faz do teu jeito 
+Am 
+Quando tu sair, ame tua metamorfose 
+G 
+Cuide de você, seja como for 
+           F 
+Faz do teu jeito 
+         Am 
+Sem tropeçar

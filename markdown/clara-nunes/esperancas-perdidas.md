@@ -1,0 +1,39 @@
+Clara Nunes - Esperancas Perdidas 
+ 
+[Intro] Fm  F7  Bbm  Eb7  Ab  C7 
+ 
+  Fm               F7                    Bbm 
+Quantas belezas deixadas nos cantos da vida 
+Eb7                                          Ab   C7 
+Que ninguém quer e nem mesmo procura encontrar 
+Fm                 F7                       Bbm 
+ E quantos sonhos se tornam esperanças perdidas 
+Gm7/5-               C7                    Fm   C7 
+Que alguém deixou morrer sem nem mesmo tentar 
+ 
+ Fm               F7                 Bbm 
+Minha beleza encontro no samba que faço 
+Eb7                                    Ab     C7 
+Minhas tristezas se tornam um alegre cantar 
+Fm               F7                    Bbm 
+ É que carrego o samba bem dentro do peito 
+ Gm7/5-            C7              Fm 
+Sem a cadência do samba não posso ficar 
+ 
+            C7                  Fm 
+Não posso ficar... eu juro que não 
+            F7                Bbm 
+Não posso ficar... eu tenho razão 
+                           Gm7/5- 
+Já fui batizado na roda de bamba 
+             C7                  Fm    C7 
+O samba é a corda... eu sou a caçamba 
+ 
+  Fm               F7                    Bbm 
+Quantas noites de tristeza ele me consola 
+Eb7                              Ab   C7 
+Tenho como testemunha a minha viola 
+Fm                F7                      Bbm 
+Ai... se me faltar o samba não sei o que será 
+Gm7/5-               C7            Fm 
+Sem a cadência do samba não posso ficar

@@ -1,0 +1,99 @@
+Cazuza - Poema 
+ 
+[Intro] G  D  Am  C 
+        G  D  Am  C 
+ 
+G                      D                Am      C 
+  Eu hoje tive um pesadelo e levantei atento a tempo 
+G                         D                            Am 
+  Eu acordei com medo e procurei no escuro alguém com seu 
+carinho 
+       C 
+E lembrei de um tempo 
+Em                      D 
+  Porque o passado me traz uma lembrança 
+    C 
+Do tempo que eu era criança 
+Em                D                C                            D 
+  E o medo era motivo de choro desculpa pra um abraço ou um 
+consolo 
+ 
+[Solo] G  D  Am  C 
+       G  D  Am  C 
+ 
+ G                   D 
+Hoje eu acordei com medo 
+            Am 
+Mas não chorei 
+                C 
+Nem reclamei abrigo 
+G                     D                 Am 
+  Do escuro, eu via um infinito sem presente 
+              C 
+Passado ou futuro 
+G                  D                   C 
+  Senti um abraço forte, já não era medo 
+ 
+Era uma coisa sua que ficou em mim 
+ 
+C                     D                  Em 
+  De repente a gente vê que perdeu ou está 
+ 
+Perdendo alguma coisa 
+C            D                          Em 
+  Morna e ingênua que vai ficando no caminho 
+C                  D                 Em 
+  Que é escuro e frio, mas também bonito 
+ 
+Porque é iluminado 
+ C                   D             G 
+Pela beleza do que aconteceu há minutos atrás 
+ 
+[Solo] G  D  Am  C 
+       G  D  Am  C 
+ 
+G                      D                Am      C 
+  Eu hoje tive um pesadelo e levantei atento a tempo 
+G                         D                            Am 
+  Eu acordei com medo e procurei no escuro alguém com seu 
+carinho 
+       C 
+E lembrei de um tempo 
+Em                      D 
+  Porque o passado me traz uma lembrança 
+    C 
+Do tempo que eu era criança 
+Em                D                C                            D 
+  E o medo era motivo de choro desculpa pra um abraço ou um 
+consolo
+
+ G                   D 
+Hoje eu acordei com medo 
+            Am 
+Mas não chorei 
+                C 
+Nem reclamei abrigo 
+G                     D                 Am 
+  Do escuro, eu via um infinito sem presente 
+              C 
+Passado ou futuro 
+G                  D                   C 
+  Senti um abraço forte, já não era medo 
+ 
+Era uma coisa sua que ficou em mim, que não tem fim 
+ 
+C                     D                  Em 
+  De repente a gente vê que perdeu ou está 
+ 
+Perdendo alguma coisa 
+C            D                          Em 
+  Morna e ingênua que vai ficando no caminho 
+C                  D                 Em 
+  Que é escuro e frio, mas também bonito 
+ 
+Porque é iluminado 
+ C                   D             G 
+Pela beleza do que aconteceu há minutos atrás 
+ 
+[Solo] G  D  Am  C 
+       G  D  Am  C

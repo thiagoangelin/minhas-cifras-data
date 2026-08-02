@@ -1,0 +1,37 @@
+Lulu Santos - Delete 
+ 
+Bbm7           C7       Fm 
+Cada um tem os seus problemas, já nem é necessário repetir 
+Bbm7           C7           Fm 
+nem tampouco fazer papel de mártir 
+Bbm7           C7   Fm 
+São moinhos de vento os fantasmas que nego quer saber 
+Db              C7  Bm7           C7        
+Ilusões de grandeza, fantasias de glória 
+ 
+            Fm           Bbm7            Db   
+Ora, quer saber, deletei você, limpei do HD,  
+Bbm7        C7 
+apaguei seu vírus da 
+         Fm            Bbm7             Db 
+programação, sem definição, seu arquivo vai  
+Bbm7         C7         Fm 
+rapidinho fugindo da  memória 
+ 
+Bbm7          C7     Fm 
+Cada um tem o seu sistema e não fica nem os que competir 
+Bbm7              C7       Fm 
+nem tampouco se oferecer a lâmina 
+Bbm7            C7   Fm 
+São quimeras da mente, os monstrengos em que nego quer crer 
+Db             C7  Bbm7            C7        
+Ilusões de grandeza, fantasias de glória 
+ 
+            Fm           Bbm7            Db   
+Ora, quer saber, deletei você, limpei do HD,  
+Bbm7        C7 
+apaguei seu vírus da 
+         Fm            Bbm7             Db 
+programação, sem definição, seu arquivo vai  
+Bbm7         C7         Fm 
+rapidinho fugindo da  memória

@@ -1,0 +1,113 @@
+Cidade Negra - Minha Irma 
+ 
+Tom :Gm 
+Intro: ( Gm  Eb  Dm ) 
+ 
+Gm 
+Isso é o que me faz sorrir 
+Eb                 Dm 
+Isso é que ma faz chorar 
+Gm 
+Isso é o que me faz sorrir 
+Eb                 Dm 
+Isso é que ma faz chorar 
+Gm               Eb   Dm 
+Isso é que faz a vida 
+Gm                Eb   Dm 
+Isso é que faz a vida 
+Gm 
+Isso deu pra mim no tarô  
+Eb                  Dm 
+Isso deu pra mim no tarô 
+Gm                   Eb  Dm 
+Isso deu pra mim no tarô 
+Eb              Eb    Dm 
+Isso deu nos búzios 
+ Gm                      Eb  Dm 
+Que a minha irmã jogou pra mim 
+      Gm                   Eb  Dm 
+Que a minha irmã jogou pra mim 
+Gm 
+É o que te faz seguir na vida 
+Eb                       Dm 
+É o que te faz meu bem querer 
+Gm 
+É o que te faz seguir na vida 
+Eb                       Dm 
+É o que te faz meu bem querer 
+Gm           Eb   Dm 
+É a alegria viva 
+Gm             Eb  Dm 
+É a visão de benzer 
+Gm 
+Pra você também 
+Eb          Dm 
+Pra você também 
+Gm           Eb  Dm 
+Pra você também 
+Gm 
+Ah, meu Zumbi ! 
+Ah, meu Jaco ! 
+Eb 
+Ai, ai meu Deus 
+Dm 
+Pense nele só 
+Pense nele só 
+Gm 
+Ah , meu Zumbi ! 
+Ah, meu Jacó ! 
+Eb 
+Ai , ai meu Deus 
+Dm 
+Pense nele só 
+            (Gm) 
+Pense nele só 
+Gm 
+Isso é o que me faz sorrir 
+Eb                    Dm 
+Isso é que ma faz chorar 
+Gm
+
+Isso é o que me faz sorrir 
+Eb                    Dm 
+Isso é que ma faz chorar 
+Gm                Eb   Dm 
+Isso é que faz a vida 
+Gm               Eb   Dm 
+Isso é que faz a vida 
+Gm 
+Isso deu pra mim no tarô  
+Eb                  Dm 
+Isso deu pra mim no tarô 
+Gm                   Eb  Dm 
+Isso deu pra mim no tarô 
+Eb             Eb    Dm 
+Isso deu nos búzios 
+   Gm                      Eb  Dm 
+Que a minha irmã jogou pra mim 
+Gm 
+É o que te faz seguir na vida 
+Eb                       Dm 
+É o que te faz meu bem querer 
+Gm 
+É o que te faz seguir na vida 
+Eb                        Dm 
+É o que te faz meu bem querer 
+Gm           Eb   Dm 
+É a alegria viva 
+Gm              Eb  Dm 
+É a visão de benzer 
+Gm 
+Pra você também 
+Eb          Dm 
+Pra você também 
+Gm           Eb  Dm 
+Pra você também 
+Gm 
+Ah, meu Zumbi ! 
+Ah, meu Jaco ! 
+Eb 
+Ai, ai meu Deus 
+Dm 
+Pense nele só 
+Pense nele só

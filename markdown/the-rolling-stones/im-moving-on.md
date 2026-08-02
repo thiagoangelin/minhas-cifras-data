@@ -1,0 +1,85 @@
+The Rolling Stones - Im Moving On 
+ 
+E 
+ 
+  E 
+I warned you baby from time to time, 
+                    E7 
+you don't listen so pay me no mind  
+      A 
+About movin' on, 
+           E 
+yeah I m a moving on  
+    B7 
+I m through with you,  
+    A 
+too bad you re blue, 
+     E  B7 
+I ll move on  
+ 
+E                  
+Mister Engineer with your throttle in hand,  
+                     E7 
+take me back to that southern land  
+          A 
+It called moving,  
+       E 
+keep a rolling on  
+       B7 
+You re flying too high,  
+    A 
+for my old sky,  
+     E      B7 
+I ll move on  
+ 
+E E7 A E B7 A E  B7 
+ 
+E 
+Mister Fireman please won t you listen to me, 
+                 E7 
+I got a woman in Tennessee  
+        A 
+Keep on moving, 
+       E 
+keep a rolling on  
+       B7 
+You re flying too high,  
+     A 
+it s all over now,  
+  E      B7 
+I move on  
+ 
+              E             A 
+Yes I m gonna move (yes I m moving) 
+          E             A 
+I m gonna move (yes I m moving) 
+ 
+               E             A 
+Said I m gonna move (yes I m moving) 
+         E             A 
+Gotta go home (yes I m moving) 
+           E             A 
+I gotta go home (yes I m moving) 
+           E             A 
+I gotta go home (yes I m moving) 
+ 
+Well tell ya  
+                E              
+I I I I m going home
+
+I I I I m going home  
+ 
+I I I I m going home  
+ 
+              E             A 
+Yes I m gonna move (yes I m moving) 
+          E             A 
+I m gonna move (yes I m moving)   
+               E             A 
+Said I m gonna move (yes I m moving) 
+         E             A 
+Gotta go home (yes I m moving) 
+           E             A 
+I gotta go home (yes I m moving) 
+           E             A 
+I gotta go home (yes I m moving)

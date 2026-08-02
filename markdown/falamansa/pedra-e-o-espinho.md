@@ -1,0 +1,53 @@
+Falamansa - Pedra E O Espinho 
+ 
+[Intro] Em  A  Am  Em  A  Am 
+ 
+Em                       A 
+ Se a tanta pedra nesse teu caminho 
+Em                A 
+ De toda flor vc só deu espinho 
+        Em 
+Dá um chute na pedra arranca o espinho 
+      Am                 D7 
+Dá licença q esse é meu caminho 
+Em                       Am       D7 
+ Mas se quiser pode me acompanhar a a 
+Em          Am       D7          Em 
+ Se vc saiu   nao demore pra voltar 
+                 Am     D7            Em 
+Se não conseguiu   não custa nada tentar 
+            Am           D7            Em 
+Se vc mentiu   nao se esqueça de me avisar 
+             Am        D7              Em     Am 
+Se vc sorriu   peço a Deus pra nao chorar a a a 
+        D7              Em 
+Peço a Deus pra não chorar 
+                  Am          D7             Em  A Am Em A Am 
+Não chora,não chora  peço a deus pra não chorar 
+ 
+Em                       A 
+ Se a tanta pedra nesse teu caminho 
+Em                A 
+ De toda flor vc só deu espinho 
+        Em 
+Dá um chute na pedra arranca o espinho 
+      Am                 D7 
+Dá licença q esse é meu caminho 
+Em                       Am       D7 
+ Mas se quiser pode me acompanhar a a 
+Em          Am       D7          Em 
+ Se vc saiu   nao demore pra voltar 
+                 Am     D7            Em 
+Se não conseguiu   não custa nada tentar 
+            Am           D7            Em 
+Se vc mentiu   nao se esqueça de me avisar 
+             Am        D7              Em     Am 
+Se vc sorriu   peço a Deus pra nao chorar a a a 
+        D7              Em 
+Peço a Deus pra não chorar 
+                  Am          D7             Em  A Am Em A 
+Não chora,não chora  peço a deus pra não chorar 
+                  Em Am 
+Não chora,não chora  
+        D7              Em 
+Peço a Deus pra não chorar

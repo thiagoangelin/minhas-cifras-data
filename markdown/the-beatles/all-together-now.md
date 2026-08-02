@@ -1,0 +1,41 @@
+The Beatles - All Together Now 
+ 
+(intro) G 
+ 
+G                      D7 
+One, two, three, four, can I have a little more? 
+G                               D7          G 
+Five, six, seven, eight, nine, ten, I love you. 
+G           D7 
+A, B, C, D, can I bring a friend to tea? 
+G              D7         G 
+E, F, G, H, I, J, I love you. 
+ 
+G             C                           G 
+Bom, bom, bom, bom-pa-bom, sail the ship, bom-pa-bom, chop 
+ the tree. 
+C                          D7 
+Bom-pa-bom, skip the rope, bom-pa-bom, look at me. 
+ 
+G                                   D7                G 
+All together now, all together now, all together now, all  
+together now...(varias vezes) 
+ 
+G                         D7 
+Black, white, green, red, can I take my friend to bed 
+G                                 D7 
+Pink, brown, yellow, orange and blue, I love you 
+ 
+G                                   D7                G 
+All together now, all together now, all together now, all  
+together now...(varias vezes) 
+ 
+G             C                           G 
+Bom, bom, bom, bom-pa-bom, sail the ship, bom-pa-bom, chop 
+ the tree. 
+C                          D7 
+Bom-pa-bom, skip the rope, bom-pa-bom, look at me. 
+ 
+G                                   D7                G 
+All together now, all together now, all together now, all  
+together now...(até o final)

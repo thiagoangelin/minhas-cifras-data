@@ -1,0 +1,48 @@
+Pato Fu - Licitacao 
+ 
+intro: (E G A G E) 
+ 
+E       
+QUANDO ESSA JOÇA FICAR PRONTA 
+                       G 
+QUERO VER QUEM QUE DÁ CONTA 
+                   F#                            E 
+DE CONTAR COMO SE CONTA O DINHEIRÃO QUE VAI PRO 
+SACO 
+ 
+E 
+ FAZER PIRÂMIDE, JARDIM, NÃO É PROBLEMA 
+BOTA O NOME DO AYRTON SENNA 
+PÕE NA ENTRADA DO BURACO 
+ 
+A 
+VAMOS ERRAR PORTUGUÊS 
+C 
+VAMOS ELEGER UM BUNDÃO 
+A 
+VAMOS VOTAR EM QUEM ROUBOU MAS FEZ 
+C                                      E   G A G E 
+PENA DE MORTE PARA OS LINCHADORES, OU NÃO? 
+ 
+E 
+ JÁ QUE A POLICIA NÃO FAZ NADA 
+                   G 
+O MENININHO DA CALÇADA 
+               F# 
+DE DIA DOU MOEDINHA 
+                    E 
+DE NOITE EU DOU PORRADA 
+ 
+A 
+VAMOS INVENTAR UMA NOVA DANCINHA 
+C 
+SUCATEAR O SAMBA E MALTRATAR O CARNAVAL 
+A 
+VAMOS DAR UM JEITO DE ARRUMAR A VIDA 
+       C                             E    G A G E  
+ENTÃO VAMOS MORRER DE UMA VEZ, TÁ LEGAL? 
+ 
+E    G     A   G     
+COLISEU PENELAQUI ! 
+ 
+final nanana: (E G A G)

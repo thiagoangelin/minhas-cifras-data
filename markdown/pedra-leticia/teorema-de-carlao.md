@@ -1,0 +1,161 @@
+Pedra Leticia - Teorema De Carlao 
+ 
+[Intro] G  D  D9  C 
+        G  D  D9  C  
+ 
+[Primeira Parte] 
+ 
+G    D D9 C 
+Ei, você aí 
+                    G 
+Isso vai mudar sua vida, então 
+ D  D9      C 
+Tente me ouvir 
+G        D    D9   C 
+Eu melhorei pra valer 
+ 
+Com o teorema de Carlão 
+G                D     D9   C 
+  Que eu vou passar para vocês 
+ 
+[Segunda Parte] 
+ 
+Am                    G 
+   São 4 horas da manhã de sexta 
+C           Am         D 
+  Você não tem quem pegar 
+Am                      G             
+   Eu vou te dar uma dica, seu besta 
+C           D 
+  Olhe pra lá 
+ 
+               Em 
+E veja aquela moça 
+              Am 
+Aquela bem baranga 
+              Em 
+Ela diz: "pobrema" 
+ 
+Ela tem bigode 
+                Am 
+E sem falar na pança 
+            D 
+Tente entender 
+ 
+[Terceira Parte] 
+ 
+          G                  D/F#  Em 
+Ela quer ser feliz, co___mo vo____cê 
+                    C 
+Ela também tem coração 
+                D 
+Então faça uma boa ação 
+ 
+[Refrão] 
+ 
+ G           D 
+Pegue uma baranga 
+ C 
+Diga que a ama 
+  G             D    C 
+Chama pra assistir DVD 
+   G             
+Detona a Juliana Paes 
+    C 
+Critica a Aline Morais 
+    G            D      C 
+Declama: "Eu prefiro você" 
+ 
+[Solo] G  D  C
+
+       G  D  C  
+       G  D  C  
+       G  D  C  
+ 
+[Segunda Parte] 
+ 
+Am                       G 
+    E não importa se ela é pesada 
+C             Am      D 
+   Você tem que carregar 
+Am                    G 
+   Até o quarto sobe pela escada 
+C             Am      D 
+  Depois você toma um ar 
+ 
+               Em 
+E veja aquela moça 
+              Am 
+Aquela bem baranga 
+              Em 
+Ela diz: "pobrema" 
+ 
+Ela tem bigode 
+                Am 
+E sem falar na pança 
+            D 
+Tente entender 
+ 
+[Terceira Parte] 
+ 
+          G                  D/F#  Em 
+Ela quer ser feliz, co___mo vo____cê 
+                    C 
+Ela também tem coração 
+                D 
+Então faça uma boa ação 
+ 
+[Refrão] 
+ 
+ G           D 
+Pegue uma baranga 
+ C 
+Diga que a ama 
+  G               D    C 
+Chama pra subir ao altar 
+  G                   
+E olha bem que você faz 
+   C 
+Quando a beija uma vez mais 
+    G            D         C 
+No céu você guardou seu lugar 
+ 
+( G  D  C ) 
+ 
+[Refrão] 
+ 
+ G           D 
+Pegue uma baranga 
+ C 
+Diga que a ama 
+  G             D    C 
+Chama pra assistir DVD 
+   G             
+Detona a Juliana Paes 
+    C 
+Critica a Aline Morais 
+    C            D      C 
+Declama: "Eu prefiro você" 
+ 
+ G           D
+
+Pegue uma baranga 
+ C 
+Diga que a ama 
+  G               D    C 
+Chama pra subir ao altar 
+  G                   
+E olha bem que você faz 
+   C 
+Quando a beija uma vez mais 
+    G           D         C 
+No céu você guardou seu lugar 
+ 
+    G            D         C 
+No céu você guardou seu lugar 
+    G            D         C 
+No céu você guardou seu lugar 
+    G            D         C 
+No céu você guardou seu lugar 
+    G            D         C 
+No céu você guardou seu lugar

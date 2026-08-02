@@ -1,0 +1,111 @@
+Cidade Negra - Free 
+ 
+Intro:F7+  Eb7+ F7+  Eb7+  F7+  Eb7+  F7+  Eb7+ 
+ 
+F7+ 
+Free 
+ 
+Eb7+ 
+Livre é como tem que ser 
+F7+ 
+Free 
+     Eb7+ 
+Liberdade pra dizer 
+F7+ 
+Free 
+Eb7+ 
+Livre é como tem que ser 
+F7+ 
+Free 
+     Eb7+ 
+Liberdade pra dizer 
+ 
+F7+             Eb7+ 
+Como andar, se não estamos livres 
+F7+             Eb7+ 
+Como falar, se não estamos livres 
+Bb7+                 Am7 
+Onde correr, sem nenhum lugar pra ir 
+    F7+                Eb7+ 
+Pessoas que odeiam, o tempo tem passado 
+   F7+               Eb7+ 
+Pessoas que amam, o tempo é agora 
+ 
+F7+ 
+Free 
+Eb7+ 
+Livre é como tem que ser 
+F7+ 
+Free 
+     Eb7+ 
+Liberdade pra dizer 
+F7+ 
+Free 
+Eb7+ 
+Livre é como tem que ser 
+F7+ 
+Free 
+     Eb7+ 
+Liberdade pra dizer 
+ 
+ F7+            Eb7+ 
+Como trocar o errado pelo certo 
+F7+                Eb7+ 
+Sem precisar que o mal esteja perto 
+Bb7+                          Am7 
+Mostre algum respeito aos guerreiros que lutaram 
+  F7+                 Eb7+ 
+O homem na selva para sempre será rei 
+   F7+               Eb7+ 
+E vai transformar, fazer de nós eternamente 
+ 
+F7+ 
+Free 
+Eb7+ 
+Livre é como tem que ser 
+F7+ 
+Free 
+     Eb7+ 
+Liberdade pra dizer
+
+F7+ 
+Free 
+Eb7+ 
+Livre é como tem que ser 
+F7+ 
+Free 
+     Eb7+           Bb7+ Am7 Gm7 Am7 Bb7+ Am7 Gm7 Am7 
+Liberdade pra dizer 
+ 
+Bb7+                       Am7 
+Em alguns países, se as pessoas falam, morrem 
+  Gm7              Am7 
+A regra da terra, homem contra homem 
+ Bb7+                 Am7 
+Crianças perdidas, vendidas nas ruas 
+   Gm7                           Am7 
+Enquanto os homens ricos vendem guerra por paz 
+Gm7 
+Quando isso acaba 
+Am7 
+Eu não sei 
+Gm7                  Am7 
+Espero o tempo certo pra dizer 
+ 
+F7+ 
+Free 
+ 
+Eb7+ 
+Livre é como tem que ser 
+F7+ 
+Free 
+     Eb7+ 
+Liberdade pra dizer 
+F7+ 
+Free 
+Eb7+ 
+Livre é como tem que ser 
+F7+ 
+Free 
+     Eb7+ 
+Liberdade pra dizer...

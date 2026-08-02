@@ -1,0 +1,84 @@
+Fresno - A Sinfonia Que Tudo Ha 
+ 
+E  Am  F  E 
+E  Am  F  E 
+ 
+[Verse] 
+ 
+E                         Am 
+Acordei ouvindo o pôr do sol 
+   D                         E 
+E cada nota guia um passo que eu dou no ar 
+E                    Am 
+Eu vivi tantos dias em desarmonia 
+        F                  E 
+Com a sinfonia de tudo que há 
+ 
+[Chorus] 
+ 
+      D                  A 
+A história não dirá, mas prevalecerá 
+Am            B           E 
+Das verdades, a minha versão 
+    D                   A 
+As vidas vêm e vão, e ecoam na constelação 
+    Am          B 
+O acorde que faltava na canção 
+ 
+[Intro] 
+ 
+E  Am  F  E 
+E  Am  F  E 
+ 
+[Verse 2] 
+                           Am 
+Tão longe de casa, um novo sol 
+    D                       E 
+Na mala as memórias de uma vida que não volta mais 
+   E                   Am 
+Flutuo livremente com a força da mente 
+       F                       E 
+Pro encontro derradeiro com a paz 
+ 
+[Chorus] 
+      D                    A 
+A história não dirá, mas prevalecerá 
+Am            B           E 
+Das verdades, a minha versão 
+    D                   A 
+As vidas vêm e vão, e ecoam na constelação 
+    Am           B 
+O acorde que faltava na canção 
+ 
+[Outro] 
+ 
+C#m  A  B  G#m 
+C#m  A  B  G#m 
+ 
+ C#m         A   E 
+Eu não posso ir 
+        G#m                C#m 
+Será o fim se você ficar aqui 
+           A              E 
+Mandem alguém no meu lugar 
+        G#m 
+Mas sem você um amanhã não haverá 
+ 
+     A            F#m                    E 
+E o que fazer se a missão que o destino deu 
+   B
+
+É bem maior que eu? 
+     A 
+Eu sinto que não sou capaz 
+     F#m                        E    B 
+Mas já não posso mais olhar pra trás 
+ 
+    A F#m         E   B 
+A salvação é uma canção 
+    A F#m          E    B 
+A imensidão nas minhas mãos 
+    A F#m         E   B 
+A salvação é uma canção 
+    A F#m          E    B 
+A imensidão nas minhas mãos

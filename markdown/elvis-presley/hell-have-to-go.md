@@ -1,0 +1,25 @@
+Elvis Presley - Hell Have To Go 
+ 
+D                              G             D 
+Put your sweet lips a little closer to the phone  
+           D7                          A 
+Let's pretend that we're together all alone  
+                D               D7               G 
+I'll tell the man to turn the jukebox way down low  
+           D                        A                    D 
+And you can tell your friend there with you he'll have to go  
+ 
+          G 
+You can't say the words I want to hear  
+            D 
+While you're with another man  
+        G 
+Do you want me answer yes or no  
+        D               A 
+Darling I will understand 
+Whisper to me tell me do you love me true  
+Or is he holding you the way I do  
+Tho love is blind make up your mind I've got to know 
+Should I hang up or will you tell him he'll have to gol ead 
+'ll tell the man to turn the jukebox way down low  
+And you can tell your friend there with you he'll have to go

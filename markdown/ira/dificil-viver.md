@@ -1,0 +1,60 @@
+Ira - Dificil Viver 
+ 
+Intro: A 
+ 
+ A                          F 
+Se é fácil acordar vendo o espelho envelhecer 
+A                           F 
+Ver o tempo passar sempre a cada amanhecer 
+Dm 
+Se é fácil só se torturar 
+Deitar e se esquecer 
+A                      F 
+É simples lamentar uma vida sem prazer 
+A                               F 
+Aos poucos se matar pois não pediu para nascer 
+Dm 
+Se é fácil suportar a dor 
+Em 
+Fazendo alguém sofrer... 
+A 
+Difícil é viver 
+A                         F 
+Se é fácil enganar e ninguém jamais saber 
+A                    F 
+Se enganar dizendo está tudo bem 
+Dm 
+Se é fácil então roubar 
+Fugir e se esconder 
+A                        F 
+É simples camuflar sentimentos que se tem 
+A                        F 
+Nunca se encontrar e perder de novo o trem 
+Dm 
+É fácil encontrar o amor 
+Em 
+Por ele se perder... 
+A 
+Difícil é viver  
+ 
+*(A  B C)  C F E 
+ 
+A                         F 
+Se é fácil enganar e ninguém jamais saber 
+A                    F 
+Se enganar dizendo está tudo bem 
+Dm 
+Se é fácil então roubar 
+Fugir e se esconder 
+A                        F 
+É simples camuflar sentimentos que se tem 
+A                        F 
+Nunca se encontrar e perder de novo o trem 
+Dm 
+É fácil encontrar o amor 
+Em 
+Por ele se perder... 
+A 
+Difícil é viver  
+ 
+*(A  B C)  C F E   A

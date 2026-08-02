@@ -1,0 +1,69 @@
+Pearl Jam - Sleeping By Myself 
+ 
+Intro: G  Em  Bm 
+ 
+G             Em                      Bm 
+I should have known there was someone else 
+G        Em         Bm 
+Down below I always kept it to myself 
+    C 
+Now I believe in nothing 
+D             Bm                   E 
+Not today as I move myself out of your sight 
+Am                D 
+I'll be sleeping by myself tonight 
+ 
+Repete a introdução 
+ 
+G             Em           Bm 
+I could never go to no one else 
+G             Em                  Bm 
+The hurt don't show but who knows, time will tell 
+C 
+I believe in nothing 
+D                   Bm                      E 
+But the pain that I can't see this turning out right 
+   Am                 D           G 
+Oh, I'll be sleeping by myself tonight 
+ 
+G                     G7 
+Forever be sad and lonely 
+B                    C 
+Forever never be the same 
+                        A 
+Well I close my eyes and wait for a sign 
+D 
+Am I just waiting in vain? 
+ 
+Solo: (G  Bm  C  D) 
+ 
+C                          A 
+Well, I close my eyes and wait for a sign 
+D 
+Am I just waiting in vain? 
+ 
+      G           Em        Bm 
+Wooah I believe in love and disaster 
+G              Em              Bm 
+Sometimes the two are just the same 
+C                    D 
+I'm beginning to see what's left of me 
+Bm                          E 
+Is gonna have to be free to survive 
+ 
+   Am                 D 
+Oh, I'll be sleeping by myself tonight 
+ 
+Solo: (G  Bm  C  D) 
+ 
+C 
+I believe in nothing 
+D                      Bm                   E 
+But the pain that I can't see this turning out right 
+ 
+    Am                 D 
+Oh, I'll be sleeping by myself 
+Am                D 
+I'll be sleeping by myself 
+Am    Am/B   Am/D  Am/G   D     G 
+I'll be sleeping by myself tonight

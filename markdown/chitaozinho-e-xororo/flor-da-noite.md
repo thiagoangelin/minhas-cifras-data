@@ -1,0 +1,51 @@
+Chitaozinho E Xororo - Flor Da Noite 
+ 
+D 
+No mercado do amor 
+A7           D 
+Ela é a preferida 
+A7            D 
+Ela é a flor da noite 
+A7             D 
+A vida da minha vida 
+ 
+D 
+No mercado do amor 
+A7           D 
+Ela é a preferida 
+A7            D 
+Ela é a flor da noite 
+A7             D 
+A vida da minha vida 
+ 
+Refrão: 
+A7               D 
+O espinho dessa flor 
+ A7             D 
+Já me feriu o peito 
+G               D 
+Mas eu sou gamado nela 
+A7               D 
+De um tanto que não tem jeito 
+G                  D 
+Mas eu sou gamado nela 
+A7                     D 
+De um tanto que não tem jeito 
+ 
+D 
+Vai o dia e vem a noite 
+A7                 D 
+Pensando nela adormeço 
+A7                  D 
+Já me apareceram outras 
+A7                  D 
+Mas daquela não esqueço 
+ 
+D 
+Vai o dia e vem a noite 
+A7                 D 
+Pensando nela adormeço 
+A7                  D 
+Já me apareceram outras 
+A7                  D 
+Mas daquela não esqueço

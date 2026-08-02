@@ -1,0 +1,44 @@
+Arlindo Cruz - Pagode Na Disney 
+ 
+Intro: A  F#7  Bm  E7/9  A  F#7  Bm  E7/9  A  
+ 
+   F#7             Bm 
+Rolou um pagode na Disney 
+            E7/9                   A 
+Foi super maneiro o que rolou por lá 
+        F#7             Bm 
+O Zé Carioca tocava pandeiro 
+            E7/9             A 
+Era o partideiro, queria versar 
+   F#7              Bm 
+O Mickey tocava guitarra 
+          E7/9              A 
+E o Pato Donald o seu cavaquinho 
+             F#7               Bm 
+A galera chegando o batuque rolando 
+          E7/9      A 
+Geral sacudindo miudinho...(era um tal!) 
+       F#7                Bm 
+Era um tal de Oh! Yes pra cá                
+     E7/9                   A 
+E um tal de Oh! my god pra lá               
+               F#7               Bm          
+Todo mundo que foi ao pagode da Disney      
+      E7/9             A 
+Cantou e sambou sem parar...(era um tal!)   
+           F#7              Bm 
+Chegou o Pateta todo estabanado 
+          E7/9               A 
+E o Tio Patinhas com sua cartola 
+  F#7                  Bm 
+Huguinho, Zezinho e Luizinho 
+        E7/9            A 
+Tocando cuíca, tantã e viola 
+    F#7         Bm 
+O João Bafo de Onça 
+             Dm6                   A 
+Tocando seu banjo e não foi brincadeira 
+            F#7                Bm 
+O primo Gastão veio de mestre-sala 
+         E7/9               A 
+E a Margarida de porta-bandeira....(era um tal!)..

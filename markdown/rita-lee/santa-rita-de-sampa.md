@@ -1,0 +1,67 @@
+Rita Lee - Santa Rita De Sampa 
+ 
+INTRODUÇÃO: ( Gm C7 ) C#7 C7 
+Gm   C7       Gm       C7        Gm          C7    C#7       C7 
+DEFENSORA DOS FRASCOS E COMPRIMIDOS. DE NÓS 
+MALUCOS, SOIS A BELEZA. 
+Gm    C7      Gm         C7     Gm    C7   C#7   C7 
+PROTETORA DOS ANIMAIS ABATIDOS. PRATO CHEIO DE 
+SOBREMESA. 
+(Gm C7) C#7 C7 
+YEAH YEAH YEAH YEAH YEAH UU UU YEAH YEAH YEAH 
+YEAH UU UU 
+Gm  C7       Gm      C7  Gm      C7   C#7   C7 
+DEOLINDA DOS SEM RAINHA. DEUSA PAGÃ DO BUTANTÃ. 
+Gm    C7       Gm         C7    Gm   C7       C#7     C7 
+HEAVY PETAL DE SANTA IZILDINHA. JOANA DARK DO 
+LEXOTAN. 
+(Gm C7) C#7 C7 
+YEAH YEAH YEAH YEAH YEAH UU UU YEAH YEAH YEAH 
+YEAH UU UU 
+C7                  C# C7 
+BENDITA RITA DA LUA CHEIA. ROGAI POR MIM NESSE 
+COMEÇO DE FIM. 
+C7                     C# C7   C7                  Gm   C7 
+O ESPINHO NOSSO DE CADA TESTA. MILAGROSA SEJA 
+VOSSA FESTA. 
+ D7                            F7                 (Gm C7) C#7 
+SOIS O LAZER DE QUEM TRAMPA. BENDITA SANTA RITA DE 
+SAMPA.AAA... 
+C7             (Gm C7)             C#7 C7 
+SANTA RITA DE SAMPA, OOO. SANTA RITA 
+ 
+Gm     C7    Gm      C7   Gm      C7        C#7       C7 
+DESVAIRADA DA PAULICÉIA. VIRGEM E MÁRTIR DE TODA A 
+GENTALHA. 
+Gm      C7     Gm   C7  Gm         C7     C#7    C7 
+MÃE MENININHA DA POMPÉIA.FOGO DE CAMILE PASPAGLIA. 
+(Gm C7) C#7 C7 
+YEAH YEAH YEAH YEAH YEAH UU UU YEAH YEAH YEAH 
+YEAH UU UU 
+Gm    C7   Gm        C7 Gm     C7    C#7   C7 
+MARGINAL DE VILA MARIANA.TIA TIETE DO TIETÊ. 
+Gm   C7     Gm     C7  Gm    C7        C#7  C7 
+SOFREDORA CORINTHIANA. PADROEIRA DE SÃO GERERÊ 
+(Gm C7) C#7 C7 
+YEAH YEAH YEAH YEAH YEAH UU UU YEAH YEAH YEAH 
+YEAH UU UU. 
+C7                  C# C7 
+BENDITA RITA DA LUA CHEIA, ROGAI POR MIM NESSE 
+COMEÇO DE FIM. 
+C7                     C#7 C7                       Gm     C7 
+O ESPINHO NOSSO DE CADA TESTA, MILAGROSA SEJA A 
+VOSSA FESTA. 
+D7                             F7                (Gm C7 ) C#7 
+SOIS O LAZER DE QUEM TRAMPA, BENDITA SANTA RITA DE 
+SAMPA...AAA... 
+      C7        (Gm  C7)             C#7  C7    (Gm C7) 
+SANTA RITA DE SAMPA, OOO. SANTA RITA DE SAMPA...RITA 
+RITA, RITA, RITA. 
+(Gm C7) C#7 C7 
+YEHA YEAH YEAH YEAH YEAH UU UU YEAH YEAH YEAH 
+YEAH UU UU 
+              (Gm C7)                           C#7    C7 
+SANTA RITA DE SAMPA, OOO...OOO...SANTA RITA DE 
+SAMPA, YEAH. 
+(Gm C7) C#7 C7 
+RITA, RITA, RITA, RITA, RITA, UU UU...

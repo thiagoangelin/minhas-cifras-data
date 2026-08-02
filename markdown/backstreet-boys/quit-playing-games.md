@@ -1,0 +1,60 @@
+Backstreet Boys - Quit Playing Games 
+ 
+# 
+ 
+Date: Sun, 07 Dec 1997 20:06:06 +0800 
+From: Joel  
+To: * 
+ 
+Lyrics: 
+Even in my heart I see 
+You're not bein' true to me 
+Deep within my soul I feel 
+Nothing's like it used to be 
+Sometimes I wish I could turn back time 
+Impossible as it may seem 
+But I wish I could so bad baby 
+Quit playin' games with my heart 
+ 
+(Chorus) 
+Quit playin' games with my heart 
+Before you tear us apart 
+I should've known from the start 
+Before you got in my heart  
+ 
+I live my life the way 
+To keep you comin' back to me 
+Everything I do is for you 
+So what is it that you can't see 
+Sometimes I wish I could 
+Turn back time, impossible as it may seem 
+But I wish I could so bad 
+You better quit playin' games with my heart 
+ 
+Chorus 
+ 
+Quit playin' games 
+Baby, baby the love that we had was so strong 
+Don't leave me hangin' here forever 
+Oh baby, baby this is not a lie, let's stop 
+This tonight 
+ 
+Baby, quit playin' games 
+Sometimes I wish I could 
+Turn back time, impossible as it may seem 
+But I wish I could so bad, baby 
+Quit playin' games with my heart 
+ 
+Chorus 
+ 
+Transcribed by Joel  
+ 
+Key: 
+/ -slide up 
+\ -slide down 
+h - hammer on 
+p -pull off 
+x -muted string 
+p.m. -palm mute 
+ 
+Questions, comments? send them to *

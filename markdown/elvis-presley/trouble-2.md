@@ -1,0 +1,58 @@
+Elvis Presley - Trouble 
+ 
+                              C 
+If you're looking for trouble 
+ 
+You came to the right place 
+ 
+If you're looking for trouble 
+ 
+Just look right in my face 
+ 
+I was born standing up 
+ 
+And talking back 
+                                        C7 
+My daddy was a green-eyed mountain jack 
+               F                           C 
+Because I'm evil, my middle name is misery 
+            G7                         F        C 
+Well I'm evil, so don't you mess around with me 
+ 
+I've never looked for trouble 
+ 
+But I've never ran 
+ 
+I don't take no orders 
+ 
+From no kind of man 
+ 
+I'm only made out 
+ 
+Of flesh, blood and bone 
+ 
+But if you're gonna start a rumble 
+                C7 
+Don't you try it on alone 
+               F                           C 
+Because I'm evil, my middle name is misery 
+ 
+                         G7                     C 
+Well I'm evil, so don't you mess around with me 
+ 
+I'm evil, evil, evil, as can be 
+ 
+I'm evil, evil, evil, as can be 
+      G7                                                         C 
+So don't mess around don't mess around don't mess around with 
+me 
+ 
+I'm evil, I'm evil, evil, evil 
+      G7                                 C 
+So don't mess around, don't mess around with me 
+ 
+I'm evil, I tell you I'm evil 
+       G7                    C 
+So don't mess around with me 
+ 
+Yeah

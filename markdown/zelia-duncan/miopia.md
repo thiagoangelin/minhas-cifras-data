@@ -1,0 +1,48 @@
+Zelia Duncan - Miopia 
+ 
+Intro: Bm7 G7 Bm7 G7 
+ 
+Bm7 
+Da janela 
+                 G7 
+Vi você indo embora 
+     Bm7 
+Naquele 
+          G7 
+Elefante branco 
+Bm5+/9 
+Ele brilhava seu marfim 
+     G/D# 
+Enquanto 
+G/D            F#/C#   Bm7 
+Te levava pra longe de mim 
+Bm7 
+Enquanto minha 
+            G7 
+Miopia me traia 
+    Bm7 
+Não pude saber se você 
+            G7 
+Olhou pra trás 
+G#m5-/7               G7 
+E me pegou não escondida 
+     F#7 
+Na enorme bandeira estendida 
+Bm7 
+Por meus olhos apertados 
+G7 
+Só pra te ver deslumbrante 
+Bm7 
+Indo embora 
+             G7 
+Naquele elefante 
+  G#m5-/7 
+E sabe 
+            G7 
+Que até admito 
+F#7 
+Era tudo tão bonito 
+              Bm7 
+Mas tão bonito 
+ 
+Bm5+/9: 020002

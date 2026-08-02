@@ -1,0 +1,30 @@
+Bob Dylan - Too Much Of Nothing 
+ 
+B 
+Intro  
+F#   
+Too much of nothing 
+           E          B 
+Can make a man ill at ease 
+F# 
+One man's temper might rise 
+      E                          B 
+While another man's temper might freeze 
+       F#     G 
+In the day of confession 
+   G#            A 
+We cannot mock a soul 
+                A#          B 
+Oh when there's too much of nothing 
+C          C# 
+No one has control 
+ 
+CHORUS: 
+ E 
+Say hello to Valerie 
+ B 
+Say hello to Vivian 
+ E 
+Give her all my salary 
+       D      E   A    B 
+On the waters of oblivion

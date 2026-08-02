@@ -1,0 +1,102 @@
+Los Hermanos - Anna Julia 
+ 
+[Intro] E  C#m  E  C#m 
+ 
+[Primeira Parte] 
+ 
+  E             C#m           G#m 
+Quem te ver passar assim por mim  
+     A         B     E 
+Não sabe o que é sofrer 
+         C#m        G#m 
+Ter que ver você assim 
+ A          B 
+Sempre tão linda 
+ E            C#m          G#m  
+Contemplar o sol do teu olhar  
+    A     B    E 
+Perder você no ar 
+       C#m         G#m   
+Na certeza de um amor   
+ 
+[Pré-Refrão] 
+ 
+ A    B      C#m 
+Me achar um nada 
+                    G#m   
+Pois sem ter teu carinho  
+               A 
+Eu me sinto sozinho 
+                B 
+Eu me afogo em solidão 
+ 
+[Refrão] 
+ 
+        E  A  B 
+Ô Anna Julia 
+        E  A  B 
+Ô Anna Julia 
+ 
+[Segunda Parte] 
+ 
+ E           C#m       G#m  
+Nunca acreditei na ilusão  
+    A     B      E 
+De ter você pra mim 
+        C#m          G#m    A        B 
+Me atormenta a previsão do nosso destino 
+E              C#m          G#m 
+Eu passando o dia a te esperar 
+   A      B    E 
+Você sem me notar 
+        C#m        G#m        
+Quando tudo tiver fim 
+ 
+[Pré-Refrão] 
+ 
+   A        B    
+Você vai estar  
+        C#m 
+Com um cara 
+                 G#m  
+Um alguém sem carinho  
+                  A 
+Será sempre um espinho 
+               B 
+Dentro do meu coração 
+ 
+[Refrão]
+
+        E  A  B 
+Ô Anna Julia 
+        E  A  B 
+Ô Anna Julia 
+ 
+[Solo] E  A  B  E  A  B 
+       E  A  B  E  A  B  
+       C#m  G#m  A  E  
+       C#m  G#m  A  B 
+ 
+ C#m       G#m        A          E 
+Sei que você já não quer o meu amor 
+ C#m       G#m       A        E 
+Sei que você já não gosta de mim 
+    C#m            G#  
+Eu sei que eu não sou  
+        A            E 
+Quem você sempre sonhou 
+     C#m          G# 
+Mas vou reconquistar  
+        A            B 
+O seu amor todo pra mim 
+ 
+[Refrão] 
+ 
+        E  A  B 
+Ô Anna Julia 
+        E  A  B 
+Ô Anna Julia 
+        E  A  B 
+Ô Anna Julia 
+        E      A      B             E 
+Ô Anna Julia, Julia, Julia... ou ou ou

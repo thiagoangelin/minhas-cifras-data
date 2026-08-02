@@ -1,0 +1,50 @@
+Os Paralamas Do Sucesso - Soledad Cidadao 
+ 
+( Herbert Vianna / Pedro Luís ) 
+[Música incidental: Me llama la calle] 
+ 
+[Intro:] Em 
+ 
+            B7/D#              Em 
+A minha plenitude anda pela metade 
+           B7/D#            Am7             C7M           Em 
+Eu ando solitário pela madrugada da cidade, nada na cidade 
+                 B7/D#                 Em 
+Se uma paixão me ilude, eu tento ver além 
+                B7/D#            Am7                C7M 
+Sempre fiz o que pude para não fazer mal pra ninguém 
+ 
+     G      Am7 
+Soledad Cidadão 
+    Bm7       Am7 
+Solidão la ciudad 
+     G      Am7 
+Soledad Cidadão 
+    Bm7       Am7 
+Solidão la ciudad 
+ 
+Eu sinto que o futuro é uma imensidão 
+Sem contenção nem muro para limitar nossa paixão 
+Se essa paixão me ilude, eu tento ver além 
+Sempre fiz o que pude para não fazer mal pra ninguém 
+ 
+Em 
+Me llaman calle la revoltosa 
+Me llaman calle bala perdida 
+Me llaman calle calle de noche 
+Meu subo a tu coche 
+ 
+Me llaman siempre y a qualquier hora 
+Me llaman puta siempre a deshora 
+Me llaman calle y eses es mi orgullo 
+Yo se que un dia llegara 
+ 
+Me llaman calle de eskina a eskina 
+Me llaman calle siempre atrevida 
+Me llaman calle bala perdida 
+Asi me disparo la vida 
+ 
+Me llaman calle del desengaño 
+Calle fracaso, calle perdida 
+Me llaman calle la sin futuro 
+La que mujeres de la vida

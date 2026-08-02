@@ -1,0 +1,48 @@
+Ira - Nada Alem 
+ 
+Intro: (C  G  F  C) 
+ 
+C                      F      G 
+É a tua cabeça que te deixa só 
+C                      F      G 
+O pensamento é que te dá um nó 
+C                    F       G 
+Dentro de ti é tudo tão selvagem 
+C                  F           G 
+E é você que adia sempre a viagem 
+C      F     G 
+Nada existe ai 
+C        F    G 
+Nada vai impedir 
+C        F        G 
+Nada, em todo lugar 
+C          F    G 
+Nada sem se afogar 
+C          F    G 
+Nada sem se apegar 
+C        F           C 
+Nada pro tempo é demais! 
+C                     F      G 
+É nos teus pés que você tropeça 
+C                      F         G 
+E as tuas mãos te atrapalham a beça 
+C                            F     G 
+Os teus dois olhos sempre a procurar 
+C                        F         G 
+Só que pensar é estar doente dos olhos 
+C      F     G 
+Nada existe ai 
+C        F    G 
+Nada vai impedir 
+C        F        G 
+Nada, em todo lugar 
+C          F    G 
+Nada sem se afogar 
+C          F    G 
+Nada sem se apegar 
+C        F           C 
+Nada pro tempo é demais! 
+C     Am 
+Nada, nada 
+      G 
+Nada além

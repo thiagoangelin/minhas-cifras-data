@@ -1,0 +1,39 @@
+Maria Bethania - Fala Baixinho 
+ 
+Introdução: Ddim  A  Cdim  G  G7  C  F#7  Bm  G/B  Bm6  Bm6 
+ 
+G                    F#7       F 
+Fala baixinho só pra eu ouvir 
+                         E7 
+Porque ninguém vai mesmo compreender 
+Am              G         E7 
+Que o nosso amor é bem maior 
+A7                       D7 
+Que tudo aquilo que eles sentem 
+G                        F#7 
+Eu acho até que eles nem sentem, não 
+F                      E7 
+Espalham coisas só pra disfarçar 
+Am        G         E7 
+Daí então porque se dar 
+Am             D7          G   B7 
+Ouvidos a quem nem sabe gostar 
+ 
+Em                Am 
+Olha só, meu bem, quando estamos sós 
+B7                         Em 
+O mundo até parece que foi feito pra nós dois 
+Em         C#m7(b5)  Bm 
+Tanto amor assim que é melhor guardar 
+F#7                   B7            Am 
+Pois que os invejosos vão querer roubar 
+Em            Am 
+A sinceridade é que vale mais 
+B7                    E7 
+Pode a humanidade se roer de desamor 
+Am6 
+Vamos só nós dois 
+Em 
+Sem olhar pra trás 
+F                B7           Em 
+Sem termos que ligar pra mais ninguém

@@ -1,0 +1,37 @@
+Pitty - Ando Meio Desligado 
+ 
+(intro 4x) Cm F  
+ 
+Cm                  Eb               Bb             Cm 
+Ando meio desligado, eu nem sinto, meus pés no chão. 
+                     Eb                 Bb         Cm 
+Olho e não vejo nada, eu só penso, se você me quer. 
+                  Bb                 Cm                     Bb 
+Eu nem vejo a hora de lhe dizer, aquilo tudo que eu decorei. 
+                                      Cm 
+E depois do beijo que eu já sonhei, você vai sentir, mas 
+ 
+        Ab     Bb         Cm 
+Por favor, não leve a mal. 
+          Ab    Bb             Cm 
+Eu só quero que você me queira. 
+ 
+Não leve a mal, não leve a mal. 
+ 
+Cm                   Eb               Bb            Cm 
+Ando meio desligado, eu nem sinto, meus pés no chão. 
+                      Eb                Bb         Cm 
+Olho e não vejo nada, eu só penso, se você me quer. 
+                   Bb                 Cm                    Bb 
+Eu não vejo a hora de lhe dizer, aquilo tudo que eu decorei. 
+                                    Cm 
+E depois do beijo que eu já sonhei, você vai sentir, mas.. 
+ 
+        Ab     Bb         Cm 
+Por favor, não leve a mal. 
+           Ab   Bb             Cm 
+Eu só quero que você me queira. 
+ 
+Não leve a mal, não leve a mal. 
+            Ab  Bb                Cm 
+Eu só quero que você me queira....

@@ -1,0 +1,45 @@
+Pedra Leticia - Unidunite 
+ 
+Dm  
+Eu quis saber da minha estrela-guia 
+Bb         A7                  Dm 
+Onde andaria meu sonho encantado 
+Fada madrinha, vara de condão 
+Bb             A7               Dm C7 
+Esse meu coração sonhando acordado 
+F  
+Vai nos levar pra um mundo de magia 
+             C7                  F A7 
+Onde a fantasia vai entrar na dança 
+Dm  
+E quando o brilho do amor chegar 
+                 Bb 
+Eu quero é mais brincar 
+A7                Dm C7 
+Melhor é ser criança 
+ 
+Refrão 
+F                              C7 
+Uni, Duni, Duni, Tê, Ô Ô Ô Ô, Salamê Minguê Ô Ô Ô Ô 
+Dm 
+Um Sorvete Colorê 
+        Gm                   C7 
+Sonho Encantado Onde Está Você 
+ 
+Dm 
+A Carruagem Vai Seguir Viagem 
+Bb               A7                  Dm 
+E O Trem Da Alegria Vai Pedir Passagem 
+Na Direção Do Amor Que Eu Preciso  
+Bb           A7            Dm C7 
+Do Meu Paraíso, Doce Paisagem 
+F  
+Vai Nos Levar Pra Um Mundo De Magia 
+              C7                 F A7 
+Onde A Fantasia Vai Entrar Na Dança 
+Dm  
+E Quando O Brilho Do Amor Chegar 
+Bb  
+Eu Quero É Mais Brincar 
+A7                Dm C7 
+Melhor É Ser Criança

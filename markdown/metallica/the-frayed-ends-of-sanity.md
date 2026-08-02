@@ -1,0 +1,99 @@
+Metallica - The Frayed Ends Of Sanity 
+ 
+ 
+                            OH  EE OH        EE    OH 
+ 
+  Then 
+ 
+Verses Riff1 
+ 
+   NEVER HUNGER NEVER PROSPER I HAVE FALLEN PREY  
+TO   
+FAILURE_______ 
+ 
+  STRUGGLE WITHIN TRIGGERED AGAIN NOW THE CANDLE 
+BURNS AT  
+BOTH ENDS 
+ 
+  TWISTING TURNING UNDER SCHIZOPHRENIA 
+ 
+  FALLING DEEP INTO DEMENTIA 
+ 
+  OLD HAB  -  ITS   RE - AP  -  PEAR_                   
+FIGHT - ING  THE  FEAR 
+ 
+   OF FEAR                      GROW -  ING_  
+CON-SPIR-A-CY___    EV'- RY - 
+ 
+  ONES  AF - TER ME      FRAYED ENDS OF SAN-I -  TY  HEAR  
+THEM CALL-ING 
+ 
+           HEAR THEM CALL-ING 
+ 
+  ME 
+ 
+   BIRTH OF TERROR DEATH OF MUCH MORE I'M THE SLAVE 
+OF  
+FEAR,MY CAPTOR 
+ 
+  NEVER WARNINGS SPREADING ITS WINGS AS I WAIT FOR 
+THE  
+HORROR SHE BRINGS 
+ 
+  LOSS OF INTEREST,QUESTION,WONDER 
+ 
+ WAVES OF FEAR THE PULL ME UNDER 
+ 
+  OLD HAB  -  ITS   RE - AP  -  PEAR_                   
+FIGHT - ING  THE  FEAR 
+ 
+   OF FEAR                      GROW -  ING_  
+CON-SPIR-A-CY___    EV'- RY - 
+ 
+  ONES  AF - TER ME      FRAYED ENDS OF SAN-I -  TY  HEAR  
+THEM CALL-ING 
+ 
+           HEAR THEM CALL-ING 
+ 
+  ME 
+ 
+  LEAD GUITAR PLAYS SOLO, RHYTHM PLAYS THE RHYTHM  
+(UNDERNEATH) 
+ 
+   RYHTHM PLAYED DURING SOLO 
+ 
+                    END OF RHYTHM 
+  PM......|       PM......| 
+ 
+    INTO RUIN I AM SINKING    HOSTAGE  OF  THIS   
+NAMELESS
+
+   FEELING 
+ 
+    HELL IS SET FREE, FLOODED I'LL BE FELL THE 
+UNDERTOW  
+INSIDE ME 
+ 
+  HEIGHT,HELL,TIME,HASTE,TERROR,TENSION 
+ 
+ LIFE,DEATH,WANT,WASTE,MASS DEPRESION 
+ 
+  OLD HAB  -  ITS   RE - AP  -  PEAR_                   
+FIGHT - ING  THE  FEAR 
+ 
+   OF FEAR                      GROW -  ING_  
+CON-SPIR-A-CY___    MY -SELF 
+ 
+  IS    AF - TER ME      FRAYED ENDS OF SAN-I -  TY  HEAR  
+THEM CALL-ING 
+ 
+           HEAR THEM CALL-ING 
+ 
+  ME 
+ 
+  FRAYED ENDS OF SANITY_____ HEAR THEM 
+CALLING,FRAYED ENDS 
+ OF SANITY,HEAR THEM CALLING 
+ 
+           HEAR THEM 
+           CALLING ME

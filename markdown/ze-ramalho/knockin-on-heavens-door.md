@@ -1,0 +1,43 @@
+Ze Ramalho - Knockin On Heavens Door 
+ 
+Intro: G D Am C (4X) 
+ 
+G              D               Am 
+Mama, take this badge off of me 
+G          D          C 
+I can't use it anymore. 
+G                D                       Am 
+It's gettin' dark, too dark for me to see 
+G              D                         C 
+I feel like I'm knockin' on heaven's door. 
+ 
+G                   D              Am 
+Knock, knock, knockin' on heaven's door 
+G                   D              C 
+Knock, knock, knockin' on heaven's door 
+G                   D              Am 
+Knock, knock, knockin' on heaven's door 
+G                   D              C 
+Knock, knock, knockin' on heaven's door 
+ 
+G               D              Am 
+Mama, put my guns in the ground 
+G               D        C 
+I can't shoot them anymore. 
+G               D              Am 
+That long black cloud is comin' down 
+G               D                       C 
+I feel like I'm knockin' on heaven's door. 
+ 
+G                   D              Am 
+Knock, knock, knockin' on heaven's door 
+G                   D              C 
+Knock, knock, knockin' on heaven's door 
+G                   D              Am 
+Knock, knock, knockin' on heaven's door 
+G                   D              C 
+Knock, knock, knockin' on heaven's door 
+G                   D              Am 
+Knock, knock, knockin' on heaven's door 
+G                   D              C 
+Knock, knock, knockin' on heaven's door

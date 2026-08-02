@@ -1,0 +1,54 @@
+Cazuza - Narciso 
+ 
+  A           D        
+Você que se cuide e  
+  G                        C 
+pare de me dar respostas prontas 
+  G              C            G               C 
+Que você tem problemas eu sei são coisas da idade 
+G             D    A  
+São coisas da idade  
+D                       A 
+Por isso é que você me imita 
+G                    C 
+desliga a razão da tomada  
+G                     D                  A       
+Desfila por toda a cidade antecipando o fim 
+Bm                    D                     
+Quem vc quer não diz nada   
+Bm         A                     G    
+vara a madrugada procurando por mim 
+ 
+Bm         A          Bm             G 
+Eu tenho que vc precisa e mais um pouco 
+Bm         A                  G 
+Nós somos iguais na alma e no corpo 
+ 
+D         Bm        G        
+Vc que se cuide e pare  
+                C    
+de sair pela tangente 
+G                C  
+As drogas e os assuntos  
+          G 
+acabam sempre nesse frente a frente 
+             D 
+Agora me enfrente 
+Bm                    D     Bm 
+Como uma imagem no espelho nem um bicho  
+      A                G 
+ou planta pode ousar assim 
+Bm                 D  Bm  
+A verdade nua em pêlo todo humano  
+   A                 G 
+é santo e pode amar sim! 
+ 
+Bm         A          Bm             G 
+Eu tenho que vc precisa e mais um pouco 
+Bm         A                  G 
+Nós somos iguais na alma e no corpo 
+ 
+Bm         A          Bm             G 
+Eu tenho que vc precisa e mais um pouco 
+Bm         A                  G 
+Nós somos iguais na alma e no corpo

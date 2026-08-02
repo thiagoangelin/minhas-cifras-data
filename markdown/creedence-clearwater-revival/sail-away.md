@@ -1,0 +1,45 @@
+Creedence Clearwater Revival - Sail Away 
+ 
+Intro: F 
+ 
+F 
+Lock the door, sun's a fallin'. 
+F                            C 
+Poke the fire, don't let the cold in. 
+C                               F 
+Gonna try to sail away from the rest of my life. 
+ 
+F 
+Found a boat to make the break in. 
+F                                   C 
+Filled with hope 'bout the step I'm takin'. 
+C                               F 
+Gonna try to sail away from the rest of my life. 
+ 
+C                 Dm               Bb             F 
+Spent a long time list'ning to the captain of the sea, 
+C               Dm              Bb            C 
+Shoutin' orders to his crew; No one hears but me. 
+ 
+F 
+Cast away, tide's a runnin' 
+F                             C 
+Hoist the sail, strong wind's comin'. 
+C                               F 
+Gonna try to sail away from the rest of my life. 
+ 
+acordes: F C F 
+ 
+C                 Dm               Bb             F 
+Spent a long time list'ning to the captain of the sea, 
+C               Dm              Bb            C 
+Shoutin' orders to his crew; No one hears but me. 
+ 
+F 
+Lock the door, sun's a fallin'. 
+F                            C 
+Poke the fire, don't let the cold in. 
+C                               F 
+Gonna try to sail away from the rest of my life. 
+C                               F 
+Gonna try to sail away from the rest of my life.

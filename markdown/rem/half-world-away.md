@@ -1,0 +1,73 @@
+Rem - Half World Away 
+ 
+Intro:  Am  G  D  Em 
+ 
+Am                 G                 D          Em 
+This could be the saddest dusk, I've ever seen 
+             Am    G      D 
+Turn to the miracle high alive 
+Em          Am   G      D 
+My mind is racing as it always will 
+    Em               Am 
+My hand is tired, my heart aches 
+    G             D 
+I'm half a world away 
+         Em 
+here. My head sworn 
+ 
+    F                             D              Dsus4 D 
+To go it alone and hold it alone go it alone and hold  it 
+F                          D7 
+Go it alone, hold it alone oooooooh 
+ 
+        G                D 
+Oh this lonely deeps sit hollow 
+Em            Am      D7sus2   G 
+Half a world half the world  away 
+    D                  Em         Am   D7sus2 
+My shoes are gone and life spent 
+G                  D 
+I had too much to drink 
+   Em              Am     D7sus2   G 
+I didn't think, I didn't think of you 
+   D                  Em 
+I guess that's all I needed 
+ 
+    F                             D               Dsus4 D 
+To go it alone and hold it alone go it alone and hold   it 
+F                                       D7 
+Blackbirds backwards forwards and fall, oooooh 
+ 
+         G               D 
+Oh this lonely world is wasted 
+   Em         Am  D7sus2  G 
+Pathetic eyes     high   alife 
+      D               Em         Am 
+Blind to the tide that turns the sea 
+     G                D 
+The storm it came up strong 
+        Em                  Am   D7sus2   G 
+And it shook the trees and blew away our fear 
+   D            Em 
+I couldn't even hear 
+ 
+    F                             D              Dsus4 D 
+To go it alone and hold it alone go it alone and hold  it 
+F                          D7 
+Go it alone, hold it alone oooooooh 
+    F                             D              Dsus4 D 
+To go it alone and hold it alone go it alone and hold  it 
+ F                                      D7 
+Blackbirds backwards forwards and fall, oooooh 
+ 
+G                 D            Em              Am 
+This could be the saddest dusk, I've ever seen 
+            G      D      Em 
+Turn to the miracle high alive 
+Am         G      D      Em 
+My mind is racing, as it always will 
+   Am               G
+
+My hand is tired my heart aches 
+    D             Em     Am  D   G 
+I'm half a world away... Oh  Oh  Oh

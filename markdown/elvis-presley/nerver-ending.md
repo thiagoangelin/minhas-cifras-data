@@ -1,0 +1,42 @@
+Elvis Presley - Nerver Ending 
+ 
+Standard tuning. 
+ 
+    Eb                        Cm 
+    Walk down to the beach at sunset 
+    Fm                     Bb7 
+    Look as far as you can see 
+    Eb                 Eb+     Ab     Abm 
+    You will find that endless ocean 
+    Eb                Bb7              Eb 
+    And that's how my love will always be 
+ 
+    (Tacet)    Eb            Eb7 
+    I bring you never ending, never ending 
+  Ab             Abm 
+    never ending, never ending 
+  Eb              Bb7          Eb 
+    never ending, never ending love 
+                      Bb7            Eb    (Tacet) 
+    (It goes on and on) never ending love 
+ 
+    Look up at the sky at midnight 
+    Gaze up on the starlit view 
+    Just as heaven has no boundaries 
+    Neither does my love for you 
+ 
+    I bring you never ending, never ending 
+    never ending, never ending 
+    never ending, never ending love 
+    Never ending love 
+    Never ending love 
+    Never ending love 
+    Never ending love 
+ 
+       Eb+      
+    e| --3--     
+    B| --0--     
+    G| --0--     
+    D| --1--     
+    A| -----     
+    E| -----

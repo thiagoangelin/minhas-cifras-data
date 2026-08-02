@@ -1,0 +1,42 @@
+Los Hermanos - A Flor 
+ 
+[Intro]  Abm  C#m  C#m/B  Abm  C#m  Ebm 
+ 
+[Solo Intro] 
+ 
+Abm                         C#m        C#m/B 
+Ouvi dizer do teu olhar ao ver a flor 
+ Abm                               C#m      C#m/B 
+Não sei porque achou ser de um outro rapaz 
+ C#m       F#         B   B/Bb  Abm  Abm/F# 
+Foi capaz de se entregar 
+           C#m         F#           E 
+Eu fiz de tudo pra ganhar você pra mim 
+             Em 
+Mas mesmo assim 
+ 
+               C#m      C#m/B  Abm         C#m   C#m/B 
+Minha flor serviu pra que você achasse alguém 
+             C#m          F#         B   B/Bb  Abm  Abm/F# 
+Um outro alguém que me tomou o seu amor 
+           C#m        F#      E 
+Eu fiz de tudo pra você perceber 
+        Em 
+Que era eu 
+ 
+Durante o solo do sopro, na guitarra, a partir da terceira vez: 
+ 
+             C#m    C#m/B       Abm             C#m  C#m/B 
+Tua flor me deu alguém pra amar enquanto a mim 
+        C#m          F#            B   B/Bb  Abm  Abm/F# 
+Você assim eu por final sem meu lugar 
+         C#m        F#          Abm  C#m 
+Eu tive tudo sem saber quem era eu 
+ 
+C#m/B          Abm           C#m  C#m/B 
+Eu que nunca amei a ninguém 
+ 
+ Abm                  C#m F# 
+Pude então enfim amar 
+ 
+( Abm )

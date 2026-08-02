@@ -1,0 +1,37 @@
+Adriana Calcanhotto - Pelos Ares 
+ 
+Adriana Calcanhotto / Antonio Cícero 
+ 
+Dm 
+Não lhe peço nada 
+Gm           Dm Dm7+ Dm Dm7+ 
+Mas se acaso você perguntar 
+Dm           Gm              Dm Dm7+ Dm Dm7+ 
+Por você não há o que eu não faça 
+ 
+Gm 
+Guardo inteira em mim  
+A casa que mandei 
+Um dia 
+Dm Dm7+ Dm Dm7+ 
+Pelos ares 
+Gm 
+E a reconstruo em todos os detalhes 
+Dm Dm7+ Dm Dm7+ 
+Intactos e implacáveis 
+ 
+    Gm 
+Eis aqui 
+Dm Dm7+ Dm Dm7+ 
+Bicicleta, planta, céu, 
+Gm 
+Estante cama e eu 
+Logo estará 
+Dm       Gm    Dm 
+Tudo no seu lugar 
+ 
+Eis aqui 
+Chocolate, gato, chão, 
+Espelho, luz, calção 
+No seu lugar 
+Pra ver você chegar

@@ -1,0 +1,34 @@
+Cachorro Grande - Fantasmas 
+ 
+ 
+ 
+ Am                      Eb7     D7   Am 
+Tenho fantasmas na minha caaaaaaaaaaasa 
+ Am                     Eb7     D7    
+que não souberam suas máaaaaaaaaaaagoas 
+ Dm                    C                  Bb7 
+Que não querem ir embora que nunca vão descansar 
+ Dm                    C                    Bb7   INTRO 
+Acham que não era a hora de ir para outro lugar 
+ 
+ Am                     Eb7   D7     Am 
+Dizem que são transpareeeeeeeeeeenntes 
+ Am                    Eb7     D7      
+que atravessam as pareeeeeeeeeeeeeedes 
+ Dm                    C                  Bb7 
+Que não querem ir embora que nunca vão descansar 
+ Dm                    C                     Bb7    INTRO 
+Acham que não era a hora de ir para outro lugar 
+ 
+INTRO 
+ 
+ Am                   Eb7  D7   Am 
+Eles derrubam nossos cooooooopos 
+ Am                       Eb7  D7       
+não acreditam que estão mooooooortos 
+ Dm                    C                  Bb7   
+E assustam muita gente que não quer acreditar 
+ Dm                    C                      Bb7          
+sinto um peso em minhas costas, não consigo respirar     
+ 
+Final: Am Eb7 - 2x e depois Am Db7 Am

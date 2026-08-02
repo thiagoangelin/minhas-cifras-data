@@ -1,0 +1,63 @@
+Joao Bosco - Visconde De Sabugosa 
+ 
+Instrução: confira acorde por acorde, pois a maioria é  
+especial, com outra formação no braço. 
+Qualquer dúvida fale comigo: galvão, no  
+galvaozim@gmail.com 
+ 
+Manter as anotações do acorde no final da música, pois  
+muitos acordes o programa de cifra, 
+não reconhece, assim desse modo a pessoa pode tocar a  
+música assim como o autor a 
+concebeu(galvao) 
+ 
+Am(add9) 
+Sábio sabugo Filho de ninguém 
+Am7(9) 
+Espiga de milho Bobo sabido 
+        Am(add9)              Am(add9) 
+Doido varrido Nobre de vintém 
+ 
+Am(add9) 
+Sábio sabugo Filho de ninguém 
+Am7(9) 
+Espiga de milho Bobo sabido 
+        Am(add9)              Am(add9) 
+Doido varrido Nobre de vintém 
+ 
+    Am7(9)*                    D7/A 
+Meu caro Visconde É de trem ou de bonde 
+        Am7(9)*                    D7/A 
+Que eu chego ao picapau Aonde se esconde todo pessoal 
+            Dm7/A  Fm6                E7(13) 
+Visconde me conta      Ou então faz de       conta 
+            D7(9)   G7(#11)        Gm6 
+Que é no coração    Das crianças daqui 
+F#m7(b5)   Fm6      E7(13)  A7(9)      D7(9) 
+A ale......gria é maior Com   Benta Anastácia os meninos 
+E7(b13)              Am7(9) C7(9) 
+A Emília Quindim Rabicó 
+                D7(9) 
+Com   Benta Anastácia os meninos 
+E7(b13)              Am7(9) C7(9) 
+A Emília Quindim Rabicó 
+D7(9) 
+Com   Benta Anastácia os meninos 
+E7(b13)              Am7(9) 
+A Emília Quindim Rabicó 
+ 
+Cifras 
+Am(add9) - x0750x 
+Am7(9) - x0550x 
+Am7(9)* - x05503 
+D7/A - x04535 
+Dm7/A - x03535 
+Fm6 - 1x011x 
+E7(13) - 0x0120 
+A7(9) - XX05323 
+D7(9) - x5455X 
+G7(#11) - 3x342X 
+Gm6 - 3X233X 
+F#m7(b5) - 2x221x 
+E7(b13) - 0X022X 
+C7(9) - x3233X

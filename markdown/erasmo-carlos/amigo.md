@@ -1,0 +1,71 @@
+Erasmo Carlos - Amigo 
+ 
+[Intro] Am  Dm  G  Am  
+        Dm  G  Am  
+ 
+[Primeira Parte] 
+ 
+   Am                                 Dm 
+Você, meu amigo de fé, meu irmão camarada 
+G                                         C 
+  Amigo de tantos caminhos, de tantas jornadas 
+   F                                Dm 
+Cabeça de homem mas o coração de menino 
+   E                                          Am   E 
+Aquele que está do meu lado em qualquer caminhada 
+    Am                                      Dm 
+Me lembro de todas as lutas, meu bom companheiro 
+G                                               C 
+  Você tantas vezes provou que é um grande guerreiro 
+F                                    Dm 
+O seu coração é uma casa de portas abertas 
+E                                         Am 
+  Amigo, você é o mais certo das horas incertas 
+ 
+( Am  Dm  G  Am ) 
+( Am  Dm  G  Am ) 
+( Am  Dm  G  Am ) 
+( Am  Dm  G  Am ) 
+ 
+[Segunda Parte] 
+ 
+Am                                           Dm 
+   Às vezes, em certos momentos difíceis da vida 
+G                                              C 
+  Em que precisamos de alguém para ajudar na saída 
+F                                      Dm 
+  A sua palavra de força, de fé, de carinho 
+    E                                     Am 
+Me dá a certeza de que eu nunca estive sozinho 
+                                      Dm 
+Você, meu amigo de fé, meu irmão camarada 
+G                                       C 
+  Sorriso e abraço festivo da minha chegada 
+F                                   Dm 
+  Você que me diz as verdades com frases abertas 
+E                                        Am 
+  Você é o amigo mais certo das horas incertas 
+ 
+( Am  Dm  G  Am ) 
+ 
+[Refrão] 
+ 
+        Am 
+Não preciso nem dizer 
+     Dm 
+Tudo isso que eu lhe digo 
+       G 
+Mas é muito bom saber 
+       Am               
+Que você é meu amigo 
+ 
+Não preciso nem dizer 
+     Dm 
+Tudo isso que eu lhe digo 
+       G 
+Mas é muito bom saber 
+          Am               
+Que esse cara é meu amigo
+
+ 
+[Final] Am  Dm  G  Am

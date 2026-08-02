@@ -1,0 +1,59 @@
+Ira - 15 Anos 
+ 
+Intro: G D/F# Em Am Am/G D 
+ 
+G       D/F#        Em 
+Quando me sinto assim 
+Am       Am/G        D 
+Volto a ter quinze anos 
+G       D/F#        Em 
+Começando tudo de novo 
+Am       Am/G        D 
+Vou me apanhar sorrindo 
+ 
+Am        D 
+Seu amor hoje 
+Bm         F# 
+Me alimentará amanhã 
+Am     D    C 
+Eis o homem 
+                  D 
+Que se apanha chorando 
+ 
+G       D/F#        Em 
+Vivendo e não aprendendo 
+Am       Am/G        D 
+Eis o homem, este sou eu 
+G       D/F#        Em 
+Que se diz seguro 
+Am       Am/G        D 
+Que se diz maduro 
+ 
+Am        D 
+Seu amor hoje 
+Bm         F#m 
+Me alimentará amanhã 
+Am     D    C 
+Eis o homem 
+                  D   ( Bm F#m Bm F#m Am C D ) 
+Que se apanha chorando 
+ 
+G       D/F#        Em 
+Vivendo e não aprendendo 
+Am       Am/G        D 
+Eis o homem, este sou eu 
+G       D/F#        Em 
+Que se diz seguro 
+Am       Am/G        D 
+Que se diz maduro 
+ 
+Am        D 
+Seu amor hoje 
+Bm         F#m 
+Me alimentará amanhã 
+Am     D    C 
+Eis o homem 
+                  D 
+Que se apanha chorando. 
+ 
+( Bm F#m Bm F#m Am C )

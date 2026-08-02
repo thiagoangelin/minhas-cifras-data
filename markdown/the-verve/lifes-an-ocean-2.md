@@ -1,0 +1,43 @@
+The Verve - Lifes An Ocean 2 
+ 
+ 
+ 
+[Intro Bass Riff] 
+ 
+[Intro Guitar] 
+ 
+A         Asus2 Em 
+Life's An Ocean 
+A          Asus2 Em  A        Asus2 Em 
+Too much commotion, too much emotion 
+A       Asus2 Em   
+Dragging me down 
+ 
+Living for today, don't have time to pray 
+Ready for the game 
+Take a line of fickle flame 
+ 
+Imagine the future 
+Wake up with a scream 
+I was buying some feelings 
+From a vending machine 
+Say that I will see 
+Something more than I have 
+There's something inside of me 
+Crying out for something else 
+And if someone hears my scream 
+Put it in a letter to me 
+Slippery slidey road down 
+ 
+Life's an ocean too much commotion 
+ 
+Not enough emotion to satisfy me 
+Slippery slidey road down 
+It's slippery slidey road down 
+ 
+Hold my hand and we'll walk down 
+Dry those eyes and we'll walk down 
+ 
+Slippery slidey road down 
+Life's an ocean, life's an ocean 
+Too much commotion, too much emotion

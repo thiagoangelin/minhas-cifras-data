@@ -1,0 +1,90 @@
+Oasis - If We Shadows 
+ 
+[Intro] Am7  G  D  
+        Am7  G  D  
+ 
+Am7              G         D 
+All the feelings I got inside   
+                   Am7  G          D       D 
+Nobody knows what´s wrong to me and another   
+Am7              G         D 
+All the feelings I got inside  
+                   Am7  G          D       D 
+Nobody knows what´s wrong to me and another   
+ 
+Fmaj7               G 
+Every time I look away  
+                  C        C/G         Am Asus2 
+There are all the things I might never say  
+Fmaj7              G 
+Everything I do is wrong   
+      E7            Am 
+But I alwys sing my song   
+       G               Fmaj7 
+Yeah I always sing my song   
+          E7 
+In my own way  
+ 
+         Am        E7 
+Cause we shadows ahaa   
+G                      D 
+All the things we say are  
+       Am       E7 
+If we shadows ahaa  
+    G                      D 
+To move in time with the things we find   
+      Am        E7 
+If we shadows ahaa  
+  G              D 
+We´re just going round   
+      Fmaj7               E7          Am7 G D D Am7 G D D 
+And I might not feel this way for long  
+ 
+Am7              G          D 
+There are things calling my mind   
+                    Am7  G              D      D 
+Nobody knows what´s wrong to me and my brother   
+Am7             G         D 
+Many things are calling inside  
+                 Am7 G             D      D 
+Nobody knows how long to me and my brother   
+ 
+Fmaj7                   G 
+And everything I say to you   
+                 C       C/G         Am Asus2 
+But I don´t care why you do what you do   
+Fmaj7                   G 
+And everything that are wrong   
+E7                 Am 
+Nobody knows what´s wrong  
+G                   Fmaj7 
+Nobody knows what´s wrong  
+               E7 
+Till we find a way  
+ 
+         Am        E7 
+Cause we shadows ahaa   
+G                      D 
+All the things we say are  
+       Am       E7
+
+If we shadows ahaa  
+    G                      D 
+To move in time with the things we find   
+      Am        E7 
+If we shadows ahaa  
+     G               D 
+Our lives just going round   
+      Fmaj7            E7 
+And I feel no shame at all  
+     Fmaj7            E7-Fmaj7-G-E7 
+No I feel no shame at all  
+Am E7 G D             Am     E7 G D 
+          Cause if we shadows  
+Am                 E7 G D 
+Cause if we shadows   
+ 
+( Fmaj7  E7  Fmaj7  E7  G  Esus2 ) 
+ 
+      Am 
+If we shadows

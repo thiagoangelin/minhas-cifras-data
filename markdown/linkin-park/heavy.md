@@ -1,0 +1,162 @@
+Linkin Park - Heavy 
+ 
+[Primeira Parte] 
+ 
+I don't like  
+    F#m  A     E 
+My mind right now 
+              A      
+Stacking up problems  
+          C#m  D 
+That are so unnecessary 
+ 
+Wish that I could  
+  F#m  A     E 
+Slow things down 
+             A  
+I wanna let go  
+      C#m           D 
+But there's comfort in the panic 
+        F#m  A E 
+And I drive myself crazy 
+         A            C#m    D 
+Thinking everything's about me 
+          F#m  A E 
+Yeah, I drive myself crazy 
+         A             C#m     D 
+Cause I can't escape the gravity 
+ 
+[Refrão] 
+ 
+            F#m  A  E 
+I'm holding on 
+  A           C#m  D 
+Why is everything so heavy 
+        F#m  A  E 
+Holding on 
+    A             C#m   D 
+To so much more than I can carry  
+         F#m      A     
+I keep dragging around  
+         E 
+What's bringing me down 
+      A        C#m  
+If I just let go   
+D 
+I'd be set free 
+        F#m  A  E 
+Holding on 
+  A           C#m  D 
+Why is everything so heavy 
+ 
+[Segunda Parte] 
+ 
+                  F#m A E 
+You say that I'm pa--ranoid 
+                A    
+But I'm pretty sure  
+     C#m     D 
+The world is out to get me 
+              F#m      A   E 
+It's not like I make the choice 
+    A           
+To let my mind  
+  C#m    D 
+Stay so fucking messy 
+    F#m          A         
+I know I'm not the center  
+E 
+Of the universe
+
+     A                 
+But you keep spinning  
+ C#m      D 
+Round me just the same 
+    F#m          A         
+I know I'm not the center  
+E 
+Of the universe 
+     A                 
+But you keep spinning  
+ C#m      D 
+Round me just the same 
+ 
+[Refrão] 
+ 
+            F#m  A  E 
+I'm holding on 
+  A           C#m  D 
+Why is everything so heavy 
+        F#m  A  E 
+Holding on 
+    A             C#m   D 
+To so much more than I can carry  
+         F#m      A     
+I keep dragging around  
+         E 
+What's bringing me down 
+      A        C#m  
+If I just let go   
+D 
+I'd be set free 
+        F#m  A  E 
+Holding on 
+  A           C#m  D 
+Why is everything so heavy 
+ 
+[Ponte] 
+ 
+    F#m          A         
+I know I'm not the center  
+E 
+Of the universe 
+     A                 
+But you keep spinning  
+ C#m      D 
+Round me just the same 
+    F#m          A         
+I know I'm not the center  
+E 
+Of the universe 
+     A                 
+But you keep spinning  
+ C#m      D 
+Round me just the same 
+        F#m  A E 
+And I drive myself crazy 
+         A            C#m    D 
+Thinking everything's about me 
+ 
+[Refrão] 
+ 
+            F#m  A  E 
+I'm holding on 
+  A           C#m  D 
+Why is everything so heavy 
+        F#m  A  E 
+Holding on 
+    A             C#m   D 
+To so much more than I can carry  
+         F#m      A
+
+I keep dragging around  
+         E 
+What's bringing me down 
+      A        C#m  
+If I just let go   
+D 
+I'd be set free 
+        F#m  A  E 
+Holding on 
+  A           C#m  D 
+Why is everything so heavy 
+ 
+( F#m  A  E ) 
+ 
+  A           C#m  D 
+Why is everything so heavy 
+ 
+( F#m  A  E ) 
+ 
+  A           C#m  D 
+Why is everything so heavy

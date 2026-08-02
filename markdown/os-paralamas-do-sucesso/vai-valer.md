@@ -1,0 +1,35 @@
+Os Paralamas Do Sucesso - Vai Valer 
+ 
+(A Bm7/A)  
+Se eu saísse correndo, gritando, cantando 
+Num pulo a colméia inteira vinha 
+Se eu tocasse a moda dos sete, a pedra das nove 
+Às cinco eu vejo aquela estrelinha 
+ 
+(A Bm7/A) 
+Pintassilgo do mato, oito pés do coco 
+Silêncio, um carro e acaba-se a folia 
+Indigente cantando eu viro de lado e abraço 
+Com todo o embalo dessa linha 
+ 
+       Bm           G 
+   Vai valer, então 
+           A 
+    Vai valer 
+ 
+(A Bm7/A) 
+Se eu deixasse mais claro, era claro 
+Eu jogo cacos pro alto e faço uma figura 
+Que vista de longe já houve quem visse de tudo 
+E os traços do rosto de uma santa 
+ 
+(A Bm7/A) 
+Mas eu não desisto e dobro os cabos e portos 
+Espero que ainda esteja viva 
+Não vou, permaneço fiel às idéias 
+E peço à colméia alguma garantia 
+ 
+A         Bm  
+    Vai valer, então 
+G         A 
+    Vai valer

@@ -1,0 +1,38 @@
+Marisa Monte - Meu Canario 
+ 
+INTROD: Bb7M  
+ 
+               F7       Bb7M  
+Pela primeira vez, eu chorei  
+  Dm7          G7              Cm7 Abm6  
+Porque fui desprezado pelo meu amor  
+               Cm7  
+O meu barraco agora ficou desarrumado  
+                             F7         Bb7M   F7  
+O canario ja nao canta,com certeza se desgostou  
+  Bb7M               Bb7  
+Piu-piu,piu-piu,piu-piu  
+             Eb7M(9)  F7                  Bb7  
+Canta meu canarinho,para amenizar a minha dor  
+ 
+Piu-piu  
+                                   F7        Bb7M Bb7  
+Quando a noite de lua,eu saio pra rua para meditar  
+                 Eb7M(9)           F7        Bb7M  
+O meu pinho faz tudo pra ver meu canarinho cantar  
+   Cm7  F7      Bb7M  
+No solucar do vento  
+    Cm7     F7    Bb7M  
+No sussurro das folhagens  
+    Cm7     F7  Bb7M  
+No gemido dos coqueiros  
+       Cm7   F7    Bb7M       
+Pede a ele pra criar coragem  
+       Bb7               Eb7M(9) F7      
+Nem assim o meu canario canta  
+            Bb7M         G7    Cm7  F7  Bb7M  
+E da minha garganta,um triste gemido sai  
+ 
+Ui-ui,ai-ai  
+ 
+Ui-ui,ai-ai

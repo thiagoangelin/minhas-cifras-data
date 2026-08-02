@@ -1,0 +1,45 @@
+Paulinho Moska - Sinto Encanto 
+ 
+  C/G            G 
+Eu ouço sobre o amor e me calo 
+    C/G 
+Eu não quero nem saber 
+      G 
+O que me espera 
+ 
+   C/G 
+Eu acelero tomo um gole 
+          G 
+do que eu não conheço 
+          C/G 
+e meu primeiro porre 
+          G 
+será um mistério imenso 
+ 
+       F 
+Eu vim do avesso 
+           G 
+Reverso do que é aceito 
+       C/G 
+Ninguém sabe tudo 
+       G 
+Nada é perfeito 
+ 
+      F 
+Eu escuto fora 
+           G 
+Com o ouvido de dentro 
+       C/G 
+Eu me alimento 
+      G 
+Do meu silêncio 
+ 
+  A9/G 
+E canto 
+ 
+porque sinto encanto 
+       G / (3 0 0 2 3 4) / G 
+sinto e canto (2x) 
+ 
+  C/G            G 
+Eu ouço sobre o amor e me calo...

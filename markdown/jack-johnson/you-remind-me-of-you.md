@@ -1,0 +1,49 @@
+Jack Johnson - You Remind Me Of You 
+ 
+Intro: 
+ 
+Well your mama made your pretty 
+And your mama made you sweet 
+Your daddy gave you daydreams 
+And more cushion in your seat 
+Your mama gave you those windows 
+To your beautiful soul 
+Your daddy got more love for you 
+Then you could ever know 
+ 
+You remind me of you 
+Yes you do now 
+You remind me of you 
+Yes you do 
+ 
+here comes the badubadubadu part at the end of the chorus  
+:-) 
+ 
+Well your mama made a promise 
+That your daddy's gonna keep 
+Forever's how long 
+Your mama's going to love your 
+Daddy made you messy 
+And your mama made you neat 
+Forever's how long your daddy's gonna love your 
+Mama made a clone 
+So she won't be alone 
+When the boys and me are getting 
+So out of control 
+ 
+You remind me of you 
+Yes you do now 
+You remind me of you 
+Yes you do 
+ 
+(same pattern as in the first verse and chorus) 
+ 
+then comes the bridge: ' When you cry,...' 
+ 
+When you cry when you cry 
+Well your mama's gonna dry your eyes 
+When you cry when you cry 
+Well your mama's gonna dry your eyes 
+And your daddy's sure gonna try 
+But only mama's gonna dry your eyes 
+But your daddy's sure gonna try

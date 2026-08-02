@@ -1,0 +1,41 @@
+Maria Gadu - Baba 
+ 
+(intro) A7/b13 
+ 
+Dm7/9          G7/b13             C7+/9 
+Você não acreditou, você nem me olhou 
+                 A7/b13 
+Disse que eu era muito nova pra você 
+Dm7/9              G7/b13        C7+/9       A7/b13 
+Mas agora que eu cresci você quer me namorar 
+ 
+             Dm7/9             G7/b13 
+Não vou acreditar nesse falso amor 
+        C7+/9                A7/b13 
+Que só quer me iludir, me enganar, isso é caô 
+Dm7/9                     G7/b13                     C7+/9 
+E pra não dizer que eu sou ruim, vou deixar você me olhar 
+              A7/b13 
+Só olhar, só olhar, baby 
+ 
+Dm7/9 
+Baba! Olha o que perdeu 
+G7/b13 
+A criança cresceu 
+C7+/9 
+Bem feito pra você! 
+A7/b13 
+Agora eu sou mais eu! 
+Dm7/9 
+Isso é pra você 
+   G7/b13                   C7+/9  A7/b13 
+Aprender a nunca mais me esnobar 
+ 
+ Dm7/9 
+Baba baba, baba baby, 
+G7/b13 
+Baba baba, baba baby, 
+C7+/9 
+Baba baba, baba baby, 
+A7/b13 
+Baba...

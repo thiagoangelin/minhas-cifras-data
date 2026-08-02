@@ -1,0 +1,259 @@
+The Pretenders - Back On The Chaingang 
+ 
+>From: * (Norman Lin) 
+> 
+>[Riff]: 
+> 
+>e---------0-3------3331---110---00------------------------------------| 
+>B-1------1------------------------3---331---01------------------------| 
+>G-------0-------------------------------------------------------------| 
+>D---------------------------------------------------------------------| 
+>A---------------------------------------------------------------------| 
+>E---------------------------------------------------------------------| 
+> 
+> 
+ 
+From: * (julius yang) 
+ 
+Well I finally sat down with the Singles CD and bashed  
+this out.  I can 
+play the riff at the beginning, but now that I don't have  
+my guitar 
+in hand I forget it.  Agh.  I can't understand two places  
+where Chrissy 
+is singing either--'crescending' and 'baggle' aren't words 
+ that I know 
+of, but that sounds like what she's saying.  Corrections  
+appreciated. 
+ 
+opening strum: D A G G D A G G 
+ 
+riff x2 
+ 
+D         A            G     G 
+I found a picture of you   oh 
+What hijacked my world at nights 
+To a place in the past we've been passed out of  oh 
+Now we're back in the fight 
+ 
+Em                A 
+We're back on the train (ooh, ah) 
+Ohh 
+A               D            A   G   G 
+    Back on the chain gang 
+ 
+The circumstance beyond our control oh 
+The fool on TV and the news of the world 
+Got in the house like a pigeon from hell, oh 
+Crescending our eyes and descended like flies 
+ 
+Put us back on the train, yeah 
+Oh 
+Back on the chain gang 
+ 
+D A G G 
+ 
+riff x2 
+ 
+bridge: 
+Dm A Dm A and so on 
+The powers that be 
+That forces us to live like we do 
+Bring me to my knees 
+When I see what they've done to you 
+ 
+chord comping 
+ 
+I'll die as I stand here today 
+Knowing that deep in my heart 
+A                     Dm
+
+Therefore to ruin one day 
+A             E 
+For making us part----- 
+ 
+E         B          A    A 
+I found a picture of you, oh 
+Those were the happiest days of my life 
+Like a brick in the baggle was your part, oh 
+In the wretched life of a lonely heart 
+ 
+F#m                   B 
+Now we're back on the train 
+Ohh 
+B             E 
+  Back on the chain gang 
+ 
+                                        Internet member  
+since 1988 
+ 
+From: Harlan L Thompson 
+ 
+D A Em7 D A Em7 (rpt over riff) 
+ 
+D         A            Em7  Gmaj7/B  G 
+I found a picture of you   oh 
+D                 A           Em7  Gmaj7/B G 
+What hijacked my world that night 
+D                  A              Em7         Gmaj7/B G 
+To a place in the past we've been cast out of  oh 
+D  A                     Em7  Gmaj7/B G 
+  Now we're back in the fight 
+ 
+Em                A      Em7 A 
+We're back on the train hey 
+Em  A                  D     A  D  A 
+Aaaah, back on the chain gang 
+ 
+Circumstance beyond our control oh 
+The phone, the TV, and the news of the world 
+Got in the house like a pigeon from hell, oh 
+Threw sand our eyes and descended like flies 
+ 
+Put us back on the train, yeah 
+Aaaaah, back on the chain gang 
+ 
+D A Em7  D A Em7 D 
+ 
+BRIDGE: 
+Dm    A7         Dm       A7                     Dm 
+The powers that be that force us to live like we do 
+ A7             Dm           A7                       Dm  
+Bring me to my knees when I see what they've done to you 
+A7 Dm A7 
+ 
+Dm         A7                    Dm   A7                 
+Well I'll die as I stand here today, knowing that deep  
+      Dm 
+in my heart 
+  A7                     Dm 
+They'll fall to ruin one day 
+     A7             E  B  A 
+For making us part----- 
+ 
+E           B          A   Amaj7/B A/B 
+I found a picture of you, oh 
+E                B                  A  Amaj7/B A/B 
+Those were the happiest days of my life 
+E                     B               A  Amaj7/B A/B 
+Like a break in the battle was your part, oh 
+E                 B                A   Amaj7/B A/B
+
+In the wretched life of a lonely heart 
+A                   B         A  B 
+Now we're back on the train, hey 
+A   A/B             E 
+Aaaah, back on the chain gang 
+ 
+B E B E (rpt and fade) 
+ 
+Em7:     0 2 2 0 3 0     Gmaj7/B: 3 2 4 0 0 2 
+Amaj7/B: x 0 6 6 5 4     A/B:     x 7 7 6 5 5 
+ 
+NOTE:  If you find Gmaj/B too hard to finger, try Bm in  
+its place.  Not 
+as accurate, but a hell of a lot easier. 
+(from Learning to Crawl, 1983) 
+(sent by Harlan at *) 
+ 
+From: * (Adam Schneider) 
+ 
+There are about three versions of this already in the  
+archive, but none of 
+them is quite right.  This one's a little better; someone  
+sent it to me last 
+fall, and I recently cleaned it up because I wanted to  
+play it. 
+ 
+Unfortunately, this might still have mistakes; I can't  
+check because I don't 
+have the album.  I'll have to see if I can get them to  
+play it on the radio... 
+ 
+Adam 
+ 
+[All the work on this song was done by * 
+ (Norman Lin); I just cleaned it up a little for my own  
+use.] 
+ 
+D   A   G   G        D   A   G   G 
+[intro; slow strum]  [hard strum] 
+D   A   G   G        D   A   G   G 
+[with lead guitar] 
+ 
+  I found a picture of you,       ohh oh-oh ohh ohhh 
+  Oh, what hijacked my world that night? 
+  To a place in the past we've been cast out of,   ohh  
+oh-oh ohh ohhh 
+Oh,    now we're back in the fight 
+ 
+   We're back on the train, yeah 
+Em   A                 D        A     G    G 
+Oh,  oh, back on the chain gang 
+ 
+Circumstance beyond our control, ohh oh-oh ohh ohhh 
+Oh, the phone, the TV, and the news of the world 
+Got in our house like a pigeon from hell (??), ohh oh-oh  
+ohh ohhh 
+Oh, threw sand in our eyes, and descended like flies 
+ 
+   Put us back on the train, yeah 
+Ohhh, ohhhhh 
+            D           A    G 
+Back on the chain gang 
+ 
+D   A   G   G        D   A   G   G [3 beats] 
+[guitar solo, same as second part of intro] 
+ 
+Dm    A             Dm      A                       (Dm) 
+  The powers that be   that force us to live like we do 
+Dm      A                     Dm      A 
+(..do)    Bring me to my knees when I see what they've
+
+done to you 
+Dm*  AaddF*   Dm*  AaddF* 
+[no vocals] 
+ 
+Dm           A                      Dm   A               
+  And will I die as I stand here today,  knowing that  
+         (Dm) 
+deep in my heart 
+Dm          A                     Dm          A 
+(..heart)   They'll fall to ruin one day, for making us  
+part 
+ 
+[no vocals] 
+ 
+  I found a picture of you,       ohh oh-oh ohh ohhh 
+  Oh, those were the happiest days of my life 
+  Like a break in the battle was your part,   ohh oh-oh  
+ohh ohhh 
+Oh, in the wretched life of a lonely heart 
+ 
+F#m                      B           F#m - F#m*   Bsus4 -  
+   Now we're back on the train, yeah 
+B - Bsus2 - B 
+ 
+F#m   A                 E        B     A    A 
+Oh,   oh, back on the chain gang 
+E           B 
+Chain gang      [repeat and fade] 
+ 
+Funny chords: 
+Em*: 022003 
+F#m*: 244225 
+Dm*: x00231 - x00230 - x00231 
+AaddF*: x02220 - x02221 - x02220 
+ 
+(/=slide, p=pull off, b=bend, ~=vibrato) 
+ 
+==-=--=---=----=-----=-------=---------=---------=-------=-----=----=---=--=-
+== 
+Adam Schneider             *           Minneapolis, MN 
+       If you want guitar chords for Mary Chapin  
+Carpenter, Indigo Girls, 
+      Mary Karlzen, Lucinda Williams, etc., mail me or  
+check my home page: 
+            http://* 
+==-=--=---=----=-----=-------=---------=---------=-------=-----=----=---=--=-
+==

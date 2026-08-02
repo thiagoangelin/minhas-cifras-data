@@ -1,0 +1,46 @@
+Alceu Valenca - Sino De Ouro 
+ 
+[Intro]  C#m  G#m  D  E 
+ 
+           C#m           G#m 
+Hoje eu queria fazer um poema 
+              D                    E 
+Com pena dos versos de chumbo que faço 
+            C#m             G#m 
+E faria um poema voando tão leve 
+            D               E 
+Um poema de éter, poema de pássaro 
+ 
+C#m  G#m  D  E 
+ 
+          C#m              G#m 
+Hoje eu faria um poema tão peixe 
+               D                 E 
+Nada nos seus olhos da cor do melaço 
+         C#m 
+Um poema azul 
+           G#m 
+Um poema marinho 
+            D 
+Um poema pescado 
+             E 
+Tomado de assalto 
+ 
+C#m  G#m  D  E 
+ 
+           C#m             G#m 
+Hoje eu faria um poema tão fino 
+           D 
+Batendo no sino 
+                 E 
+Que achei num tesouro 
+             C#m 
+Num sonho dourado 
+           G#m 
+Um poema magia 
+            D 
+Depois te daria 
+            E 
+Meu sino de ouro 
+ 
+C#m  G#m  D  E

@@ -1,0 +1,39 @@
+Adriana Calcanhotto - Licao De Baiao 
+ 
+Intro: G7 
+ 
+     G7 
+   | Un, Deux 
+   | 
+   | S'il vous Plait 
+2x | G7 
+   | Montrez ma chérie 
+   | 
+   | Que vous savez danser 
+ 
+     G7 
+   | Jogue o corpo pra lá 
+   |  
+   | Jogue o corpo pra cá 
+2x |         D7/#9 
+   | O corpo e... 
+   |                     G7 
+   | Tudo legal pra começar 
+ 
+             G7 
+   | O seu Renato, o professor 
+   |                                C7/9 
+   | Já vai chegar pra lhe esplicar 
+2x |        G7 
+   | E os defeitos seu Renato 
+   |                   C7/9 
+   | Logo os corrigirá 
+ 
+   |   G7 
+   | Apprenez la leçon 
+   |  
+2x | Dancez le baion 
+   |  
+   | Allons-y dansons 
+   |               D7/#9 
+   | Ah! Que c'est bon!

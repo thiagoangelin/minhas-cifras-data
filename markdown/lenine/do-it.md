@@ -1,0 +1,83 @@
+Lenine - Do It 
+ 
+(compasso dessa música é composto e pode-se interpretar de 
+ duas maneiras: 
+I. Um compasso de 4 e em seguida um de 3. 
+II. Ou um único compasso de 7) 
+ 
+(intro) A5  E5* F5  C5  D5 (2x) 
+        E5  B5  C5  G5  A5 (4x) 
+ 
+(E5  B5  C5  G5  A5) (5x) 
+Ta cansada, senta 
+Se acredita, tenta 
+Se ta frio, esquenta. Se ta fora, entra 
+Se pediu, aguenta 
+Se pediu, aguenta 
+ 
+(E5  B5  C5  G5  A5) (5x) 
+Se sujou, cai fora 
+Se dá pé, namora 
+Ta doento, chora. Ta caindo, escora 
+Não ta bom, melhora 
+Não ta bom, melhora 
+ 
+Am9         F5/A   Am(6/9) 
+Se aperta, grite 
+            Am(#5/9)  Am(7M/9) 
+Se ta chato, agite 
+             Am(6/9)               Am7(9) 
+Se não tem, credite. Se for falta, apite 
+           G7  F#7 
+Se não é, imi...te 
+ 
+(E5  B5  C5  G5  A5) (5x) 
+Se é do mato, amance 
+Trabalhou, descanse 
+Se tem festa, dance. Se ta longe, alcance 
+Use sua chance 
+Use sua chance 
+ 
+(E5  B5  C5  G5  A5) (4x) 
+eô, narara... (4x) 
+ 
+(E5  B5  C5  G5  A5) (5x) 
+Se ta puto, quebre 
+Ta feliz, requebre 
+Se venceu, celebre. Se ta velho alquebre 
+Corra atrás da lebre 
+Corra atrás da lebre 
+ 
+(E5  B5  C5  G5  A5) (5x) 
+Se perdeu, procure 
+Se é seu, segure 
+Se ta mal, se cure. Se é verdade, jure 
+Quer saber, apure 
+Quer saber, apure 
+ 
+Am9           F5/A   Am(6/9) 
+Se sobrou, congele 
+            Am(#5/9)  Am(7M/9) 
+Se não vai, cancele 
+                      Am(6/9) 
+Se é inocente, apele 
+           Am7(9) 
+Escravo se repele 
+              G7  F#7 
+Nunca se atrope....le 
+ 
+(E5  B5  C5  G5  A5) (5x)
+
+Se escreveu, remeta 
+Engrossou, se meta 
+Quer dever, prometa. Pra moldar dereta 
+Não se submeta 
+Não se submeta 
+ 
+(E5  B5  C5  G5  A5) 
+eô, narara... (4x) 
+(E5  B5  C5  G5  A5) G5 
+eô, narara... (4x) 
+ 
+(A5  E5* F5  C5  D5) (2x) 
+(E5  B5  C5  G5  A5) (4x)

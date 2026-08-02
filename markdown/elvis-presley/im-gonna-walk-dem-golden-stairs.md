@@ -1,0 +1,67 @@
+Elvis Presley - Im Gonna Walk Dem Golden Stairs 
+ 
+F Gm F 
+ 
+[Chorus] 
+Bb              F 
+I'm gonna walk, walk them golden stairs 
+C                      C7                     Eaug 
+Cause I know my Jesus answers all my prayers, well well 
+Bb                      F 
+I know when he calls me to my home on high 
+     F         F/D     Bb/G  C7      F    Bb    F 
+I'll walk them golden stairs when I die, when I die 
+ 
+[Verse 1] 
+F                     Bb 
+Oh lord you know I can hardly wait 
+   F                      C7 
+To reach that suite by an by by by 
+    F                Bb 
+And now I see those pearly gates 
+     F         F/D     Bb/G  C7      F    Bb    F 
+I'll walk them golden stairs when I die, when I die 
+F 
+Well, well, well 
+ 
+[Chorus] 
+Bb              F 
+I'm gonna walk, walk them golden stairs 
+C                       C7                     Eaug 
+Cause I know my Jesus answers all my prayers, well well 
+Bb                      F 
+I know when he calls me to my home on high 
+     F         F/D     Bb/G  C7      F    Bb    F 
+I'll walk them golden stairs when I die, when I die 
+ 
+[Verse 2] 
+F                   Bb 
+When Jesus says to me well done 
+     F                     C7 
+And all my cares are laid by by by 
+     F                     Bb 
+I'll lay down my soul, my battles are won 
+     F         F/D     Bb/G  C7      F    Bb    F 
+I'll walk them golden stairs when I die, when I die 
+F 
+Well well well 
+ 
+[Chorus] 
+Bb              F 
+I'm gonna walk, walk them golden stairs 
+C7                                            Eaug 
+Cause I know my Jesus answers all my prayers, well well 
+Bb                      F 
+I know when he calls me to my home on high 
+     F         F/D     Bb/G  C7      F    Bb    F 
+I'll walk them golden stairs when I die, when I die 
+ 
+[Chorus] 
+Bb              F 
+I'm gonna walk, walk them golden stairs 
+C                      C7                       Eaug 
+Cause I know my Jesus answers all my prayers, well well 
+Bb                      F 
+I know when he calls me to my home on high 
+     F         F/D     Bb/G  C7      F    Bb    F 
+I'll walk them golden stairs when I die, when I die

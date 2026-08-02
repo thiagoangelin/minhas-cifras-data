@@ -1,0 +1,46 @@
+Elvis Presley - It Aint No Big Thing But Its Growing 
+ 
+Standard tuning. 
+    Intro:  D 
+                D           G          D 
+    Your losing interest in me and it's showin' 
+               A                  D 
+    It ain't no big thing but it's growin' 
+                D               G           D 
+    The pain of heartbreak I've just started knowin' 
+                     A                  D 
+    Well, it ain't no big thing but it's growin' 
+ 
+          G                              D 
+    Every day the hurt grows bigger than before 
+                G 
+    But I'll pretend I don't know this 
+             E                A 
+    If I can hold you one day more 
+                   D       G            D 
+    You've got the look of someone who's goin' 
+                A                 D 
+    You're gonna leave me and it's showin' 
+             D          G            D 
+    A little tear I can feel start to flow 
+               A                  D 
+    It ain't no big thing but it's growin' 
+ 
+    (Solo) 
+ 
+               G                              D 
+    Well every day the hurt grows bigger than before 
+                G 
+    But I'll pretend I don't know this 
+             E                A 
+    If I can hold you one day more 
+                   D       G            D 
+    You've got the look of someone who's goin' 
+                A                 D 
+    You're gonna leave me and it's showin' 
+             D          G            D 
+    A little tear I can feel start to flow 
+                     A                  D 
+    Well, it ain't no big thing but it's growin' 
+               A                  D 
+    It ain't no big thing but it's growing, growing, growing, growing

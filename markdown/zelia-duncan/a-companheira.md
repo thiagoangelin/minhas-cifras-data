@@ -1,0 +1,194 @@
+Zelia Duncan - A Companheira 
+ 
+Gm6                     D9/F# 
+Eu ia saindo, ela estava ali 
+ 
+no portão da frente 
+Cm7/9                      Bb7+/9 
+ia até o bar, ela quis ir junto 
+F7+ 
+ tudo bem , eu disse 
+             Bb7/13 
+ela ficou super contente 
+  A7/5+   A7/9 
+falava bastante, 
+                          D7/9 
+o que não faltava era assunto 
+ 
+Gm 
+sempre  ao meu lado, 
+                   D9/F# 
+não se afastava um segundo 
+Cm7/9              Bb7+/9 
+uma companheira que ia a fundo 
+ 
+F7+ 
+onde eu ia, ela ia 
+Bb7+ 
+onde olhava, ela estava 
+A7/9 
+quando eu ria, ela ria 
+             D7/9 
+não falhava 
+ 
+Gm                          D9/F# 
+no  dia seguinte ela estava ali 
+no portão da frente 
+Cm7/9                  Bb7M(9) 
+ia trabalhar, ela quis ir junto 
+F7+                                Bb7+ 
+avisei que lá o pessoal era muito exigente 
+A7/5+  A7/9 
+ela nem se abalou 
+                         D7/9 
+ o que eu não souber eu pergunto 
+Gm                                   D9/F# 
+e lançou na hora mais um argumento profundo 
+Cm7/9                      Bb7+/9 
+que iria comigo até o fim do mundo 
+ 
+F7+ 
+me esperava no portão 
+ 
+Bb7+ 
+me encontrava, dava a mão 
+A7/9                    D7/9 
+me chateava, sim ou não? 
+não 
+ 
+Gm6                         D9/F# 
+de repente a vida ganhou sentido 
+Cm7/9                      Bb7+/9 
+companheira assim nunca tinha tido 
+F7+                      Bb7/13 
+o que fica sempre é uma coisa estranha 
+A7/9                    D7/9 
+é companheira que não acompanha 
+ 
+Gm6               D9/F# 
+isso pra mim é felicidade
+
+Cm7/9                Bb7+/9 
+achar alguém assim na cidade 
+F7+                 Bb7+ 
+como uma letra pra melodia 
+A7/9                 D7/9 
+fica do lado, faz companhia 
+ 
+Gm6                   D/F# 
+pensava nisso quando ela ali 
+no portão da frente 
+Cm7/9                   Bb7+/9 
+me viu pensando, quis pensar junto 
+F7+                                        Bb7+ 
+ pensar é um ato tão particular do indivíduo 
+A7/9                               D7/9 
+e ela, na hora  particular, é? duvido 
+ 
+Gm6                           D9/F# 
+e como de fato eu não tinha lá muita certeza 
+Cm7/9                   Bb7+ 
+entrei na dela, senti firmeza 
+ 
+F7+ 
+eu pensava até um ponto 
+Bb7+ 
+ela entrava sem confronto 
+A7/9 
+eu fazia o contraponto 
+      D7/9 
+e pronto 
+ 
+Gm6                    D9/F# 
+pensar assim virou uma arte 
+Cn7/9                  Bb7+ 
+uma canção feita em parceria 
+F7+                    Bb7+ 
+primeira parte, segunda parte 
+A7/9                   D7/9 
+volta o refrão e acabou a teoria 
+Gm6                      D9/F# 
+pensamos muito por toda a tarde 
+Cm7/9                     Bb7+ 
+eu começava, ela prosseguia 
+F7+                     Bb 
+chegamos mesmo, modesta à parte 
+A7              D7/9 
+a uma pequena filosofia 
+ 
+Gm6               D9/F# 
+foi nessa noite que bem ali 
+no portão da frente 
+Cm7/9                    Bb7+ 
+eu fiquei triste, ela ficou junto 
+F7+                                                 Bb 
+e a melancolia foi tomando conta da gente 
+A7/9                         D7/9 
+desintegrados, éramos nada em conjunto 
+ 
+Gm6                        D9/F# 
+quem nos olhava só via dois vagabundos 
+Cm7/9                 Bb 
+andando assim meio moribundos 
+ 
+F7+ 
+eu tombava numa esquina 
+Bb 
+ela caía por cima 
+A7/9 
+um coitado e uma dama 
+    D79
+
+dois na lama 
+ 
+Gm6                        D9/F# 
+mas durou pouco, foi só uma noite 
+e felizmente 
+Cm7/9                Bb7+ 
+eu sarei logo, ela sarou junto 
+F7+                             Bb 
+e a euforia bateu em cheio na gente 
+A7/9                         D7/9 
+sentíamos ter toda felicidade do mundo 
+ 
+Gm6                             D9/F# 
+olhava a cidade e achava a coisa mais linda 
+Cm7/9                  Bb 
+e ela achava mais linda ainda 
+F 
+eu fazia uma poesia 
+Bb 
+ela lia, declamava 
+A7/9 
+qualquer coisa que eu escrevia 
+D7/9 
+ela amava 
+ 
+Gm6                    D9/F# 
+isso também durou só um dia 
+Cm7/9                       Bb7+ 
+chegou a noite acabou a alegria 
+F                 Bb 
+voltou a fria realidade 
+A7/9                    D7/9 
+aquela coisa bem na metade 
+ 
+Gm6                      D9/F# 
+mas nunca a metade foi tão inteira 
+Cm7/9                 Bb 
+uma medida que se supera 
+F                        Bb 
+metade ela era companheira 
+A7/9                  D7/9 
+outra metade, era eu que era 
+ 
+Gm6                    D9/F# 
+nunca a metade foi tão inteira 
+Cm7/9                   Bb 
+uma medida que se supera 
+F                      Bb 
+metade ela era companheira 
+A7/9                D7/9 
+outra metade, era eu que era 
+ 
+( Gm  D9/F#  Cm  F  Bb  A  D )

@@ -1,0 +1,52 @@
+Zelia Duncan - Assim Que Eu Gosto 
+ 
+Intro: G D C G D G 
+ 
+G 
+Pode me largar 
+D 
+Que eu tenho pressa 
+C 
+Não me interessa 
+G 
+Sua beca 
+D 
+Ou seu perfume francês 
+G 
+Meu corpo agora 
+D 
+Só fala português 
+C 
+E é assim que eu gosto 
+G 
+Me toca mais 
+D 
+O detalhe 
+G 
+Do que os luxos 
+C 
+Eu não sigo o fluxo 
+G 
+Faço o caminho  
+Que me parecer mais justo 
+C 
+Fala baixo 
+G 
+Que eu escuto 
+C 
+Eu pressinto tudo 
+G                    D 
+O que você não quis dizer 
+Então 
+G 
+Pode me largar 
+G7 
+Pode sair da frente 
+B 
+Já sei  
+C 
+Que sou diferente 
+G             D 
+Mas é assim que eu gosto, 
+G 
+Entende?

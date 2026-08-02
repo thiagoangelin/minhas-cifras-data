@@ -1,0 +1,49 @@
+Almir Sater - Um Violeiro Toca 
+ 
+ 
+ 
+G                      G5(7M)    G5(6) 
+ Quando uma estrela cai, no escurão da noite, 
+C 
+ e um violeiro toca suas mágoas. 
+D9(11) 
+ Então os olhos dos bichos, vão ficando iluminados 
+C                                          D9(11)  C C5(9) 
+Rebrilham neles estrelas de um sertão enluarado 
+G            G5(7M)            G5(6) 
+Quando o amor termina, perdido numa esquina, 
+C 
+e um violeiro toca sua sina. 
+D9(11) 
+Então os olhos dos bichos, vão ficando entristecidos 
+C                                            D9(11)  C  C5(9) 
+Rebrilham neles lembranças dos amores esquecidos. 
+G                   G5(7M)      G5(6) 
+Quando um amor começa, nossa alegria chama, 
+C 
+e um violeiro toca em nossa cama. 
+D9(11) 
+Então os olhos dos bichos, são os olhos de quem ama 
+C                                             D9(11) C  C5(9) 
+Pois a natureza é isso, sem medo nem dó sem drama 
+Violão 1: 
+ 
+Refrão: 
+G               G5(7M)         C7+          D 
+Tudo é sertão, tudo é paixão, se o violeiro toca 
+Am7            C               G 
+A viola, o violeiro e o amor se tocam 
+Variação: 
+ 
+(Intro) 
+ 
+G                   G5(7M)      G5(6) 
+Quando um amor começa, nossa alegria chama, 
+C 
+e um violeiro toca em nossa cama. 
+D9(11) 
+Então os olhos dos bichos, são os olhos de quem ama 
+C                                             D9(11) C  C5(9) 
+Pois a natureza é isso, sem medo nem dó sem drama 
+ 
+(Refrão)

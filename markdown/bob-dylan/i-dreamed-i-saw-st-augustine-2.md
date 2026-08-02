@@ -1,0 +1,78 @@
+Bob Dylan - I Dreamed I Saw St Augustine 2 
+ 
+Intro: F    Bb  F   
+F                             Bb 
+I dreamed I saw St. Augustine, 
+Bb                 F 
+Alive as you or me, 
+F                          
+Tearing through these quarters 
+  Gm                Bb 
+In the utmost misery, 
+      F 
+With a blanket underneath his arm 
+     Bb                    
+And a coat of solid gold, 
+F         Em      Dm   C 
+Searching for the very souls 
+       Bb         Gm   F 
+Whom already have been sold. 
+ 
+F 
+"Arise, arise," he cried so loud, 
+     Bb                  F 
+In a voice without restraint, 
+F 
+"Come out, ye gifted kings and queens 
+    Gm               Bb 
+And hear my sad complaint. 
+   F 
+No martyr is among ye now 
+     Bb 
+Whom you can call your own, 
+Bb    F       Em     Dm     C 
+So go on your way accordingly 
+C   Bb          Gm    F 
+But know you're not alone." 
+ 
+(Harp Solo over Verse Chords:) 
+ 
+F          Bb 
+Bb         F 
+F 
+Gm         Bb 
+F 
+Bb 
+F   Em    Dm  C 
+C   Bb    Gm  F 
+ 
+F 
+I dreamed I saw St. Augustine, 
+  Bb               F 
+Alive with fiery breath, 
+F 
+And I dreamed I was amongst the ones 
+     Gm              Bb 
+That put him out to death. 
+Bb  F          
+Oh, I awoke in anger, 
+F   Bb                
+So alone and terrified, 
+Bb F     Em      Dm          C 
+I put my fingers against the glass 
+C   Bb        Gm       F 
+And bowed my head and cried. 
+ 
+(Outro harp solo over Verse chords:) 
+F          Bb 
+Bb         F 
+F
+
+Gm         Bb 
+F 
+Bb 
+F   Em    Dm  C 
+C   Bb    Gm  F~ 
+ 
+Enjoy, 
+H.B.

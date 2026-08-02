@@ -1,0 +1,51 @@
+Jorge Ben Jor - Mama Africa 
+ 
+Intro: Bm  D  Em  G  A 
+ 
+Bm      D Em  G      A    Bm     D Em  G      A 
+África          viva mama África (2x) 
+      Bm   D Em      G      A 
+Viva vida           viva vida(2x) 
+ 
+( Bm  D  Em  G  A ) 
+Hadaoui Alaoui et Karkabou 
+Orami Orami Orami 
+Pier Akendeng. Mazekela. Miriam Makeba. 
+Moricante.Salife Keita. Alfa Blondy-Ray Lema 
+Yousson Ndou. Toure Kunda 
+ 
+Bm      D Em  G      A    Bm     D Em  G      A 
+África          viva mama África(2x) 
+      Bm   D Em      G      A 
+Viva vida           viva vida(2x) 
+ 
+( Bm  D  Em  G  A ) 
+Idrissa Diop. Azikmen. Bundu Boys 
+Kassav. Linton Kwesi. Ine Kamose. Zig Marley. 
+Thomas Mapfumu. Manu de Bango. Fela Kuti. 
+Irakere. Van Van - Lady Mambaso - King Sunny Adé. 
+ 
+Bm      D Em  G      A    Bm     D Em  G      A 
+África          viva mama África (2x) 
+      Bm   D Em      G      A 
+Viva vida           viva vida (2x) 
+ 
+( Bm  D  Em  G  A ) 
+Abdalla Menai. T34 - Jacinta - Raina Rai 
+Jamal Alam. Djil Forsane 
+Brahin Izri - Djebel Djedorf - Karin Kacel - Razhid Bahri 
+ 
+Bm      D Em  G      A    Bm     D Em  G      A 
+África          viva mama África(2x) 
+      Bm   D Em      G      A 
+Viva vida           viva vida(2x) 
+ 
+( Bm  D  Em  G  A ) 
+João Nogueira. Martinho da Vila. 
+Gilberto Gil. Jovelina 
+Ben Jor Ben Jor Ben Jor 
+ 
+Bm      D Em  G      A    Bm     D Em  G      A 
+África          viva mama África(2x) 
+      Bm   D Em      G      A 
+Viva vida           viva vida(2x)

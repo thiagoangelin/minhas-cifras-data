@@ -1,0 +1,32 @@
+Cazuza - Ritual 
+ 
+F      Eb    Bb F         Eb          Bb 
+Pra que sonhar, a vida é tão desconhecida e mágica 
+F             Eb            Bb  F    Eb Bb  F    Eb Bb 
+Que dorme às vezes do teu lado, calada,      calada 
+F    Eb    Bb             F    Eb    Bb 
+Pra que buscar o paraíso, se até o poeta fecha o livro 
+F          Eb            Bb            F   Eb Bb   F    Eb Bb 
+Sente o perfume de uma flor no lixo e fuxica,      fuxica. 
+Gm7                     C7 
+Tantas histórias de um grande amor perdido, 
+Gm7                     C7 
+terras perdidas, precipícios 
+Gm7                     C7 
+Faz sacrifícios, e imola mil virgens, 
+Gm7                     C7 
+Uma por uma, milhares de dias 
+F    Eb   Bb 
+Ao mesmo Deus que Ensina a prazo, 
+F           Eb                Bb 
+Ao mais esperto e ao mais otário 
+F                Eb    Bb 
+Que o amor na prática é sempre ao contrário 
+F                Eb    Bb 
+Que o amor na prática é sempre ao contrário 
+F   Eb       Bb 
+Pra que chorar, 
+F       Eb      Bb 
+A vida é bela e cruel despida 
+F        Eb        Bb               F Eb Bb   F Eb Bb 
+Tão desprevinida e exata que um dia acaba...   acaba.

@@ -1,0 +1,122 @@
+U2 - The Troubles 
+ 
+Gm 
+Somebody stepped inside your soul 
+F 
+Somebody stepped inside your soul 
+C 
+Little by little they robbed and stole 
+Dm                            Gm 
+Till someone else was in control 
+ 
+( Gm  F  C  Dm ) 
+ 
+Gm             F 
+You think it's easier 
+            C 
+To put your finger on the trouble 
+         D 
+When the trouble is you 
+Gm                 F 
+And you think it's easier 
+   C 
+To know your own tricks 
+          D 
+Well it's the hardest thing you'll ever do 
+ 
+D# Bb         F 
+    So you can hurt me and then hurt me some more 
+D# Bb         Gm 
+    I can live with denial 
+C 
+But you're not my troubles anymore 
+ 
+Gm 
+Somebody stepped inside your soul 
+F 
+Somebody stepped inside your soul 
+C 
+Little by little they robbed and stole 
+D 
+Till someone else was in control 
+ 
+Gm 
+Somebody stepped inside your soul 
+F 
+Somebody stepped inside your soul 
+C 
+Little by little they robbed and stole 
+D 
+Till someone else was in control 
+ 
+( Gm  F  C  D ) 
+ 
+Gm             F 
+You think it's easier 
+   C 
+To give up on the trouble 
+       D 
+If the trouble is destroying you 
+Gm             F 
+You think it's easier 
+    C 
+But before you threw me a rope 
+         D 
+It was the one thing I could hold on to 
+ 
+D# Bb         F 
+    So you can hurt me and then hurt me some more 
+D# Bb         Gm
+
+    I can live with denial 
+C 
+But you're not my troubles anymore 
+ 
+Gm 
+Somebody stepped inside your soul 
+F 
+Somebody stepped inside your soul 
+C 
+Little by little they robbed and stole 
+D 
+Till someone else was in control 
+ 
+Gm 
+Somebody stepped inside your soul 
+F 
+Somebody stepped inside your soul 
+C 
+Little by little they robbed and stole 
+D 
+Till someone else was in control 
+ 
+D#    Bb             Gm 
+  God knows it's not easy 
+D#              Bb               F 
+  Taking on the shape of someone else's pain 
+D#    Bb           Gm 
+  God now you can see me 
+C 
+I'm naked and I'm not afraid 
+C 
+My body's sacred and I'm not ashamed 
+ 
+Gm 
+Somebody stepped inside your soul 
+F 
+Somebody stepped inside your soul 
+C 
+Little by little they robbed and stole 
+D 
+Till someone else was in control 
+ 
+Gm 
+Somebody stepped inside your soul 
+F 
+Somebody stepped inside your soul 
+C 
+Little by little they robbed and stole 
+D                            Gm 
+Till someone else was in control 
+ 
+[Solo] Gm  F  C  D

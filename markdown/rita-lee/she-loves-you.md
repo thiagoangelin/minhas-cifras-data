@@ -1,0 +1,47 @@
+Rita Lee - She Loves You 
+ 
+Lennon / McCartney 
+ 
+    Bm7 
+She loves you 
+    Bm6 
+She loves you 
+     Em      D 
+She loves you 
+ 
+                           Bm7 
+You think you've lost your love 
+       F#m7          Am7 
+Well I saw her yesterday 
+D                      Bm7 
+It's you she's thinking of 
+       F#m7             Am7 
+And she told me what to say 
+ 
+              D 
+She said she loves you 
+         D5+               Bm7 
+And you know that can't be bad 
+     Em 
+She loves you 
+         Gm6                 A7 A7(4) A7 
+And you know you should be glad 
+ 
+She said you hurt her so 
+She almost lost her mind 
+But now she says she knows 
+Your're not the hurting kind 
+ 
+     Bm 
+She loves you, yeah yeah yeah 
+     E 
+She loves you, yeah yeah yeah 
+       Gm6 
+With a love like that 
+      A7                 D Bm7 A7 
+You know you should be glad 
+ 
+You know it's up to you 
+I think it's only fair 
+Pride can hurt you too 
+Apologise to her

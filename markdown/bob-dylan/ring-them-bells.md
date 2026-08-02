@@ -1,0 +1,85 @@
+Bob Dylan - Ring Them Bells 
+ 
+Intro: Am, Am, F,  C Am Am 
+Am 
+Ring them bells, ye heathen 
+ 
+From the city that dreams, 
+F 
+Ring them bells from the sanctuaries 
+ 
+Cross the valleys and streams, 
+C 
+For they're deep and they're wide 
+ 
+And the world's on its side 
+Am 
+And time is running backwards 
+ 
+And so is the bride. 
+ 
+Am 
+Ring them bells St. Peter 
+ 
+Where the four winds blow, 
+F 
+Ring them bells with an iron hand 
+ 
+So the people will know. 
+C 
+Oh it's rush hour now 
+ 
+On the wheel and the plow 
+Am 
+And the sun is going down 
+ 
+Upon the sacred cow. 
+ 
+Am 
+Ring them bells Sweet Martha, 
+ 
+For the poor man's son, 
+F 
+Ring them bells so the world will know 
+ 
+That God is one. 
+Am 
+Oh the shepherd is asleep 
+ 
+Where the willows weep 
+F 
+And the mountains are filled 
+ 
+With lost sheep. 
+ 
+Am 
+Ring them bells for the blind and the deaf, 
+F 
+Ring them bells for all of us who are left, 
+Am 
+Ring them bells for the chosen few 
+ 
+Who will judge the many when the game is through. 
+Am 
+Ring them bells, for the time that flies, 
+Am 
+For the child that cries 
+ 
+When innocence dies.
+
+Am 
+Ring them bells St. Catherine 
+ 
+From the top of the room, 
+F 
+Ring them from the fortress 
+ 
+For the lilies that bloom. 
+Am 
+Oh the lines are long 
+ 
+And the fighting is strong 
+C 
+And they're breaking down the distance 
+          F    C   Am 
+Between right and wrong.

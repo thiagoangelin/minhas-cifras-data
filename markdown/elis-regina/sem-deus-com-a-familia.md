@@ -1,0 +1,52 @@
+Elis Regina - Sem Deus Com A Familia 
+ 
+Sem Deus, com a Família 
+ 
+Riff 
+ sapato de pobre é tamanco 
+ a vida não tem solução 
+                     Bb 
+ morada de rico é palácio 
+              C 
+ e casa de pobre é barracão 
+Dm                      Bb 
+ quem é pobre, sempre sofre 
+           C 
+ vive sempre a trabalhar 
+Dm                   Bb 
+ mas eu sofro só de dia 
+           C               Dm 
+ de noite eu vivo pra sambar 
+ 
+Riff 
+ a mulher do branco é esposa 
+ e a esposa do preto é mulher 
+                        Bb 
+ mas minha mulher é só minha 
+                   C               Dm 
+ a do branco eu não sei se só dele é 
+                     Bb 
+ preto vive atormentado 
+          C             Dm 
+ Mal tem tempo pra rezar 
+                          Bb 
+ mas o preto é mais que branco 
+          C            Dm 
+ pra mãe d'água lemanjá 
+ 
+Riff 
+ a terra do dono é só dele 
+ ali ninguém pode mandar 
+                           Bb 
+ mas se eu não pegar na enxada 
+           C                Dm 
+ não tem ninguém para plantar 
+                      Bb 
+ eu semeio e trato o milho 
+          C             Dm 
+ e a colheita é do senhor 
+ 
+{                   Bb 
+ mas o dia da igualdade 
+         C             Dm 
+ tá chegando, seu doutor } (3x)

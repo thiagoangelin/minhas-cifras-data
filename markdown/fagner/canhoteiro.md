@@ -1,0 +1,48 @@
+Fagner - Canhoteiro 
+ 
+(Fagner e Zeca Balero) 
+ 
+D               A 
+Um anjo torto, um canhoteiro 
+G               A 
+um São José de Ribamar 
+D               A 
+um bailaino, um brasileiro 
+G           A 
+um paraíba, um ceará. 
+D               A 
+Um pé de ouro, um peladeiro, 
+G               A 
+mata no peito e beija o sol. 
+D               A 
+Balão de couro, bola de efeito, 
+G               A 
+Mas que beleza é o futebol 
+ 
+Bm              F#m 
+Corre, dispara, pára, ginga e vai 
+G                 D 
+mais um zagueiro vai pro chão 
+Bm              F#m 
+esse já era, não levanta mais, 
+G      A    D 
+outros virão. 
+Bm              F#m 
+Finta, canhota, boa Samurai, 
+G                 D 
+lá vai a bola, bala de canhão. 
+Bm              F#m 
+Seu pé direito é a bomba que distrai 
+G               A    D 
+o esquerdo é o coração. 
+ 
+[VOLTA AO INÍCIO] 
+ 
+D               A 
+Um belo drible, decide o jogo 
+G               A 
+um grande baile do futebol. 
+D               A 
+Só um artista, o canhoteiro 
+G               A           D 
+Acende a tarde, inventa o sol

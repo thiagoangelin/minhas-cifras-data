@@ -1,0 +1,78 @@
+Charlie Brown Jr - O Nosso Blues 
+ 
+  A Musik  começa com o baixo fazendo um riff assim: 
+Riff 1 
+ 
+ai entra a guitarra fazendo um solinho com wah-wah q eh  
+igual a do baixo.... 
+Riff 2 guitarra com wah-wah 
+ 
+Letra: No começo repete as partes do riff 1 e 2 
+2 vezes 
+ 
+Riffs 1 
+Jogo baixo não me atinge 
+E na minha eu vou que vou 
+Me sinto muito bem 
+Quando vejo o pôr-do-sol- 
+Riffs 2 
+Vou te levar pra ver o mundo baby 
+Quero te mostar meu novo invento 
+C# 
+We got the moves 
+B 
+We got the ligths 
+A#  A     G#     F# 
+We're gonna blow tha 
+ G#       G# 
+House down 
+ 
+Solo 1 tamo tirando 
+Base do solo 1 Riffs 1 e 2 
+ 
+Riff 1 
+Vinha pela rua no meu passo sossegado 
+Quando eu vi parar do lado um belo carro importado 
+Eles fumavam fat joint e ouviam som bem alto 
+Maloqueiro quando tem estilo rouba a cena de assalto 
+Riff 2 
+Então desceram todos vieram me cumprimentar 
+Me convidaram para uma festa que numa manssão ia rolar 
+Riff 1 
+Eu fui com fé, eu fui na barca 
+Porque sei que o mundo vai acabar 
+Eu adoro uma mesa farta e várias garotas vão estar lá 
+C# 
+Viver bem é um vício que tenho 
+B 
+Não nego isso a ninguém 
+A#                 A     G# 
+Eu faço o que eu quero fazer 
+F#                       G# 
+Depois durmo igual neném 
+ 
+Solo 2 Base Riffs 1 e 2 
+ 
+ G#         G# 
+Fort fire fort fire 
+ 
+ Riff 1 essa parte canta 2 vezes 
+You go dancing to this feeling 
+Keep on running into the floor 
+You're walking on the rain 
+But you are waiting for the sun 
+Riff 2 
+You got the keep moving 
+If you really wanna flip the table 
+C# 
+We got thu moves 
+B
+
+We got the ligths 
+A#           A    G# 
+We're gonna blow the 
+F#         G# 
+House down 
+Solo no baixo 
+ volta a fazer os riffs 1 e 2 
+e termina a musik com

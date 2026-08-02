@@ -1,0 +1,61 @@
+Kid Abelha - Eletricidade 
+ 
+Nilo Romero / George Israel / Cazuza 
+ 
+[Intro:] B A F# E F# A B 
+ 
+B                     A        E 
+Ela não presta e nem quer prestar 
+B        A        E 
+Chega no auge da festa 
+B         A        E 
+Ela anda nua como anda num bar 
+F# 
+Por toda a casa, e quer rua 
+F#                    E 
+Eu sou quem fica até tarde 
+F#                    E 
+Ela é o verbo da vontade 
+ 
+E nem espera o sinal fechar 
+Pula de um truque pro outro 
+E dá as cartas e ri do futuro 
+A 
+Ela é maldade em estado puro 
+F#                 E 
+Eu sou o guarda-noturno 
+Distraído olhando a lua 
+Ela é um barco sem rumo 
+F# 
+Mas tem resposta prá tudo 
+ 
+B        A  E 
+Eletricidade 
+Ela se devora 
+B        A 
+Eletricidade 
+         E    F# 
+Uma natureza nova 
+B        A  E 
+Eletricidade 
+Ela é a cidade 
+B        A 
+Ela não demora 
+         E    F# 
+Uma natureza nova 
+ 
+C#m                   G#m 
+E nem pergunta se eu vou voltar 
+B              A 
+Me deixa em total liberdade 
+C#m                   G#m 
+Eu não pergunto se ela vai amar 
+B 
+As quatro da madrugada 
+ 
+Eletricidade 
+Ela me comove 
+É a luz da invenção do homem 
+Com um corpo 
+Com um nome 
+Eletricidade

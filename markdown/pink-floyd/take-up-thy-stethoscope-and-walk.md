@@ -1,0 +1,45 @@
+Pink Floyd - Take Up Thy Stethoscope And Walk 
+ 
+A   G  A 
+I'm in bed 
+A   G  A 
+Achin' head 
+A   G  A 
+Gold is lead 
+A   G  A 
+Choke on bread 
+A   G  A 
+underfed 
+A   G  A 
+Gold is lead 
+A   G  A 
+Jesus bled 
+A   G  A 
+Pain is red 
+A G E 
+Are goon 
+A  G  A 
+Grow go 
+A  G  E 
+Greasy spoon 
+A  G  A 
+You swoon 
+A  G  E 
+June bloom 
+ 
+E     F        F#       G 
+Music seems to help the pain 
+E       F      F#       G 
+Seems to cultivate the brain. 
+E      F      F#        G 
+Doctor kindly tell your wife that 
+A   G  A 
+I'm alive 
+A   G  A 
+Flowers thrive 
+A   G  A 
+realize 
+A   G  A 
+realize 
+A   G  E 
+realize

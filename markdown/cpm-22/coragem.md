@@ -1,0 +1,106 @@
+Cpm 22 - Coragem 
+ 
+            2 Vezes  (Parte 1)       E   D      C#  B      
+ E  (Parte 2) 
+e||--------------------------------|----------------------------|| 
+B||-10-10-10-10-10----9-9-9-9-9----|----------------------------|| 
+G||-9--9--9--9--9-----9-9-9-9-9----|-9---7...---6---4...---9..--|| 
+@D$||-7--7--7--7--7-----7-7-7-7-7----|-9---7...---6---4...---9..--||( Riff 1 
+) 
+f 1 ) 
+A||--------------------------------|-7---5...---4---2...---7..--|| 
+E||--------------------------------|----------------------------|| 
+                                                           
+     (... = ALGUMAS BATIDAS) 
+ 
+       A            C#        G#      F#        C#   D     
+e||-------------------------------------------|----------------|| 
+E 
+ 
+B||-------------------------------------------|----------------|| 
+G||--------------6-6-6-6-6--------------------|-6----7----9----|| 
+@D$||-7-7-7-7-7----6-6-6-6-6----6----4-4-4-4-4--|-6----7----9----|| ( 
+Riff 2 ) 
+f 2 ) 
+A||-7-5-5-5-5----4-4-4-4-4----6----4-4-4-4-4--|-4----5----7----|| 
+E||-5-5-5-5-5-----------------4----2-2-2-2-2--|----------------|| 
+                                              (NO  
+FINALZINHO DO REFRÃO)) 
+ 
+A   A7+             A   A7+                : 
+   Medo de perder                          : 
+               E    D         C# B         : 
+   Medo de não conseguir                   : 
+                 E           C#  B         : 
+   Perder o medo de arriscar               : 
+A   A7+               A   A7+              : ( Riff 1 ) 
+Tente compreender                          : 
+              E   D          C#  B         : 
+   Tudo que quiser fazer                   : 
+           E                               : 
+    A vida pode complicar                  : 
+ 
+Refrão 1: 
+ 
+A C# G# F#           A   C#   G#   F#      : 
+        Tantos momentos importantes        : 
+        F#       A   C#   G#   F#          : 
+        Tudo que faz você acreditar        : ( Riff 2 ) 
+        F#          C#      D   E          : 
+        Tantas histórias pra contar        : 
+ 
+A   A7+             A   A7+                : 
+   Medo de perder                          : 
+               E    D        C#  B         : 
+   de nunca me arrepender                  : 
+                 E           C#  B         : 
+   será que a solução não sei              : 
+A   A7+               A   A7+              : ( Riff 1 ) 
+   parar pra pensar                        : 
+              E   D          C#  B         : 
+   pra tentar recomeçar                    : 
+           E                               : 
+    A vida pode complicar                  : 
+ 
+Refrão 2: 
+ 
+A C# G# F#                    A   C#   G#   F#   : 
+        Tantos momentos importantes              : 
+        F#                  A   C#   G#   F#     :
+
+        Tudo que faz você acreditar              : 
+                         C#                      : ( Riff 2 ) 
+        Tantas histórias pra contar              : 
+          D         E                            : 
+        Lembranças pra guardar                   : 
+ 
+A   E7  (G#   F#)  D   D7+         =       (em oitavas) 
+ 
+A       E7    (G#   F#) 
+Coragem pra conseguir vencer 
+             D       D7+ 
+Disposto a tudo menos a perder 
+A       E7    (G#   F#) 
+Coragem pra conseguir vencer 
+             D       D7+ 
+Disposto a tudo menos a perder 
+ 
+Refrão 2: 
+ 
+A C# G# F#           A   C#   G#   F#   : 
+        Tantos momentos importantes     : 
+        F#       A   C#   G#   F#       : 
+        Tudo que faz você acreditar     : 
+                  C#                    :  ( Riff 2 ) 
+        Tantas histórias pra contar     : 
+          D         E                   : 
+        Lembranças pra guardar          : 
+ 
+Refrão 1: 
+ 
+A C# G# F#           A   C#   G#   F#   : 
+        Tantos momentos importantes     : 
+        F#       A   C#   G#   F#       : 
+        Tudo que faz você acreditar     :  ( Riff 2 ) 
+        F#          C#      D   E       : 
+        Tantas histórias pra contar     :

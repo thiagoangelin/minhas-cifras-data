@@ -1,0 +1,113 @@
+Ze Ramalho - Chao De Giz 
+ 
+[Intro] G  D/F#  Em  C 
+        D4  D  D4  D 
+        G  D/F#  Em  C 
+        D4  D  D4  D 
+ 
+[Primeira Parte] 
+ 
+    G 
+Eu desço dessa solidão 
+   D/F#                          Em 
+Espalho coisas sobre um chão de giz 
+C                     
+  Há meros devaneios  
+ D               G  Em 
+Tolos a me torturar 
+C                   D     
+  Fotografias recortadas  
+               G        Em 
+Em jornais de folhas amiúde 
+ 
+[Segunda Parte] 
+ 
+Am                  
+   Eu vou te jogar     
+Bm                         Am   D 
+   Num pano de guardar confetes 
+Am 
+   Eu vou te jogar 
+Bm                         Am   
+   Num pano de guardar confetes 
+ 
+( D4  D  D5(9)  D ) 
+ 
+[Primeira Parte] 
+ 
+    G 
+Disparo balas de canhão 
+    D/F#                        Em 
+É inútil pois existe um grão-vizir 
+C                     D      
+  Há tantas violetas velhas  
+             G  Em 
+Sem um colibri 
+C             D 
+  Queria usar   quem sabe 
+               G           Em 
+Uma camisa de força ou de vênus 
+ 
+[Segunda Parte] 
+ 
+Am                       Bm  
+   Mas não vão gozar de nós  
+             Am   D 
+Apenas um cigarro 
+Am 
+   Nem vou lhe beijar 
+Bm                         Am  
+   Gastando assim o meu batom 
+ 
+( D4  D  D5(9)  D ) 
+( G  D/F#  Em  C ) 
+( D4  D  D4  D ) 
+ 
+[Primeira Parte] 
+ 
+  G                     
+Agora pego um caminhão
+
+    D/F#                     Em 
+Na lona vou a nocaute outra vez 
+C                        D    
+  Pra sempre fui acorrentado  
+              G  Em 
+No seu calcanhar 
+C                      D 
+  Meus vinte anos de "boy" 
+               G               Em 
+"That's over, baby", Freud explica 
+ 
+[Segunda Parte] 
+ 
+Am                   
+   Não vou me sujar     
+Bm                      Am   D 
+  Fumando apenas um cigarro 
+Am                     
+   Nem vou lhe beijar     
+Bm                         Am  D 
+   Gastando assim o meu batom 
+Am                        Bm    
+   Quanto ao pano dos confetes  
+                    Am  D 
+Já passou meu carnaval 
+Am                          Bm   
+   E isso explica porque o sexo  
+               Am  D 
+É assunto popular 
+ 
+Am                       Bm 
+   No mais estou indo embora 
+Am                       Bm 
+   No mais estou indo embora 
+Am                       Bm 
+   No mais estou indo embora 
+Am         D4  D  D5(9)  D 
+   No mais 
+ 
+[Final] G  D/F#  Em  C 
+        D4  D  D4  D 
+ 
+E|-3--3----------------3--------------------|

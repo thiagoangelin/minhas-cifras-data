@@ -1,0 +1,56 @@
+The Beatles - Thank You Girl 
+ 
+[Intro] A  G  A  G 
+ 
+D  G                 D  G 
+You've been good to me 
+                D  A             D  G 
+You've made me glad when I was blue 
+D  G         D  G              D  A 
+And, eternally,  I´ll always be 
+              D 
+In love with you 
+ 
+    G            A      G 
+And all I gotta do is thank you girl 
+  A 
+Thank you girl 
+ 
+D  G              D  G 
+I could tell the world 
+           D  A           D  G 
+A thing or two about our love 
+D  G           D  G          D  A 
+I know little girl, only a fool 
+                D 
+Would doubt our love 
+ 
+    G            A      G 
+And all I wanna do is thank you girl 
+  A 
+Thank you girl 
+ 
+  Bm                D             A 
+Thank you girl for lovin´ me the way what You Do 
+(way that you do) 
+Em                  A                D 
+That´s the kind of love that is too good to be true 
+ 
+   G            A      G 
+And all I gotta do is thank you girl 
+  A 
+Thank you girl 
+ 
+D  G                 D  G 
+You've been good to me 
+                D  A             D  G 
+You've made me glad when I was blue 
+D  G         D  G              D  A 
+And, eternally,  I´ll always be 
+              D 
+In love with you 
+ 
+    G            A      G 
+And all I gotta do is thank you girl 
+  A 
+Thank you girl

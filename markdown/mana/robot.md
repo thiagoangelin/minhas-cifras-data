@@ -1,0 +1,90 @@
+Mana - Robot 
+ 
+A            D       E 
+Mi chica es todo en mí 
+A         F#m           C#m 
+pero ella es como un robot 
+A           D      E 
+no siente nada en sí 
+A          F#m           C#m 
+por más caricias que le doy. 
+ 
+A          D       E 
+Mi chica es un robot 
+A        F#m           C#m 
+con sentimiento programado 
+A          D      E 
+no siente el calor 
+A          F#m          C#m 
+voy a buscarle algún botón. 
+ 
+  F#m       C#m 
+//*Mi chica es 
+D              A E F#m 
+ella no tiene corazón 
+         C#m 
+mi chica es 
+D             A E F#m 
+de una batería son 
+                 C#m 
+sus sentimientos son 
+D             A E F#m 
+ella no tiene corazón 
+          C#m    D E 
+mi chica es. 
+ 
+A         D       E 
+Yo la amo de verdad 
+A           F#m        C#m 
+pero no quiere reaccionar 
+A         D       E 
+me va a desesperar 
+A         F#m         C#m 
+su sentimiento de metal. 
+ 
+C#m      G#m 
+Ella es así 
+C#m          G#m 
+como computadora 
+C#m          G#m   A 
+como calculadora 
+C#m       G#m 
+ella es así 
+C#m         G#m 
+ella es como mi almohada 
+C#m         G#m         A 
+ella es como mi nana. 
+ 
+  F#m       C#m 
+//*Mi chica es 
+D              A E F#m 
+ella no tiene corazón 
+         C#m 
+mi chica es 
+D             A E F#m 
+de una batería son 
+                 C#m 
+sus sentimientos son 
+D             A E F#m 
+ella no tiene corazón
+
+          C#m    D E 
+mi chica es. 
+ 
+F#m       C#m 
+La abrazo, la beso 
+D             A  E  F#m 
+no siente, es un robot 
+          C#m 
+no siente, no siente 
+D             A  E  F#m 
+ella es como un robot. 
+ 
+F#m       C#m 
+Le hablo, la miro 
+D             A  E  F#m 
+ella no tiene expresión 
+        C#m 
+no ríe, no llora 
+D             A  E  F#m 
+mi chica es un robot.

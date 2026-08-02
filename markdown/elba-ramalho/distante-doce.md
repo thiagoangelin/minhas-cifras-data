@@ -1,0 +1,42 @@
+Elba Ramalho - Distante Doce 
+ 
+     C             F                  C 
+Oi amor eu vim num pé de vento pra te ver 
+   C            F              C 
+Coração tava doidin de saudade d'ocê 
+          G         F                 C      Am 
+Não deu mais pra segurar no peito a paixão 
+       Dm         G                   C 
+Sem você flor tava demais em mim a solidão 
+    C            F                    C 
+Oi amor eu vim aqui só pra falar c'ocê 
+                   F                      C 
+Que a saudade tava a ponto de me enlouquecer 
+          G        F                      C   Am 
+Que não deu pra esquecer a luz do seu olhar 
+       Dm          G                   C 
+E que sem o seu carinho eu não sei ficar 
+           F                  C 
+Quero saber se a dona lua já entregou 
+                  F               C 
+O bilhetinho de amor que eu te mandei 
+           F                  C 
+Quero saber se a estrelinha lá do céu 
+                   F      G         C 
+Já deu o recadin procê conforme eu falei 
+          F                C 
+É tanto amor que nem cabe mais no peito 
+                      F               C 
+Coração de qualquer jeito queria te ver 
+          F                 C 
+Pois ele bate, bate todo atrapaiado 
+                     F       G          C 
+Grita num compasso errado distante d'ocê 
+ F           C 
+distante d'ocê 
+ F           C 
+distante d'ocê 
+ F           C 
+distante d'ocê 
+ F            C 
+ distante d'ocê

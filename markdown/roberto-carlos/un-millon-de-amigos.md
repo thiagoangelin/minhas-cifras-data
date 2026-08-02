@@ -1,0 +1,107 @@
+Roberto Carlos - Un Millon De Amigos 
+ 
+E         B7              E  
+Yo solo quiero mirar los campos  
+          B7              E  
+Yo solo quiero cantar mi canto  
+          B7             E  
+Pero no quiero cantar solito  
+              B7          E  
+Yo quiero un coro de pajaritos  
+ 
+           B7                E  
+Quiero llevar este canto amigo  
+               B7         E   E7  
+A quien lo pudiera necesitar  
+             A                 E  
+Quiero tener un millón de amigos  
+            B7             E  
+Y así más fuerte poder cantar  
+ 
+           B7              E  
+Yo solo quiero un viento fuerte  
+           B7              E  
+Llevar mi barco con rumbo norte  
+            B7             E  
+Y en el trayecto voy a pescar  
+           B7              E  
+Para dividir luego al arribar  
+ 
+           B7                E  
+Quiero llevar este canto amigo  
+               B7         E   E7  
+A quien lo pudiera necesitar  
+             A                 E  
+Quiero tener un millón de amigos  
+            B7             E  
+Y así más fuerte poder cantar   
+ 
+             B7                  E  
+Yo quiero creer en la paz del futuro  
+          B7               E  
+Quiero tener un hogar sin muros  
+             B7           E  
+Quiero a mi hijo pisando firme  
+          B7             E  
+Cantando algo sonriendo libre  
+ 
+           B7                E  
+Quiero llevar este canto amigo  
+               B7         E   E7  
+A quien lo pudiera necesitar  
+             A                 E  
+Quiero tener un millón de amigos  
+            B7             E  
+Y así más fuerte poder cantar   
+ 
+            B7                  E  
+Yo quiero amor siempre en esta vida  
+          B7               E  
+Sentir calor de una mano amiga  
+                B7               E  
+Quiero a mi hermano sonrisa al viento  
+          B7             E  
+Verlo llorar pero de contento  
+ 
+           B7                E  
+Quiero llevar este canto amigo  
+               B7         E   E7  
+A quien lo pudiera necesitar
+
+             A                 E  
+Quiero tener un millón de amigos  
+            B7             E  
+Y así más fuerte poder cantar  
+ 
+           B7             E  
+Vengan conmigo a ver los campos  
+           B7              E  
+Canten conmigo también mi canto  
+           B7            E  
+Pero no quiero cantar solito  
+              B7          E  
+Yo quiero un coro de pajaritos   
+ 
+           B7                E  
+Quiero llevar este canto amigo  
+               B7         E   E7  
+A quien lo pudiera necesitar  
+             A                 E  
+Quiero tener un millón de amigos  
+            B7             E  
+Y así más fuerte poder cantar  
+ 
+             A                 E  
+Quiero tener un millón de amigos  
+            B7             E  
+Y así más fuerte poder cantar  
+ 
+         A                 E  
+Quiero tener un millón de amigos  
+            B7             E  
+Y así más fuerte poder cantar  
+ 
+             A                 E  
+Quiero tener un millón de amigos  
+            B7             E  
+Y así más fuerte poder cantar

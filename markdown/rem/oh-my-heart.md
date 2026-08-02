@@ -1,0 +1,53 @@
+Rem - Oh My Heart 
+ 
+Am                 Am/B  C     G         F 
+The kids have a new take   A new take on faith 
+Am         Am/B C      G        Dm 
+Pick up pieces    Get carried away 
+   Am    Am/B      C    G         F 
+I came home    to city     half erased 
+   Am    Am/B      C   G         Dm 
+I came home    to face   what we faced 
+ 
+        C             G       Dm    Dm 
+This, place needs me here, to start 
+       C             G        Dm    Dm 
+This place, is the beat, of my heart 
+ 
+       C             G          Dm    Dm 
+Oh my heart  Oh my heart (Oh my heart) 
+Oh my heart  Oh my heart (Oh my heart) 
+ 
+Am            Am/B   C      G           F 
+Storm didn't kill me   The government changed 
+         Am     Am/B            C   G      Dm 
+Hear the answer call  Hear the song   rearranged 
+         Am         Am/B            C       G   F 
+Hear the trees, the ghosts and the buildings   sing 
+         Am     Am/B    C        G      Dm 
+With the wisdom     to reconcile   this thing 
+ 
+       C             G            Dm    Dm 
+It's sweet and it's sad and it's true 
+         C            G         Dm    Dm 
+How it, doesn't look bitter  on you 
+ 
+       C             G          Dm    Dm 
+Oh my heart  Oh my heart (Oh my heart) 
+Oh my heart  Oh my heart (Oh my heart) 
+ 
+Am            Am/B  C    G           F 
+Mother and father    I stand beside you 
+      Am          Am/B         C   G           Dm 
+The good of this world  Might help    see me through 
+      Am   Am/B           C    G     F 
+This place      needs me here    to start 
+      Am   Am/B         C   G         Dm*    (Baixo: D,E,F,G) 
+This place      is the beat    of my heart 
+ 
+       C             G          Dm    Dm 
+Oh my heart  Oh my heart (Oh my heart) 
+Oh my heart  Oh my heart (Oh my heart) 
+Oh my heart  Oh my heart (Oh my heart) 
+       C             G          Dm    Dm* 
+Oh my heart  Oh my heart (Oh my heart)

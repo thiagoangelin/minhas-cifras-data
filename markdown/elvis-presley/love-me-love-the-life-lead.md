@@ -1,0 +1,30 @@
+Elvis Presley - Love Me Love The Life Lead 
+ 
+Love Me, Love the Life I LeaD 
+Am                  C              G 
+I Am not a wise man neither Am I a fool 
+     D                                   Am  C  Am 
+But what I Am the way the GooD LorD maDe me 
+Am                                  C          G 
+ThouGh I neeD you more than you may ever unDerstanD 
+D              D7             G7 
+I Can't wear a faCe that will betray me 
+C   Am              C        G               D 
+Oh, If you're Gonna love me, love the life I leaD 
+Am                C                  G 
+NeeD the thinGs I neeD, Don't try to ChanGe me 
+Am              C        G                  D 
+If you're Gonna take me, take me for what I Am 
+D7                      G7 
+I Can't be another man, I Can't be free 
+         C 
+From The life I leaD, the life I leaD 
+Money in my poCket never seems to last too lonG 
+I've GAmbleD on the way anD DrowneD my sorrows 
+ThouGh GoD knows I Can't pretenD it's better on my own 
+I Can't promise you a new tomorrow 
+Oh, If you're Gonna love me, love the life I leaD 
+NeeD the thinGs I neeD, Don't try to ChanGe me 
+If you're Gonna take me, take me for what I Am 
+I Can't be another man, I Can't be free 
+'Cos The life I leaD is the life I leaD

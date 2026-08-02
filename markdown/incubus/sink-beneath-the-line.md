@@ -1,0 +1,13 @@
+Incubus - Sink Beneath The Line 
+ 
+ 
+fingering: 
+   2  1 4 1 4 3 2 1   2  1 4 1 4 3 2   1 3  2 1 4 1 4 3 2  
+1   2  1 4 1 3 3 3 
+                                                           
+             1 1 1 
+Key: 
+/ - Slide Up 
+\ - Slide Down 
+h - Hammer-On 
+~ - Tremolo

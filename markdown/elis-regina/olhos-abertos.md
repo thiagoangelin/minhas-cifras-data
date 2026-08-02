@@ -1,0 +1,33 @@
+Elis Regina - Olhos Abertos 
+ 
+F#(9)            F#7M(9)            F#7(9)  F#6(9)  F#(9) 
+Atravessando uma ponte de noite, no meio da chuva 
+D              Eº             F#(9)                B9 
+Cercada pelo silêncio daquela cidade do interior 
+F#(9)               F#7M(9)        F#7(9)       F#6(9)  F#(9) 
+Depois da ponte uma estrada de terra, molhada de chuva 
+D               Eº          F#(9)                  B9 
+Cercada pelo silêncio e sem nenhum pedaço de amor 
+ 
+F#(9)            F#7M(9)       F#7(9)       F#6(9)  F#(9) 
+Vendo os olhares desertos de tantas pessoas antigas 
+D                Eº             F#(9)                     B9 
+Tantas pessoas amigas querendo um cigarro e um carinho 
+F#(9)              F#7M(9)            F#7(9)       F#6(9)  F#(9) 
+Gente que puxa uma briga na estrada, com os olhos brilhando 
+D       Eº       B9         G#m          B9  F#(9) 
+Precisa só de um abraço, bem forte e bem dado 
+ 
+B9           G#m        F#(9)   B9 
+E eu quero encontrar as pesso...as 
+   G#m           C#  B9 
+De mãos e olhos aber..tos 
+G#m        F#(9)                C#    B9  F#(9) 
+Sem me preocupar com dinheiro e posi..ção 
+ 
+B9           G#m        F#(9) B9 
+Eu preciso encontrar as pessoas 
+F#(9)                   G#m F#(9) 
+Ficar de mãos dadas com elas 
+B9              F#(9)     G#m      B9  C# 
+Conversar com a boca e os olhos do coração

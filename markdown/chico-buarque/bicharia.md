@@ -1,0 +1,69 @@
+Chico Buarque - Bicharia 
+ 
+Luiz Enriquez & Sérgio Bardotti (versão: Chico Buarque) 
+ 
+F       Dm  Bb        C7 
+Au, au, au, hi-ho, hi-ho 
+F           Dm    Gm    C7 
+Miau, miau, miau, cocorocó. 
+  F  F7    Bb    F 
+O animal é tão bacana 
+G7                        C7 
+Mas também não é nenhum banana. 
+F       Dm  Bb        C7 
+Au, au, au, hi-ho, hi-ho 
+F           Dm    Gm    C7 
+Miau, miau, miau, cocorocó. 
+F        F7    Bb      F 
+Quando a porca torce o rabo 
+Bb         F      C7        F 
+Pode ser o diabo, ora vejam só 
+Bb      F   C7    F 
+Au, au, au, cocorocó. 
+ 
+F       Dm     Bb C7 
+Era uma vez (e é ainda) 
+F       Dm    Bb C7 
+Certo país (e é ainda) 
+F          C7           F7         Bb 
+Onde os animais eram tratados como bestas 
+ C7   F     G7   C7 
+(são ainda, são ainda). 
+F          Dm   Bb   C7 
+Tinha um barão (tem ainda) 
+F      Dm    Bb   C7 
+Espertalhão (tem ainda) 
+F          C7             F7           Bb 
+Nunca trabalhava e então achava a vida linda 
+         F       C7    F 
+(e acha ainda, e acha ainda). 
+ 
+Au, au, au, hi-ho, hi-ho 
+Miau, miau, miau, cocorocó. 
+O animal é paciente 
+Mas também não é um demente. 
+Au, au, au, hi-ho, hi-ho 
+Miau, miau, miau, cocorocó. 
+Quando o homem exagera 
+Bicho vira fera, ora vejam só 
+Au, au, au, cocorocó. 
+ 
+Puxa, jumento (só puxava) 
+Choca galinha (só chocava) 
+Rápido, cachorro, guarda a casa, corre e volta 
+(só corria, só voltava). 
+Mas chega um dia (chega um dia) 
+Que o bicho chia (bicho chia) 
+Bota prá quebrar que eu quero ver quem paga o pato 
+Pois vai ser um saco de gatos. 
+ 
+Au, au, au, hi-ho, hi-ho 
+Miau, miau, miau, cocorocó. 
+O animal é tão bacana 
+Mas também não é nenhum banana. 
+Au, au, au, hi-ho, hi-ho 
+Miau, miau, miau, cocorocó. 
+Quando a porca torce o rabo 
+Pode ser o diabo, ora vejam só 
+Au, au, au, cocorocó. 
+Au, au, au, cocorocó.

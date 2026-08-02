@@ -1,0 +1,57 @@
+Paulinho Moska - Ima 
+ 
+- Intr.: D4(9) 
+ 
+D4(9)              E/D 
+Acabo de pousar na sua janela 
+ Gm6/D 
+E mesmo sem você notar 
+D4(9)                     G9(13) 
+Estou aqui porquê não consegui 
+               D4(9) 
+Me destrair por aí 
+   C9                       G/B 
+Afinal o que que eu posso fazer? 
+    A7                                           D4(9) 
+Se não me lembro mais o que era antes de te conhecer 
+   D4(9) 
+Seu vidro embaçado 
+       E/D 
+Não me deixa entrar no quarto 
+  Gm6/D              D4(9) 
+Mas o silêncio que você não está 
+               G9(13)              D4(9) 
+Porquê não conseguiu ficar sozinha ali 
+   C9                    G/B 
+Afinal o que você pode fazer? 
+    A7 
+Se não se lembra mais o que era antes de me conhecer 
+ 
+G9(13)         D4(9) 
+Tão distantes enfim 
+G9(13)       Gm6      A7 
+Sem querer está... assim 
+ 
+D4(9) // E/D / Gm6/D /  
+ 
+ D4(9) 
+O fim da sua linha 
+      E/D 
+É o começo da minha 
+   Gm6/D                   D4(9) 
+De qual lugar você trará um novo amor 
+                     G9(13) 
+Que ao menos não me culpe 
+                     D4(9) 
+De te perder pra ninguém? 
+      C9                         G/B 
+Ou será que não há mais nada a fazer 
+    A7 
+Se ninguém lembra mais o que era antes de nos conhecer 
+ 
+G9(13)         D4(9) 
+Tão distantes enfim 
+G9(13)       Gm6      A7 
+Sem querer está... assim 
+ 
+( D4(9) / E/D / Gm6/D / D4(9) / )

@@ -1,0 +1,79 @@
+Fresno - Maior Que As Muralhas 
+ 
+[Intro]  E  D  A  E 
+ 
+A                               E 
+  E quando a luz parece se desviar 
+A                                     E 
+  Nosso sangue carece, de um pouco de ar 
+A                               D 
+  Não encontramos nada pra segurar 
+             B7 
+Me resta gritar 
+ 
+                  E 
+Chegou a hora de ser 
+                D 
+Maior que as muralhas 
+                A 
+Tentarão me vencer 
+    E 
+Em vão 
+ 
+A                                   E 
+  E quando a noite teima em prosseguir 
+A                                            E 
+  E a luz do sol não queimar, nem se faz sentir 
+A                              D 
+Qualquer lugar parece melhor que aqui 
+        B7 
+Eu percebi 
+ 
+                  E 
+Chegou a hora de ser 
+                D 
+Maior que as muralhas 
+                 A 
+Tentarão me prender 
+    E 
+Em vão 
+ 
+                  E 
+A gente pode crescer 
+              D 
+Perdendo a batalha 
+                  A 
+Não deixa a vida escorrer 
+    E 
+Das mãos 
+ 
+   D 
+Palavras são armas 
+   A/C# 
+Estão apontadas 
+     C 
+Pro peito de quem tentar 
+        B7 
+Me impedir 
+ 
+                  E 
+Chegou a hora de ser 
+                D 
+Maior que as muralhas 
+                A 
+Tentarão me apagar 
+           E 
+Com escuridão 
+ 
+                     E 
+A gente aprende a viver
+
+             D 
+No fio da navalha 
+                  A 
+De que adianta viver 
+    E 
+Em vão? 
+ 
+                       D  A/C#     C  B7    A 
+Não deixa a vida escorrer....das mã...os

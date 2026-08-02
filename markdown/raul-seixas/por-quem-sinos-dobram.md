@@ -1,0 +1,97 @@
+Raul Seixas - Por Quem Sinos Dobram 
+ 
+[Intro] A  F#m  E  Bm  C#m 
+ 
+[Primeira Parte] 
+ 
+ F#m                E 
+Nunca se vence uma guerra 
+           D 
+Lutando sozinho 
+      Bm 
+"Cê" sabe que a gente precisa 
+              F#m 
+Entrar em contato 
+     E 
+Com toda essa força contida 
+              A 
+Que vive guardada 
+  B 
+O eco de suas palavras 
+          E 
+Não repercute em nada 
+   F#m 
+É sempre mais fácil 
+E                      D 
+Achar que a culpa é do outro 
+  Bm 
+Evita o aperto de mão 
+               F#m 
+De um possível aliado 
+    E 
+Convence as paredes do quarto 
+             A 
+E dorme tranqüilo 
+   B 
+Sabendo que no fundo do peito 
+             E 
+Que não era nada daquilo 
+   D 
+Coragem, coragem 
+      D#º 
+Se o que você quer 
+     A                F#m 
+É aquilo que pensa e faz 
+   Bm 
+Coragem, coragem 
+    E                 A    A7 
+Eu sei que você pode mais 
+   D 
+Coragem, coragem 
+      D#º 
+Se o que  você quer 
+     A                F#m 
+É aquilo que pensa e faz 
+   Bm 
+Coragem, coragem 
+        E 
+Que eu sei que você pode 
+ A 
+Mais 
+ 
+( G#m C#7 ) 
+ 
+[Solo] F#m  E  D  Bm 
+       F#m  E  A  B  E 
+ 
+[Segunda Parte] 
+ 
+   F#m
+
+É sempre mais fácil 
+  E                    D 
+Achar que a culpa é do outro 
+  Bm 
+Evita o aperto de mão 
+                 F#m 
+De um possível aliado 
+    E 
+Convence as paredes do quarto 
+             A 
+E dorme tranqüilo 
+   B 
+Sabendo que no fundo do peito 
+             E 
+Que não era nada daquilo 
+   D 
+( Coragem, coragem ) 
+      D#º 
+Se o que  você quer 
+    A                 F#m 
+É aquilo que pensa e faz 
+   Bm 
+Coragem, coragem 
+        E                 A7 
+Que eu sei que você pode mais 
+ 
+( A7/5+  Bm7/-5   (E7 A) )

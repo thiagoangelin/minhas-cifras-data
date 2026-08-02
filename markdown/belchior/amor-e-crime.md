@@ -1,0 +1,69 @@
+Belchior - Amor E Crime 
+ 
+ B            Fº 
+Amor, não há amor 
+E                 B        C#m 
+ Existem só provas de amor 
+            E     F#        B   E  F# 
+Mas, no amor, provas não bastam 
+E             F#                    B 
+Tudo mentira. Tudo cinema. Apenas cenas 
+             A          E 
+Quando, em ledo engano me acenas 
+      F# 
+Regressando em algum trem 
+Gº                     B     G#m 
+Ah! Essa história de amor 
+             E 
+Porque uns barcos se afastam 
+         F#                B   E   F#7 
+E mil sereias cantam sem pudor 
+           B 
+Oh! Que trágico destino 
+      Ebm                E 
+Preferir-se o assassino 
+           Em 
+Ao amante mais leal 
+             B 
+E que os bandidos são úteis 
+  C#m 
+E nós, os amantes, fúteis 
+E        F#      B   Solo: (2x B C#m Gº B E Gº B F#) 
+ Vulgaridade do mal 
+ 
+ B            Fº 
+Amar agora é crime 
+E                 B 
+Só a paixão nos redime 
+C#m                  E 
+   Da obsessão do sublime 
+F#       B   E  F# 
+   Do ideal 
+E             F#                    B 
+Tudo romance, tudo poema apenas cenas 
+       A          E 
+Fazer mal no amor..é a gloria? 
+       F# 
+E o sofrer, da paz? A quem? 
+Gº                    B     G#m 
+Ah! Essa história de dor 
+          E 
+Buscar o amor sem vitória 
+         F# 
+Voltar feliz, sem memória 
+       B            E F# 
+Ao paraíso terreal 
+           B 
+Oh! Que trágico destino 
+      Ebm                E 
+Preferir-se o assassino 
+           Em 
+Ao amante mais leal 
+             B 
+E que os bandidos são úteis 
+  C#m 
+E nós, os amantes, fúteis 
+E        F#      B 
+ Vulgaridade do mal 
+ 
+Solo: ( B C#m Gº B E Gº B F#)

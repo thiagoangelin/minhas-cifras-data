@@ -1,0 +1,32 @@
+Gilberto Gil - Esoterico 
+ 
+[Intro] G  F#m  Em  A  Bm 
+        G  F#m  Em  A  D 
+        D  G/D  D  G/D  D 
+ 
+                  E/D 
+Não adianta nem me abandonar 
+G                                        D 
+Porque mistério sempre há de pintar por aí 
+                 E/D 
+Pessoas até muito mais vão lhe amar 
+G                                     D 
+Até muito mais difíceis que eu prá você 
+                                     G 
+Que eu, que dois, que dez, que dez milhões, todos 
+   D 
+Iguais 
+F#                     Bm 
+Até que nem tanto esotérico assim 
+       E7                                    A7  G 
+Se eu sou algo incompreensível, meu Deus é mais 
+Gm                     D 
+Mistério sempre há de pintar por aí 
+D                    E/D 
+Não adianta nem me abandonar (não adianta não) 
+G 
+Nem ficar tão apaixonada, que nada 
+ 
+Que não sabe nadar 
+                         D 
+Que morre afogada por mim

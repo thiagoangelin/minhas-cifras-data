@@ -1,0 +1,81 @@
+Johnny Cash - Blue Yodel No 9 
+ 
+ G# 
+YAY IM STANDING ON THE CORNER 
+ 
+I DIDNT MEAN NO HARM 
+ 
+C# 
+WHEN THE POLICE CAME BY 
+ 
+D#                       G# 
+HE TOOK ME RIGHT BY THE ARM 
+ 
+G# 
+AND IT WAS C WN IM MEMPHIS 
+ 
+THE CORNER OF BIEL AND MAINE 
+ 
+C# 
+HE SAID HEY THED  BIG BOY 
+ 
+ D#                      G# 
+YOU BETTER TELL ME YOUR NAME 
+ 
+(AND ALL I COULD SAY WAS) 
+ 
+G#           D#         G# 
+YODEL EYEEEE ETC.... 
+ 
+ G# 
+I SAID 'WELL YOU'D FIND MY NAME RIGHT ON THE TAIL OF 
+MY SHIRT 
+ 
+C# 
+COZ IM A TENNESSE HUSTLER 
+ 
+D#                          G# 
+AND I AINT ABOUT TO WAIT I SAID 
+ 
+G# 
+NOW LISTEN ALL YOU ROUNDERS 
+ 
+ G# 
+YOU BETTER LEAVE MY GAL ALONE 
+ 
+ C# 
+OR I WILL TAKE MY SPECIAL 
+ 
+ D#                       G# 
+AND RUN ALL YOU ROUNDERS HOME 
+ 
+C#          G# 
+AND THEN I SAID' 
+ 
+G#             D#        G# 
+YODEL EYEEEE YODEL EYYYE ETC.... 
+ 
+INSTRUMENTAL; G#   C#   D#  G# 
+ 
+G# 
+WELL MY GOOD GAL, ALL EVERYBODY KNOWS, 
+EVERYBODY KNOWS YOU AD  
+ 
+C# 
+SHE PAID A HUNDDD  CASH C LA RS 
+ 
+D#                           G# 
+FOR ME A BRAND NEW SUIT OF CLOTHES
+
+G# 
+SHE COME INTO THE JOINT WITH A 44' GUN AND HE SHED 
+ 
+              C#                      D#           G# 
+AND SAID NOW STAND ABDE  THED  IM LOOKING FOR MY 
+MAN 
+ 
+(I SEE HER IN THE BACK ,AND I STOOD UP THED  AND I 
+SAID) 
+ 
+G#                  D#                  G# 
+YODELEE ETC....

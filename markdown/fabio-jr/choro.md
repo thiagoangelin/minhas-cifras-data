@@ -1,0 +1,68 @@
+Fabio Jr - Choro 
+ 
+[Intro] Am  Am/G  D/F#  F  E4 
+ 
+Am 
+   Tem uma hora que bate 
+         Am/G 
+Uma tristeza tão grande 
+D/F# 
+    Que eu não sei o que fazer 
+   F            E4 
+E nem pra onde ir 
+Am 
+  É tanta coisa 
+                 Am/G 
+Que eu queria dizer 
+D/F#                        F    E4 
+   Mas não tem ninguém pra ouvir 
+   Am       Am/G               D/F#  F  E4 
+Então choro       sem ninguém ver 
+    Am    Am/G  D/F#  F  E4 
+Eu choro 
+Am                                 Am/G 
+   Faço o possível pra segurar a cabeça 
+D/F#                 F    E4 
+   Mas a emoção não quer 
+Am 
+  Que eu me desfaça 
+      Am/G 
+Ou então que eu esqueça 
+D/F#                   F    E4 
+   Do amor daquela mulher 
+      Am 
+E eu choro 
+Am/G            D/F#  F  E4 
+     Sem ela saber 
+    Am   A7 
+Eu choro 
+ 
+ Dm 
+Choro por tudo 
+       G7 
+Que a gente não teve 
+C                         Am 
+Por tudo que a gente não realizou 
+Dm                          Bm7(5-)      E7 
+   Choro porque eu sei que ainda te amo 
+     Am         A7 
+E você me amou e ama 
+ Dm 
+Choro por tudo 
+      G7 
+Se assim for preciso 
+C                           Am 
+  Choro porque eu sei que ainda te quero 
+Dm 
+  Choro por tudo 
+       Bm7(5-)       E7 
+E por tudo lhe digo 
+ 
+      Am       A7 
+Te espero, te quero 
+      Am   Am/G 
+Te espero, te quero 
+D/F#        F 
+     Te amo 
+E4      Am 
+   Eu choro

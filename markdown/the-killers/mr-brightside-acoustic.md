@@ -1,0 +1,24 @@
+The Killers - Mr Brightside Acoustic 
+ 
+Afine a 1ª corda (E4) em Eb para a tab dar certo 
+ 
+Intro: 
+ 
+Verso: 
+I'm coming out of my cage And I've been doing just fine 
+Gotta gotta be down Because I want it all 
+It started out with a kiss, How did it end up like this 
+It was only a kiss, it was only a kiss 
+Now I'm falling asleep, And she's calling a cab 
+While he's having a smoke, And she's taking a drag 
+Now they're going to bed, And my stomach is sick 
+And it's all in my head, But she's touching his 
+ 
+Refrão: 
+Jealousy, turning saints into the sea 
+Swimming through sick lullabies 
+Choking on your alibis 
+But it's just the price I pay 
+Destiny is calling me 
+Open up my eager eyes 
+'Cause I'm Mr Brightside

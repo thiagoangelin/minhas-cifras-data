@@ -1,0 +1,29 @@
+Ira - Nadzieja 
+ 
+D C2 G C2  
+Możesz masz w głowie myśli bardziej szalone niż ja  
+D C2 G C2  
+Może masz skrzydła których by Tobie pozazdrościł ptak  
+D C2 G C2  
+Może masz serce całe ze szlachetnego szkła  
+D C2 G C2  
+Może masz kogoś a może właśnie kogoś Ci brak  
+C D C D  
+Nie płacz, nie płacz, o nie  
+ 
+Może masz oczy w których nie gościł dotąd strach  
+Może masz w sobie niechę do wojny i brudnych spraw  
+Może masz litość a może uczuć już w tobie brak  
+Może masz wszystko, lecz nie masz tego co mam ja  
+D C2 G C2  
+Ref.: Nie ma nikt, takie nadziei jak ja  
+D C2 G C2  
+Nie ma nikt, takiej wiary w ludzi i cały ten świat  
+D C2 G C2  
+Nie ma nikt, tylu zmarnowanych lat  
+D C2 G  
+Nie ma nikt, bo któż to wszystko mieć by chciał  
+G F C G  
+Tylko ja  
+F F C G  
+Tylko ja

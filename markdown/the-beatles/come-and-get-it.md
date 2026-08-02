@@ -1,0 +1,53 @@
+The Beatles - Come And Get It 
+ 
+       E 
+If you want it, here it is come and get it 
+     A                   B7 
+mmmmmm make your mind up fast 
+       E 
+If you want it, anytime, I can give it 
+               A                       B7 
+But you better hurry 'cause it may not last 
+ 
+C                             G/B 
+Did I hear you say that there must be a catch 
+F                         E            B7 
+Will you walk away from a fool and his money? 
+       E 
+If you want it, here it is come and get it 
+               A                B7    E       B7 
+But you better hurry 'cause its goin' fast 
+ 
+       E 
+If you want it, here it is come and get it 
+     A                   B7 
+mmmmmm make your mind up fast 
+       E 
+If you want it, anytime, I can give it 
+               A                       B7 
+But you better hurry 'cause it may not last 
+ 
+C                             G/B 
+Did I hear you say that there must be a catch 
+F                  E                   B7 
+Will you walk away from a fool and his money? 
+             E 
+Sonny, if you want it, here it is come and get it 
+               A                B7    E 
+But you better hurry 'cause its goin' fast 
+           A                B7    C     G/B 
+You better hurry 'cause its goin' fast 
+ 
+F 
+Uuuuhhh... 
+E            B7 
+Fool and his money... 
+ 
+              E 
+Sonny, if you want it, here it is come and get it 
+               A                B7    E 
+But you better hurry 'cause its goin' fast 
+           A                B7    E 
+You better hurry 'cause its goin' fast 
+           A                B7    C         E 
+You better hurry 'cause its goin' fast

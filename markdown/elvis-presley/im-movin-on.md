@@ -1,0 +1,80 @@
+Elvis Presley - Im Movin On 
+ 
+Standard tuning. 
+    Intro goes something like this: 
+    e||-----5---5---5----4----3------1-----1------1----|| 
+    B||--------------------------------1-----1---------|| 
+    G||--/5---5---5----4----3------2-----2-------------|| 
+    D||------------------------------------------------|| 
+    A||------------------------------------------------|| 
+    E||------------------------------------------------|| 
+ 
+    F 
+    That big eight-wheeler runnin' down the track 
+    F 
+    Means your true lovin' daddy ain't acomin' back 
+                        Bb            F 
+    'Cause he's movin on, he's rollin on 
+             C7 
+    You were flyin to high for my little ol' sky 
+                  F 
+    So I'm movin' on 
+ 
+    F 
+    But some day baby when you've had you play 
+    F 
+    Your gonna want your daddy but your daddy will say 
+                  Bb             F 
+    Keep movin' on, keep rollin' on 
+              C7 
+    You were flyin to high for my little ol' sky 
+                  F 
+    So I'm movin' on. Move on baby. 
+ 
+    Solo: F  Bb  F C7  F 
+ 
+    F 
+    Mr. Farmer won't you please listen to me 
+    F 
+    'Cause I gotta pretty momma in Tennessee 
+                Bb              F 
+    Keep rollin on, keep movin' on, 
+           C7 
+    Please listen to me let this rattler free 
+                    F 
+    And keep movin' on 
+    Move on ol' son, move on 
+ 
+    Solo: F  Bb  F C7  F 2x 
+    F 
+    Well I told you baby from time to time 
+    F 
+    But you just wouldn't listen or pay me no mind 
+                         Bb            F 
+    And now I'm movin' on, I'm rollin' on 
+        C7 
+    I'm through with you, too bad you're blue 
+                   F 
+    But I'm movin' on 
+    Move on baby, move on 
+    F 
+    I said move on, I said move on, 
+                  Bb            F 
+    I said move on, I said move on, 
+             C7 
+    Well I'm through with you, too bad you're blue 
+                F               F 
+    I said move on, I said move on 
+                 Bb             F 
+    I said move on, I said move on
+
+             C7 
+    Well I'm through with you, too bad you're blue 
+                F               F 
+    I said move on, I said move on 
+                 Bb             F 
+    I said move on, I said move on 
+             C7 
+    Well I'm through with you, too bad you're blue 
+                F               F 
+    I said move on, I said move on

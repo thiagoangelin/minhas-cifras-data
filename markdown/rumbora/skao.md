@@ -1,0 +1,102 @@
+Rumbora - Skao 
+ 
+ 
+Intro: Dm Bbm Dm Gm Dm Bbm Dm Gm 
+ 
+Dm 
+Qual o seu nome? 
+Gm 
+vem pra cá 
+Dm                   Gm 
+Tenho uma coisa importante pra falar 
+Dm        Gm 
+Agradeço, uuuu... 
+                Dm 
+Aos seus pais, aaa.. 
+Inspiração não faltou 
+Gm 
+Tu saiu demais 
+Dm              Gm 
+É tudo teu, ou tu pegou emprestado 
+        Dm 
+Me chamou tanta atenção 
+                Gm 
+Que eu nem consigo olhar pro lado 
+        Dm 
+Vem comigo, vamo nessa 
+           A 
+dar uma volta 
+                     Dm 
+Pega uma bira ali no bar 
+                 Eb 
+Dechavata essa muvuca pra 
+            Dm 
+gente conversar 
+                A 
+Desencana de carona 
+                  Dm 
+Tá comigo, tá com Deus 
+                A 
+Tua amiga tá na boa, alguém 
+             G 
+vai saber cuidar 
+                  A 
+Essa música é sucesso, 
+                Bb 
+Vamo logo lá dançar 
+                Db 
+Tá rolando o Skaô, quero ver 
+        Dm 
+cê rebolar 
+ 
+Repete ->Introdução 
+ 
+oo..oo.oo... 
+ 
+Dm 
+Como assim? 
+Gm 
+Que é que há? 
+Dm              Gm 
+Não é nada que você não vá gostar 
+Dm                       Gm 
+Vamo ali no carro, quero te mostrar 
+         Dm 
+o som do Rumbora 
+                      Gm 
+É muito doido, cê vai ver 
+que é muito bom 
+        Dm                     A
+
+Vem comigo, que eu quero cê também 
+                   Dm 
+Pra fazer o que eu quero, com você 
+         A 
+e não alguém, ah, tá! 
+Dm                 A 
+Desencana dessa roupa, olha 
+             Dm 
+que calor do cão 
+                  A 
+acho que talvez melhore se 
+                G 
+eu abrir este botão 
+                     A 
+Essa música é um sucesso, 
+                        Bb 
+gruda em mim pra não largar 
+                Db 
+Agora na horizontal o skaô vai 
+    Dm 
+decolar 
+ 
+Dm Bbm  Dm   Gm 
+Oo.     oo.. oo... 
+ 
+Dm              Gm        A 
+Agora na horizontal, o skaô 
+        Dm 
+vai decolar 
+ 
+Dm Bbm  Dm  Gm 
+Oo..    oo..oo..

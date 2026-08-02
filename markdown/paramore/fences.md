@@ -1,0 +1,118 @@
+Paramore - Fences 
+ 
+[Intro] Bm  F#m  Bm  F#m 
+ 
+       Bm 
+  I'm sitting in a room 
+                  F#m 
+  Made up of only big white walls 
+ 
+  And in the halls 
+            Bm 
+  There are people looking through the window and the door 
+       F#m 
+  They know exactly what we're here for 
+   Em 
+  Don't look up, just let them think 
+          A 
+  There's no place else you'd rather be 
+         Bm 
+  You're always on display 
+                  F#m 
+  For everyone to watch and learn from 
+                        Em 
+  Don't you know by now 
+ 
+                  D   A 
+  You can't turn back 
+            Em                    G     F# 
+  Because this road is all you'll ever have 
+ 
+Bm                                G   Em  F# 
+  And it's obvious that you're dying, dying 
+Bm                            G       Em  F# 
+  Just living proof that the camera's lying 
+      G           Em 
+  And oh, oh open wide 
+                       G         A 
+  'Cause this is your night, so smile 
+         Bb°               Bm    F#m 
+  'Cause you'll go out in style 
+                Bm        F#m 
+  You'll go out in style 
+ 
+             Bm 
+  If you let me I could 
+                      F#m 
+  I'd show you how to build your fences 
+ 
+  Set restrictions 
+     Bm 
+  Separate from the world 
+                               F#m 
+  The constant battle that you hate to fight 
+ 
+  Just blame the limelight 
+ Em 
+  Don't look up, just let them think 
+          A                                Em 
+  There's no place else you'd rather be in now 
+ 
+                  D  A 
+  You can't turn back 
+              Em                   G    F# 
+  Because this road is all you'll ever have 
+ 
+Bm                                G   Em  F# 
+  And it's obvious that you're dying, dying 
+Bm                            G       Em  F# 
+  Just living proof that the camera's lying
+
+      G           Em 
+  And oh, oh open wide 
+                       G         A  Bb° 
+  'Cause this is your night, so smile 
+ 
+Em                              G 
+  Yeah, yeah you're asking for it 
+                               D 
+  With every breath that you breathe in 
+         A 
+  Just breathe it in 
+Em                                  G 
+  Yeah, yeah well you're just a mess 
+                           D 
+  You do all this big talking 
+                           A 
+  So now let's see you walking 
+ 
+  I said let's see you walking 
+ 
+  [Solo] Bm  Bb°  A  Ab°  G 
+       Bm  Bb°  A  Ab°  G 
+       Bm  G  Em  F# 
+       Bm  G  Em  F# 
+ 
+Em                                  G 
+  Yeah, yeah well you're just a mess 
+                           D 
+  You do all this big talking 
+                           A 
+  So now let's see you walking 
+ 
+  I said let's see you walking 
+ 
+Bm                                G   Em  F# 
+  And it's obvious that you're dying, dying 
+Bm                            G       Em  F# 
+  Just living proof that the camera's lying 
+      G           Em 
+  And oh, oh open wide 
+      G           Em 
+  Yeah oh, oh open wide 
+      G           A 
+  Yeah oh, oh open wide 
+            Bb°             Bm  F#m 
+  'Cause you'll go out in style 
+               Bm        F#m 
+  You'll go out in style

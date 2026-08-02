@@ -1,0 +1,122 @@
+Gilberto Gil - Chuck Berry Fields Forever 
+ 
+[Intro]  A7  E7 
+ 
+   A7                       D7             A7 
+Trazidos d'África pra Américas de Norte e Sul 
+                             D7           A7 
+Tambor de tinto timbre tanto tonto tom tocou 
+                            D7           A7 
+E neve, garça branca, valsa do Danúbio Azul 
+                             F7   E7    A7     E7 
+Tonta de tanto embalo, num estalo desmaiou 
+   A7                           D7           A7 
+Vertigem verga, a virgem branca tomba sob o sol 
+                            D7          A7 
+Rachado em mil raios pelo machado de Xangô 
+                            D7                           A7 
+E assim gerados, a rumba, o mambo, o samba, o rhythm'n'blues 
+                               F7      E7       A7 
+Tornaram-se os ancestrais, os pais do rock and roll 
+ 
+                D7 
+Rock é o nosso tempo, baby 
+E7               A7 
+Rock and roll é isso 
+B7 
+Chuck Berry fields forever 
+    E7                   D7 
+Os quatro cavaleiros do após-calipso 
+C#9      A7 
+O após-calipso 
+          D7 
+Rock and roll,  
+ 
+Capítulo um 
+   A7 
+Versículo vinte 
+B7 
+Sículo vinte 
+Bb7             A7 
+Século vinte e um 
+ 
+Versículo vinte 
+B7 
+Sículo vinte 
+Bb7             A7    E7 
+Século vinte e um 
+ 
+   A7                       D7            A7 
+Trazidos d'África pra Américas de Norte e Sul 
+                             D7           A7 
+Tambor de tinto timbre tanto tonto tom tocou 
+                            D7          A7 
+E neve, garça branca, valsa do Danúbio Azul 
+                             F7   E7    A7    E7 
+Tonta de tanto embalo, num estalo desmaiou 
+   A7                           D7          A7 
+Vertigem verga, a virgem branca tomba sob o sol 
+                            D7          A7 
+Rachado em mil raios pelo machado de Xangô 
+                            D7                           A7 
+E assim gerados, a rumba, o mambo, o samba, o rhythm'n'blues 
+                               F7      E7       A7 
+Tornaram-se os ancestrais, os pais do rock and roll 
+ 
+                D7 
+Rock é o nosso tempo, baby 
+E7               A7 
+Rock and roll é isso
+
+B7 
+Chuck Berry fields forever 
+    E7                   D7 
+Os quatro cavaleiros do após-calipso 
+C#9      A7 
+O após-calipso 
+          D7 
+Rock and roll,  
+ 
+Capítulo um 
+   A7 
+Versículo vinte 
+B7 
+Sículo vinte 
+Bb7            A7 
+Século vinte e um 
+ 
+Versículo vinte 
+B7 
+Sículo vinte 
+Bb7            A7    E7 
+Século vinte e um 
+ 
+[Solo]  A7  D7  A7  D7  A7  D7  A7 F7  E7  A7  E7 
+        A7  D7  A7  D7  A7  D7  A7  F7  E7  A7 
+ 
+                D7 
+Rock é o nosso tempo, baby 
+E7               A7 
+Rock and roll é isso 
+B7 
+Chuck Berry fields forever 
+    E7                   D7 
+Os quatro cavaleiros do após-calipso 
+C#9      A7 
+O após-calipso 
+          D7 
+Rock and roll,  
+ 
+Capítulo um 
+   A7 
+Versículo vinte 
+B7 
+Sículo vinte 
+Bb7            A7 
+Século vinte e um 
+ 
+Versículo vinte 
+B7 
+Sículo vinte 
+Bb7            A7    E7    A7 
+Século vinte e um

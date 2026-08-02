@@ -1,0 +1,71 @@
+Detonautas - Combate 
+ 
+Intro: F#5 
+ 
+F5 
+Levanta cedo, vamos pro front guerreiro 
+Cabeça erguida que essa batalha apenas começou 
+ 
+F5 
+Enfrente o medo 
+e a insegurança, 
+Seguindo em frente 
+que a nossa gente não desistiu nem se entregou 
+ 
+F5 
+Não avançar é recuar, 
+então preparem as armas porque nós vamos invadir o lugar 
+Sabedoria, inteligência, 
+conhecimento é o pesadelo de quem quer nos enganar 
+ 
+Refrão 2x: 
+F5          G# 
+Ninguém vai recuar 
+F5        G#             C#                  Bb5 
+Estamos prontos pro combate o medo é fé no contrário você  
+tem fé em que? 
+F#5       A#5         F#5           A#5 
+Não há motivos pra temer nem nada e nem ninguém 
+D#5           C#5 
+A vitória só chega pra quem enfrenta 
+ 
+F5 
+Levanta cedo, vamos pro front guerreiro 
+Cabeça erguida que essa batalha apenas começou 
+ 
+F5 
+Enfrente o medo 
+e a insegurança, 
+Seguindo em frente 
+que a nossa gente não desistiu nem se entregou 
+ 
+F5 
+Não avançar é recuar, 
+então preparem as armas porque nós vamos invadir o lugar 
+Sabedoria, inteligência, 
+conhecimento é o pesadelo de quem quer nos enganar 
+ 
+Refrão 2x: 
+F5          G#5 
+Ninguém vai recuar 
+F5        G#5             C#5                  Bb5 
+Estamos prontos pro combate o medo é fé no contrário você  
+tem fé em que? 
+F5       A#5         F5           A#5 
+Não há motivos pra temer nem nada e nem ninguém 
+C#5            Bb5 
+A vitória só chega pra quem enfrenta 
+ 
+[SOLO] 
+ 
+Refrão 2x: 
+F5           G#5 
+Ninguém vai recuar 
+F5        G#5             C#5                   Bb5 
+Estamos prontos pro combate o medo é fé no contrário você  
+tem fé em que? 
+F5        G#5         F5            G#5 
+Não há motivos pra temer nem nada e nem ninguém 
+F5            G#5                     (F5*)
+
+A vitória só chega pra quem enfrenta.

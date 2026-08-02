@@ -1,0 +1,72 @@
+Djavan - Vamos Fugir Part Daude 
+ 
+[Intro] Bm  G  A  Bm 
+ 
+        D            A 
+Vamos fugir  Deste lugar, baby 
+        Bm 
+Vamos fugir 
+       G 
+Tô cansado de esperar 
+  A             Bm 
+Que você me carregue 
+         D               A 
+Vamos fugir  Pra outro lugar, baby         
+        Bm 
+Vamos fugir 
+          G 
+Pra onde quer que você vá 
+  A            Bm 
+Que você me carregue 
+               D     A      G 
+Pois diga que irá  Irajá, Irajá 
+ 
+Prá onde eu só veja você 
+               D     A       G 
+Você veja mim só  Marajó, Marajó 
+ 
+Qualquer outro lugar comum 
+                D       A        G 
+Outro lugar qualquer Guaporé, Guaporé 
+ 
+Qualquer outro lugar ao sol 
+                D       A          G 
+Outro lugar ao sul Céu azul, céu azul 
+ 
+Onde haja só o meu corpo nu 
+ 
+Junto ao seu corpo nu 
+A     G   A    G    A 
+U  uuuuu  u  uuuuu 
+ 
+        D                 A 
+Vamos fugir   Pra outro lugar, baby 
+        Bm 
+Vamos fugir 
+           G 
+Pra onde haja um tobogã 
+ A               Bm 
+Onde a gente escorregue   
+      G              A                 Bm 
+Todo dia de manhã Flores que a gente regue 
+      G             A              Bm 
+Uma banda de maçã Outra banda de reggae 
+      G                A             Bm 
+Tô cansado de esperar Que você me carregue 
+          G                A             Bm 
+Pra onde quer que você vá Que você me carregue 
+          G               A              Bm 
+Pra onde haja um tobogã Onde a gente escorregue 
+       G            A                  Bm 
+Todo dia de manhã Flores que a gente regue 
+       G            A              Bm 
+Uma banda de maçã Outra banda de reggae 
+      G                A             Bm 
+Tô cansado de esperar Que você me carregue 
+       G            A              Bm 
+Uma banda de maçã Outra banda de reggae 
+      G              A                 Bm 
+Todo dia de manhã Flores que a gente regue
+
+       G            A              Bm 
+Uma banda de maçã Outra banda de reggae

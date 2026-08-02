@@ -1,0 +1,50 @@
+Capital Inicial - Sorte 
+ 
+Intro: (F#m E)4x 
+ 
+(F#m E) 
+Eu preciso de sorte 
+Já que eu tenho paciência 
+Trevos e dedos cruzados 
+A enézima potência 
+Seria simples se os ventos 
+Soprassem ao meu favor 
+Não consegui o que eu quis 
+E tudo que fiz foi por amor 
+Tudo que fiz foi por amor 
+ 
+A            F#m 
+ Não é que eu queira ter tudo 
+E  
+ Não é que eu fiz por merecer 
+A              F#m 
+ Eu preciso de sorte 
+        E 
+ Pra chegar até você 
+ 
+Intro 
+ 
+(F#m E) 
+Eu preciso de sorte  
+Mesmo sem ter direito 
+Eu menti e disfarcei 
+E continuo insatisfeito 
+Nada é tão errado 
+Eu sei o preço mas não o valor 
+Fiz o que eu não devia 
+Mas tudo que fiz foi por amor 
+Tudo que fiz foi por amor 
+ 
+REFRÃO 
+ 
+SOLO (F#m E)4x 
+ 
+(F#m E) 
+Seria simples se os ventos 
+Soprassem ao meu favor 
+Não consegui o que eu quis 
+E tudo que fiz foi por amor 
+Tudo que fiz foi por amor 
+ 
+REFRÃO 
+Finaliza com F#m

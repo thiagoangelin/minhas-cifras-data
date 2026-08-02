@@ -1,0 +1,43 @@
+Kid Abelha - Eutransoelatransa 
+ 
+( George Israel / Paula Toller ) 
+ 
+[Intro:] Dm7 C G7 
+ 
+ Dm7        C 
+Quando quero preciso transar 
+  G7 
+Quando transo preciso querer 
+ Dm7      C 
+Quando amo preciso falar 
+  A7                    Dm7 
+Quando falo preciso amar 
+ 
+Quando paro preciso pensar 
+Quando penso preciso parar 
+Quando transo preciso querer 
+Quando quero preciso transar 
+ 
+F          Gm7 
+Eu tenho todas que quero 
+F          Gm7 
+Ela quer todos que tem 
+F             Gm7 
+Eu sou o seu quero-quero 
+F           Gm7 
+Ela é o meu tem-tem 
+ 
+Eu prefiro no chuveiro 
+Ela no elevador 
+Eu tento ganhar dinheiro 
+Ela só vive de amor 
+ 
+Ela conta a vida em festas 
+Eu sonhando andar com fé 
+Ela quer blindar o carro 
+E eu só ando a pé 
+ 
+Ela vai de pinga e gim 
+Eu sou mais um guaraná 
+Ela ouve guinga e Jobim 
+Eu obladi-oblada

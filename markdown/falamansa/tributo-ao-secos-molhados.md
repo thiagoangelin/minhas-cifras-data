@@ -1,0 +1,33 @@
+Falamansa - Tributo Ao Secos Molhados 
+ 
+Participação : Maskavo 
+ 
+F#              B  
+O gato preto cruzou a estrada  
+   F#                    C#  
+Passou por debaixo da escada  
+          F#7                       B  
+E lá no fundo azul na noite da floresta  
+           C#  
+A lua iluminou  
+                      F#  
+A dança, a roda e a festa  
+Vira, vira, vira  
+                   C#  
+Vira, vira, vira homem, vira, vira  
+                F#  
+Vira, vira lobisomem, vira, vira  
+F#                  B  
+Bailam corujas e pirilampos   
+   F#                  C#  
+Entre os sacis e as fadas  
+          F#7                       B  
+E lá no fundo azul na noite da floresta  
+           C#  
+A lua iluminou  
+                      F#  
+A dança, a roda e a festa  
+                   C#  
+Vira, vira, vira homem, vira, vira  
+                F#  
+Vira, vira lobisomem, vira, vira

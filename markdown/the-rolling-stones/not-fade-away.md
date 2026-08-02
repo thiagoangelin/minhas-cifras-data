@@ -1,0 +1,50 @@
+The Rolling Stones - Not Fade Away 
+ 
+E                               A  D  A 
+I wanna tell you how it's gonna be 
+E                      A       E  A  E 
+You're gonna give your love to me 
+E                            A  D  A 
+I'm gonna love you night and day 
+E                    A     E  A  E 
+Love is love and not fade away 
+     E                    A     E  A  E 
+Well love is love and not fade away 
+ 
+E                                A  D  A 
+And my love is bigger than a Cadillac 
+E                          A        E   E  A  E 
+I'll try to show it if you drive me back 
+E                              A  D  A 
+Your love for me has got to be real 
+E                         A     E  A  E 
+Before you'd have noticed how I feel 
+E             A     E  A  E 
+Love real not fade away 
+E                  A     E  A  E 
+Well love real not fade away 
+ 
+Yeah! 
+ 
+( A  D  A ) 
+( D  A  E ) 
+( A  E  A ) 
+( E  A  D ) 
+( A  D  A  E ) 
+( A  E  A  E ) 
+ 
+E                               A  D  A 
+I wanna tell you how it's gonna be 
+E                      A       E  A  E 
+You're gonna give your love to me 
+E                             A  D  A 
+Love that lasts more than one day 
+E                         A     E  A  E 
+Well love is love and not fade away 
+E                         A     E  A  E 
+Well love is love and not fade away 
+E                         A     E  A  E 
+Well love is love and not fade away 
+ 
+E         A 
+Not fade away

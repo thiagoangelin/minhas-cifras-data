@@ -1,0 +1,34 @@
+Jackson Do Pandeiro - Cabeca Feita 
+ 
+D             A7 
+   Sou cabeça feita 
+                  D 
+Não jogo conversa fora 
+                      A7 
+Se o papo é legal, eu fico 
+                       D 
+Se não serve, vou me embora 
+                   A7 
+Eu sou um sambista nato 
+                 D 
+Não aprendi na escola 
+                 A7 
+Conheço o bom violeiro 
+                 D 
+Pela puxada da viola 
+          A7 
+Ê, ê, ê viola 
+       D 
+Ê, ê viola 
+                  A7 
+Eu já disse pra você 
+                       D 
+Malandro você não me enrola 
+                 A7 
+Eu canto forró e samba 
+                D 
+Cheio de remandiola 
+                  A7 
+Olha aqui fica na tua 
+                           D 
+Que eu vou de pandeiro e viola

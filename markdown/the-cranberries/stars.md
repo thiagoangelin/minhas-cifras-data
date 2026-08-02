@@ -1,0 +1,36 @@
+The Cranberries - Stars 
+ 
+[Intro]  C  Dm  Bb  F 
+ 
+C         Dm    Bb        F 
+    The stars are bright tonight 
+C         Dm      Bb  F 
+And I am walking no where 
+C      Dm      Bb  F 
+ Guess I will be   alright 
+ C      Dm       Bb  F 
+Desire gets you no where 
+C    Dm     Bb      F 
+And you are always right 
+  C     Dm   Bb    F 
+Why you are so perfect 
+ 
+ C              Dm 
+Take you as you are 
+ Bb             F 
+Have you as you are 
+ C               Dm  Bb 
+Take you as you were 
+ 
+F           C        Dm     Bb 
+I love you just the way you are 
+F              C        Dm     Bb 
+I'll have you just the way you are 
+F              C        Dm     Bb 
+I'll take you just the way you are  
+F              C        Dm      Bb 
+'Cause anyone love the way they are 
+F    C    Dm  Bb 
+Ahhh Ahhh Ahhhahhh 
+F    C    Dm  Bb 
+Ahhh Ahhh Ahhhahhh

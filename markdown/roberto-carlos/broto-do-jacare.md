@@ -1,0 +1,36 @@
+Roberto Carlos - Broto Do Jacare 
+ 
+Intro: E7 
+ 
+C#7 
+Vinha deslizando em minha prancha sozinho 
+F# 
+E falei ao ver passar por mim um brotinho 
+    B7 
+Que bonitinha que ela é 
+E7 
+Deslizando num jacaré 
+C#7 
+Ela me sorriu e uma coisa então 
+   F# 
+Eu tinha que fazer para chamar atenção 
+E                   C#7 
+Abri os braços, gritei bem alto 
+A          B7       E 
+Deslizando num jacaré  
+    G#7 
+Mas uma onda mais forte chegou 
+  C#7 
+E fora da aprancha me atirou 
+   F# 
+Quase que morro, quase me afoguei 
+  B7 
+E quando voltei o broto não encontrei  
+  C#7 
+A minha prancha o vento para longe levou 
+  F# 
+Bebi água salgada porque não dava pé 
+  B7                     C#7 
+Peguei a prancha mas não encontrei 
+A         B7     E 
+  O broto do jacaré

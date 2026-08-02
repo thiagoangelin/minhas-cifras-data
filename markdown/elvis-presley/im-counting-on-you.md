@@ -1,0 +1,68 @@
+Elvis Presley - Im Counting On You 
+ 
+Standard tuning. 
+    Intro:                        +-- riff 1 -+ 
+    e||--10-10--10---9----7-9--5--------------|| 
+    B||--10-10--10---10---8-8--7--------------|| 
+    G||---------------------------------------|| 
+    D||---------------------------4--2--0-----|| 
+    A||------------------------------------4--|| 
+    E||---------------------------------------|| 
+ 
+    e||-------------------------------------2--|| 
+    B||-------------------------------3--------|| 
+    G||-----2------------------2---------------|| 
+    D||--4-----5-----2------4------4-----4-----|| 
+    A||-----------4-----5----------------------|| 
+    E||----------------------------------------|| 
+ 
+    [NC]                 D 
+    All the words that I let her know 
+                    A 
+    Still could not say 
+                                    D 
+    How much I need you so in every way 
+    [NC]            D 
+    I hope you will guide me 
+                    G 
+    As only you can do 
+                         D        (Riff 1) 
+    Hold my hands down beside me 
+        A           D       D7 
+    I'm counting on you 
+                    G 
+    I'm counting on you dear 
+                          D 
+    From the dawn of each day 
+                   E 
+    To always come through dear 
+                        A 
+    In your kind lovin' way 
+    [NC]                 D 
+    If you knew just how deeply 
+                      G 
+    I feel things you do 
+                         D        (Riff 1) 
+    Then you know how completely 
+        A           D       D7 
+    I'm counting on you 
+                    G 
+    I'm counting on you dear 
+                            D 
+    Around the dawn of each day 
+                   E 
+    To always come true, dear 
+                        A 
+    In your kind lovin' way 
+    [NC]                 D 
+    If you knew just how deeply 
+                      G 
+    I feel things you do 
+                         D        (Riff 1) 
+    Then you know how completely 
+                           e||-----------3--|| 
+                           B||-----------3--|| 
+        A           D      G||-----------2--|| 
+    I'm counting on you    D||--5--4--2--0--|| 
+                           A||--------------|| 
+                           E||--------------||

@@ -1,0 +1,64 @@
+Paulinho Da Viola - Moema Morenou 
+ 
+[Intro] G  D7  G  D7  G  D7  G  D7  G 
+ 
+   E7     A7 
+Moema morenou 
+          D7         G 
+A água do mar quem molhou 
+           E7         A7 
+O Sol da Bahia te queimou 
+            D7       G 
+Teu corpo morena morenou 
+ 
+            Em 
+No samba de roda 
+          Am 
+Morena faceira 
+           D7 
+Mexeu a cadeiras 
+           G 
+Foi um desacato 
+          Em 
+Tirou o sapato 
+          Am 
+Dançou miudinho 
+            D7 
+E quase que mata 
+           G 
+Um pobre mulato 
+ 
+   E7     A7 
+Moema morenou 
+          D7         G 
+A água do mar quem molhou 
+           E7         A7 
+O Sol da Bahia te queimou 
+            D7       G 
+Teu corpo morena morenou 
+ 
+           Em 
+Eu fui à Bahia 
+            Am 
+Paguei a promessa 
+           D7 
+Estava com pressa 
+          G 
+Queria voltar 
+           Em 
+Mais uma morena 
+             Am 
+Num samba de roda 
+           D7 
+Me deu uma volta 
+             G 
+Que me fez ficar 
+ 
+   E7     A7 
+Moema morenou 
+          D7         G 
+A água do mar quem molhou 
+           E7         A7 
+O Sol da Bahia te queimou 
+            D7       G 
+Teu corpo morena morenou

@@ -1,0 +1,6 @@
+System Of A Down - Storaged 
+ 
+ 
+Chorus                                        let  
+ring................. 
+don't let ring...................................

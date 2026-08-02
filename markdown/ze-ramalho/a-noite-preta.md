@@ -1,0 +1,28 @@
+Ze Ramalho - A Noite Preta 
+ 
+Intro: Dm7  Em7  Dm7  Em7 
+ 
+Dm7 
+E nesse ano a noite preta pega a porta 
+Dm7 
+E arremessa contra a massa da parede 
+      F           G          Dm7 
+A ventania canto faca tudo corta 
+          G                     Dm7 
+A sombra torta estranha como a rede 
+Dm7 
+Cabeça cheia como um saco de confetes 
+Dm7 
+Pende dos ombros com serpentes e cabelos 
+         F         G         Dm7 
+E essa louca cobra loura reluzente 
+      G                      Dm7 
+Se enrosca no tronco do cotovelo 
+Dm7 
+E refletidas no cubículo calado 
+Dm7 
+Pulsam, dilatam-se cadeiras que se movem 
+            F           G           Dm7 
+Brilham os ratos e bordados nos sapatos 
+          G                   Dm7 
+Brilham insetos alimentando sapos

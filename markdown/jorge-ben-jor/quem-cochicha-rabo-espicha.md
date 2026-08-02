@@ -1,0 +1,63 @@
+Jorge Ben Jor - Quem Cochicha Rabo Espicha 
+ 
+ C 
+Quem cochicha o rabo espicha 
+O rabo espicha 
+O rabo espicha 
+F         C 
+Ô, ô, ô, ô, ô, ô 
+ESTRIBILHO 
+ 
+    F7 
+Não fique esperando 
+                 C 
+O que Jesus prometeu 
+O que Jesus prometeu 
+   F 
+Pois ele também está  
+esperando 
+                  C7 
+Que você tome vergonha na cara 
+Vergonha na cara 
+  F 
+E saia por aí, pelo mundo afora 
+           C7 
+Fazendo amizades 
+Conquistando vitórias 
+ 
+   C7/9 
+Em vez de ficar pelas esquinas   
+             F7 
+       Cochichando                       2 Vezes 
+          C7/9 
+Contando prosa 
+ 
+ESTRIBILHO - 2 Vezes 
+ 
+   F 
+Também não fique pensando 
+                        C7 
+Que essas vitórias serão fáceis 
+Serão fáceis 
+         F 
+Pois essa vida de perde  
+E ganha 
+                  C7 
+Ganha quem sabe perder 
+Quem sabe perder 
+   F 
+E perde, e perde 
+                 C7 
+Quem não sabe ganhar 
+Quem não sabe ganhar 
+    F            Fm 
+Por isso você precisa 
+              C7 
+Aprender a jogar 
+ 
+   C7/9 
+Em vez de ficar cochichando 
+ F7                C7/9 2 Vezes 
+Olhando o bonde passar 
+ 
+ESTRIBILHO - 5 Vezes

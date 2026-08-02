@@ -1,0 +1,19 @@
+Joao Gilberto - Esperanca Perdida 
+ 
+A7+                  C#m7 
+Eu pra você fui mais um 
+Bm7 
+Você foi tudo pra mim 
+G#m5-/7            F#m7 
+Fiz de você o meu céu 
+C#m7     F#7/9-  Bm7         E7/9 
+Minha razão,     meu tudo enfim 
+ 
+A7+                 C#m7 
+As coisas belas da vida 
+Bm7 
+De nada servem porque 
+G#m5-/7             F#m7 
+Porque não tenho querida 
+E7/9    A7+ 
+Vo......cê

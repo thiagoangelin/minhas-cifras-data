@@ -1,0 +1,73 @@
+Marisa Monte - Mais Uma Vez 
+ 
+A 
+Mais uma vez 
+             E 
+Eu vou te deixar 
+                     D 
+Mas eu volto logo pra te ver 
+                          A 
+To com saudades no meu coração 
+ 
+E                      A 
+ Mando notícias de algum lugar 
+   E                              D 
+Eu sei que muitas vezes te fiz esperar demais 
+    A 
+Maaaiiss 
+                                         E 
+Mesmo na distância o meu pensamento voa longe demais 
+D                                 A 
+ Fico imaginando você sofrendo na solidão 
+ 
+                                               E 
+Quando vou deitar penso em você em seu quarto dormindo 
+D 
+aaa 
+ 
+    A 
+Longe de você meu bem 
+  E             D 
+Longe da alegria 
+  A 
+Longe de você meu bem 
+  E              D 
+Longe do nosso lar 
+ 
+A 
+Mais uma vez 
+             E 
+Eu vou te deixar 
+                     D 
+Mas eu volto logo pra te ver 
+                            A 
+Vou com saudades no meu coração 
+ 
+E                    A 
+ Mando notícias de algum lugar 
+    E                                 D 
+Eu sei que muitas vezes te fiz esperar demais 
+   A 
+Maaaiiss 
+                                         E 
+Mesmo na distância o meu pensamento voa longe demais 
+D                                A 
+ Fico imaginando você sofrendo na solidão 
+ 
+uuuuuu 
+                                                  E 
+Quando vou deitar penso em você e em seu quarto dormindo 
+D 
+aaa 
+ 
+    A 
+Longe de você meu bem 
+  E             D 
+Longe da alegria 
+  A 
+Longe de você meu bem 
+  E              D
+
+Longe do nosso lar 
+A 
+Mais uma vez

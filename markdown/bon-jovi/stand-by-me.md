@@ -1,0 +1,73 @@
+Bon Jovi - Stand By Me 
+ 
+(intro) G  Em  C9  D 
+ 
+G 
+Dat wecur chame hur 
+    Em 
+Mohammed datpurch 
+      C9           D 
+Edor vach ehan furyur 
+            G 
+Bunma burch 
+            G 
+Dast beh dast 
+ 
+hamsedaa 
+  Em 
+To baa man hamvatan 
+    C9 
+Dardeh to 
+D 
+Dardeh man 
+           G 
+Ba man bassh 
+G 
+So darling, darling stand by me 
+Em 
+Oh,  stand by me 
+C9             D 
+Oh stand by me,oh stand by me 
+G 
+If the sky that we look upon 
+Em 
+Should tumble and fall 
+C9                     D                  G 
+And the mountain should crumble to the sea 
+G 
+I won't cry, i won't cry 
+Em 
+No i won't shed a tear 
+C9                  D                  G 
+Just as long as you stand, stand by me 
+ 
+G 
+So darling, darling stand by me 
+Em 
+Oh, stand by me 
+C9                     D 
+Stand by me, please please 
+                      G 
+Stand by me, stand by me 
+ 
+(base) G Em C9 D G 
+ 
+( G  Em  C9  D  G ) 
+Whenever you're in trouble 
+Won't you stand by me 
+Oh, stand by me please please 
+Stand by me, stand by me, stand by me 
+ 
+Darling, darling stand by me 
+Stand by me oh stand by me 
+Stand by me,please please stand by me 
+Whenever you're in trouble 
+Won't you stand by me 
+Oh, stand by me please please 
+Stand by me, stand by me, stand by me 
+ 
+Darling, darling stand by me
+
+Stand by me oh stand by me 
+Stand by me,please please 
+Stand by me, stand by me

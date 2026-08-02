@@ -1,0 +1,83 @@
+Nando Reis - Nos Seus Olhos 
+ 
+Intro: C  G  Am 
+ 
+C  G/B       Am 
+Olhe nos meus olhos 
+  C G/B       Am 
+E diga o que você 
+F Am          Dm 
+Vê quando eles vêem 
+F Am        G 
+Que você me vê? 
+ 
+C  G/B      Am 
+Olho nos seus olhos 
+    C G/B     Am 
+E o que eu posso ler? 
+    F Am          Dm 
+Que eles ficam melhores 
+F   Am       G 
+Quando eles me leêm 
+ 
+            C    G 
+Eu leio as suas cartas 
+   Am      G 
+Eu vejo a letra 
+     F            G 
+Meu Deus que homem forte 
+          Dm    F   C 
+Que me contempla 
+ 
+Bb9                  F 
+Sou sua mas não posso ser 
+C                       G 
+Sou seu mas ninguém pode saber 
+ Bb9         F 
+Amor eu te proíbo 
+    Dm F       C 
+De não me querer 
+ 
+(Intro) 
+ 
+C  G/B      Am 
+Olho nos seus olhos 
+  C G/B     Am 
+E sinto que você 
+F Am        Dm 
+Faz eles brilharem 
+F Am        G 
+Como o astro-rei 
+ 
+C G/B       Am 
+Olhe nos meus olhos 
+    C G/B         Am 
+E o que você vai ver? 
+    F  Am             Dm 
+Seu rosto iluminado 
+   F Am      G 
+A Lua de um além 
+ 
+            C   G 
+Eu leio as suas asas, 
+Am    G 
+Borboletas 
+     F            G 
+Meu Deus que linda imagem 
+        Dm  F C 
+Me atormenta
+
+Bb9                     F 
+Sou seu mas eu não posso ser 
+ C                  G 
+Sou sua mas ninguém pode saber 
+ Bb9         F 
+Amor eu te proíbo 
+    Dm   F 
+De não 
+          C G/B Am 
+não me querer 
+( C  G/B  Am ) 
+De não me querer 
+não me querer 
+De não me querer

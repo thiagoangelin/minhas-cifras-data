@@ -1,0 +1,85 @@
+Green Day - Tell Me When Its Time To Say I Love You 
+2 
+ 
+G                       D/F#      
+Words get trapped in my mind, 
+ 
+              Em                              C 
+Sorry I don't take the time to feel the way I do. 
+ 
+          G                          D  
+Cause the first day you came into my life, 
+ 
+               G              D 
+The time ticks around you 
+ 
+G                    D/F# 
+But then I need your voice 
+ 
+              Em                                    C        
+As the key to unlock all the love that's trapped in me 
+ 
+           G         D             G            G7    
+So tell me when it's time to say I love you. 
+ 
+C             G                      
+All I want is you to understand, that 
+ 
+D                                    G          G/A    G/B  
+when I take your hand, it's 'cause I want to. 
+ 
+C               G                 
+We are all born in a world of doubt 
+ 
+               D 
+But there's no doubt, I figured out 
+ 
+C    G/B    G/A 
+I    love   you. 
+ 
+Guitar Solo 
+ 
+G   D/F#   Em 
+C   G/B    D 
+G   D/F#   Em 
+C   G/B    D 
+ 
+C             G                      
+All I want is you to understand, that 
+ 
+D                                    G          G/A    G/B 
+when I take your hand, it's 'cause I want to. 
+ 
+C               G                 
+We are all born in a world of doubt 
+ 
+               D 
+But there's no doubt, I figured out 
+ 
+C    G/B    G/A 
+I    love   you. 
+ 
+G             D/F# 
+I feel lonely for 
+ 
+               Em                               C  
+All the losers that will never take the time to say, 
+ 
+         G                      D/F#      D 
+What was really on their mind instead
+
+ 
+               G            G/D    D 
+They just hide away 
+ 
+G                 D/F#                                              
+Yet they'll never have  
+ 
+                 Em                               C 
+someone like you to guide them and help along the way. 
+ 
+             G         D             G 
+Or tell them when it's time to say I love you. 
+ 
+           G         D             C            G/B     D/A    G   
+So tell me when it's time to say I love you.

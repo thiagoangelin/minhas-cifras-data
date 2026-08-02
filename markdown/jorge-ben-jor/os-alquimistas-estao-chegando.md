@@ -1,0 +1,60 @@
+Jorge Ben Jor - Os Alquimistas Estao Chegando 
+ 
+[Intro] D7 
+ 
+D7 G A7  D7 G A7   D7 G A7 
+Oooo   Oooo    Oooo 
+G7        A7               D7   D7(4)  D7  D7(9) 
+Os alquimistas estão chegando 
+G7         A7             D7   D7(4)  D7  D7(9) 
+Estão chegando os alquimistas 
+G7        A7             D7   D7(4)  D7  D7(9) 
+Os alquimistas estão chegando 
+G7        A7              D7   D7(4)  D7  D7(9) 
+Estão chegando os alquimistas 
+ 
+D7  A7     D7  A7 
+Oooo      Oooo 
+G7   A7 
+Ee   Ee 
+G7                          A7 
+Eles são discretos e silenciosos 
+G7                     A7 
+Moram bem longe dos homens 
+G7 
+Escolhem com carinho a hora 
+                      A7 
+E o tempo de seu precioso trabalho 
+        G7                      A7 
+São pacientes, assíduos e perseverantes 
+    G7                           A7 
+Executam, segundo as regras herméticas 
+        G7                 A7 
+Desde a trituração à fluxação 
+       G7               A7 
+A destilação e a coagulação 
+G7                 A7 
+Trazem consigo cadinhos 
+        G7                  A7 
+Vasos de vidro, potes de louça 
+     G7             A7 
+Todos bem i-iluminados 
+G7                          A7 
+Evitam qualquer relação com pessoas 
+                  G7 
+De temperamento sórdido 
+                A7 
+De temperamento sórdido 
+ 
+G7  A7   G7  A7 
+Ee  Ee   Ee  Ee 
+G7        A7               D7   D7(4)  D7  D7(9) 
+Os alquimistas estão chegando 
+G7         A7             D7   D7(4)  D7  D7(9) 
+Estão chegando os alquimistas 
+G7        A7             D7   D7(4)  D7  D7(9) 
+Os alquimistas estão chegando 
+G7        A7              D7   D7(4)  D7  D7(9) 
+Estão chegando os alquimistas 
+D7  A7   D7  A7    D7  A7 
+Oooo    Oooo     Oooo

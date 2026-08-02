@@ -1,0 +1,107 @@
+U2 - In Little While 
+ 
+Intro: 
+Riff Principal: 
+ 
+      A             F# 
+In a little while 
+    Bm            G     D 
+Surely you'll be mine 
+                              A 
+In a little while... I'll be there 
+ 
+      A             F# 
+In a little while 
+       Bm               G     D 
+This hurt will hurt no more 
+                    A 
+I'll be home, love 
+ 
+            A   F#            Bm     G  D 
+When the night takes a deep breath 
+                        A 
+And the daylight has no air 
+       A   F#           Bm        G 
+If I crawl, if I come crawling home 
+       D         A 
+Will you be there? 
+ 
+( Bm  G  D  A ) 
+ 
+      A             F# 
+In a little while 
+            Bm             G     D 
+I won't be blown by every breeze 
+                    A 
+Friday night running 
+ 
+To Sunday on my knees 
+ 
+A          F#         Bm 
+  That girl, that girl 
+       G 
+She's mine 
+D 
+ Well I've known her since, 
+A 
+ Since she was 
+ 
+   A           F# 
+A little girl 
+       Bm           G 
+With Spanish eyes 
+D 
+  When I saw her 
+     A 
+In a pram they pushed her by 
+A     F# 
+Uuuuh Uuh 
+   Bm                 G 
+My, how you've grown 
+D 
+Well it's been 
+A 
+  It's been a little while 
+ 
+( Bm  G  D  A ) 
+ 
+( Bm  G )
+
+D                A 
+  Slow down my bleating heart 
+Bm                G 
+A  Man dreams one day to fly 
+   A           D          A          D 
+A man takes a rocket ship into the skies 
+ 
+    Bm                        G 
+He lives on star that's dying in the night 
+     A           D 
+And follows in the trail 
+      A         D 
+The scatter of light 
+ 
+        A     F#     Bm 
+Turn it on 
+G         D 
+Turn it on 
+ 
+You turn me on 
+A 
+Mh Mhhhhhhmm 
+ 
+Bm     G 
+D                A 
+  Slow down my beating heart 
+Bm     G 
+D      A 
+Slowly, slowly love 
+ 
+Bm               G 
+  Slow down my beating heart 
+A   D   A   D 
+ Slowly, slowly love 
+Bm               G 
+  Slow down my beating heart 
+A   D   A             dddddd.... [fading out] 
+ Slowly, slowly love

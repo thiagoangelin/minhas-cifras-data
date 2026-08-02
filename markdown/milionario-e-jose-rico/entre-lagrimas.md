@@ -1,0 +1,21 @@
+Milionario E Jose Rico - Entre Lagrimas 
+ 
+Introdução: F Dm Gm C7 F D7 Gm C7 F 
+ 
+F       Dm           Gm    C7                    F   Dm 
+Eu não quero que tu pense nem um só instante em mim  
+                       Gm   C7                F 
+Deixe que eu viva sofrendo, gosto de viver assim   
+     Dm           Gm    C7                      F    Dm 
+Teu amor me enlouquece, eu não sei se estou sonhando   
+                       Gm  C7                      F 
+Isso é coisa que acontece quando a gente está amando.   
+ 
+F                Gm   C7                  F    Dm 
+Se um dia eu chorar ninguém vai saber porque  
+                  Gm  C7                F   Dm 
+É meu modo de amar, é meu jeito de querer   
+                    Gm   C7                        F  Dm 
+Ninguém vai fazer juizo, nem saber que estou sentindo  
+                   Gm     C7               F 
+Tu verás o meu sorriso entre lágrimas caindo.

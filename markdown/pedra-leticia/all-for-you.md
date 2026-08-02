@@ -1,0 +1,55 @@
+Pedra Leticia - All For You 
+ 
+Am            D                 Am               D 
+Finally I figured out, but it took a long long time 
+Am                   D         Am             D 
+And now there's a turnabout, Maybe cause I'm trying 
+ 
+Em             Am            Em   
+ There's been times, I'm so confused 
+Am      Em                  Am 
+ All my roads, They lead to you 
+Em           Am               D  
+I just can't turn, And walk away...  
+       G            C9           Am    D      G  
+It's hard to say, What it is I see in you 
+G              C9      Am   D   G 
+Wonder if I'll always, Be with you 
+G               C9      Am  D    G  
+But words can't say, And I can't do 
+G           C9        Am   D   G 
+Enough to prove, It's all for you       
+Am                D                     Am              D  
+   I thought I'd seen it all, 'Cause it's been a long long time 
+Am                D              Am           D 
+   But then we'll trip and fall, Wondering if I'm blind  
+ 
+ Em             Am            Em   
+ There's been times, I'm so confused 
+Am      Em                  Am 
+ All my roads, They lead to you 
+Em           Am               D  
+I just can't turn, And walk away... 
+       G            C9           Am    D      G  
+It's hard to say, What it is I see in you 
+G              C9      Am   D   G 
+Wonder if I'll always, Be with you 
+G               C9      Am  D    G  
+But words can't say, And I can't do 
+G           C9        Am   D   G 
+Enough to prove, It's all for you       
+Am           D        
+Rain comes pouring down (Pouring down) 
+Am                D 
+Falling from blue skies (Falling from blue skies) 
+Am           D         Am               D  
+Words without a sound, Coming from your eyes  
+ 
+G            C9           Am    D      G  
+It's hard to say, What it is I see in you 
+G              C9      Am   D   G 
+Wonder if I'll always, Be with you 
+G               C9      Am  D    G  
+But words can't say, And I can't do 
+G           C9        Am   D   G 
+Enough to prove, It's all for you

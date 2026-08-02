@@ -1,0 +1,62 @@
+Ultraje A Rigor - Giselda 
+ 
+Intro: A E  
+ 
+A        E        A                       E  
+Uououououououou Giselda! Uouououououou Giselda!  
+A         A7     D           Dm  
+Uououou Giselda! Uouououou Giselda!  
+A       E          A  
+Uououououououou Giselda!  
+A                            E                 A  
+Você 'tá dando sopa e eu não ganho nem uma colherinha  
+                                              E  
+Só quero um pedacinho mas você me dá uma migalhinha  
+A                    A7  
+Eu nem sou de comer tanto  
+      D             Dm  
+Mas você eu almoço e janto  
+A     E        A  
+Uouououououou Giselda  
+A                           E                 A  
+'Cê fica dando bola mas na hora de jogar não rola  
+                                                  E  
+'Tá sendo egoísta, eu 'tô livre e 'cê não passa a bola  
+A               A7  
+Para de jogar sozinha  
+ D                  Dm  
+Vamos fazer uma tabelinha  
+A      E         A  
+Uouououououou Giselda  
+A     E          A                       E  
+Uououououououou Giselda! Uouououououou Giselda!  
+A        A7     D            Dm  
+Uououou Giselda! Uouououou Giselda!  
+A     E            A  
+Uououououououou Giselda!  
+       A                           E              A  
+'Cê 'tá jogada às traças mas não quer a minha naftalina  
+                                             E  
+seu tanque 'tá vazio e 'cê regula a minha gasolina  
+A                        A7  
+olha o salgadão que eu trouxe  
+    D                     Dm  
+prá combinar com esse seu doce  
+A     E          A  
+Uouououououou Giselda  
+A E A   E  
+A A7 D Dm  
+A E A  
+A  G#  G  F#m  
+F#m                   B  
+Giselda 'cê não 'tá querendo entender  
+A                       B  
+Que eu 'tô pagando sapo prá você  
+F#m                    B  
+Mas se você achar que ainda é pouco  
+    D                      E  
+É só você falar que eu te pago o brejo todo!  
+A  
+Giselda! Giselda! Giselda! Giselda!  
+A    E           A  
+Uouououououou Giselda

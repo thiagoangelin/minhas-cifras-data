@@ -1,0 +1,75 @@
+David Bowie - Love You Till Tuesday 
+ 
+F#  B   F#  B B7 
+ 
+F#7                                            E7 
+Just look through your window, look who sit outside 
+B7                                         A 
+Little me is waiting, standing through the night 
+E                 F#                      B       A      
+When you walk out through your door, I'll wave my flag  
+   G# 
+and shout 
+A      C#m 
+Aaahh, beautiful baby, 
+   F#             B 
+My burning desire started on Sunday 
+F#                     B 
+Give me your heart and I'll love you till Tuesday 
+         F#            B 
+Da Da Da Da,  Da Da Da Da 
+ 
+F#7                                                E7 
+Who's that hiding in the apple tree, clinging to a branch 
+B7                                                  A 
+Don't be afraid it's only me, hoping for a little romance 
+E            F#                   B        A        G# 
+If you lie beneath my shade, I'll keep you nice and cool 
+A      C#m 
+Aaahh, beautiful baby 
+F#                       B 
+I was very lonely 'til I met you on Sunday 
+F#                                 B 
+My passion's never ending and I'll love you till Tuesday 
+         F#            B 
+Da Da Da Da,  Da Da Da Da 
+         G             C  C7 
+Da Da Da Da,  Da Da Da Da 
+ 
+G7                                                       
+Let the wind blow through your hair, be nice to the big  
+     F7 
+blue sea 
+C7                                                       
+Don't be afraid of the man in the moon, because it's  
+  Bb 
+only me 
+F              G         C        Bb        A 
+I shall always want you, until my love runs dry 
+F      Dm 
+Aaahh, beautiful baby 
+   G                    C7 
+My hearts a flame, I'll love you till Tuesday 
+   G                          C7 
+My head's in a whirl and I'll love you till Tuesday 
+G                       C7 
+Love, love, love, love, love you till Tuesday 
+G                       C7 
+Love, love, love, love, love you till Tuesday 
+         G             C 
+Da Da Da Da,  Da Da Da Da 
+         G             C 
+Da Da Da Da,  Da Da Da Da 
+                G             C 
+Ooooo, Da Da Da Da,  Da Da Da Da 
+         G             C 
+Da Da Da Da,  Da Da Da Da 
+         G             C 
+Da Da Da Da,  Da Da Da Da 
+(tacet)
+
+Well, I might be able to stretch it till Wendnesday... 
+ 
+Now some versions have this beautiful string quartet  
+ending and some don't. 
+Mine (on London Boy) does, so here it is:

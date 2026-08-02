@@ -1,0 +1,41 @@
+Ultraje A Rigor - Mauro Bundinha 
+ 
+     A 
+Mauro Bundinha queria fazer um som 
+Não deu jeito ele foi ser garçon 
+     D 
+Em San Francisco seu som não fez sucesso 
+     A 
+mas no namoro se deu bem, eu confesso 
+      E        D 
+Deu um trambique naquele careca 
+  A               E 
+e agora ele é que come a Rebecca 
+ 
+A 
+Jacaré, não dá pé 
+        E 
+Dinheiro é bom 
+      D 
+Mas ser garçon 
+    A 
+Não dá pé 
+ 
+E     A 
+Mauro Bundinha voltou pro Brasil 
+Mandou a Rebecca prá puta que o pariu 
+     D 
+Seu casamento também não deu certo 
+      A 
+Mas pelo menos ele ficou esperto 
+    E           D 
+Desencanou de vez de ser cantor 
+    A             E 
+E trabalha com o Ultraje a Rigor 
+ 
+A 
+Jaca, Jaca, Jaca 
+  G 
+Jaca, Jaca, Jaca 
+     A 
+Já, Jacaré

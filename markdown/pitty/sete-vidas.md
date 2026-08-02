@@ -1,0 +1,113 @@
+Pitty - Sete Vidas 
+ 
+ C#m   E        F#    A 
+Só nos últimos cinco meses 
+C#m       E        F#    A 
+Eu já morri umas quatro vezes 
+C#m       E       F# 
+Ainda me restam três vidas 
+  A     C#m  E  F#  A 
+Pra gastar 
+ 
+C#m               Am 
+Era um mar vermelho 
+                                C#m 
+Me arrastando do quarto pro banheiro                   
+Pupila congelada 
+ Am 
+Já não sabia mais de nada 
+ 
+   C#m 
+É besta sim esse quase morrer 
+    Am 
+Desconcertante perceber 
+        C#m 
+Que as coisas são e tudo floresce 
+   Am 
+A despeito de nós 
+ 
+ E        F# 
+Pálido, doente 
+    G         F# 
+Rendido, decadente 
+ E            F# 
+Viver parece mesmo 
+ G             F# 
+Coisa de insistente 
+ 
+      E 
+A postura é combativa 
+       F# 
+Ainda tô aqui viva 
+    G 
+Um pouco mais triste 
+     F# 
+Mas muito mais forte 
+E               F# 
+E agora que eu voltei 
+       A           F 
+Quero ver me aguentar! 
+ 
+ C#m   E        F#    A 
+Só nos últimos cinco meses 
+C#m       E        F#    A 
+Eu já morri umas quatro vezes 
+C#m       E       F# 
+Ainda me restam três vidas 
+  A     C#m  E  F#  A 
+Pra gastar 
+ 
+C#m 
+A caixa de sombra se abriu 
+ Am                          C#m 
+Foi um maremoto atrás do outro 
+              Am 
+Ferro na jugular 
+Tirando tudo do lugar 
+ 
+    C#m 
+Se coisa ruim faz a gente crescer
+
+   Am 
+E todo esse clichê 
+        C#m 
+Já nem caibo mais na casa 
+     Am 
+Não caibo mais aqui 
+ 
+ E        F# 
+Pálido, doente 
+    G         F# 
+Rendido, decadente 
+ E            F# 
+Viver parece mesmo 
+ G             F# 
+Coisa de insistente 
+ 
+      E 
+A postura é combativa 
+       F# 
+Ainda tô aqui viva 
+     G 
+Um pouco mais triste 
+     F# 
+Mas muito mais forte 
+E                  F# 
+E agora que eu voltei 
+       A           F 
+Quero ver me aguentar! 
+ 
+ C#m   E        F#    A 
+Só nos últimos cinco meses 
+C#m       E        F#    A 
+Eu já morri umas quatro vezes 
+C#m       E       F# 
+Ainda me restam três vidas 
+  A     C#m  E  F#  A 
+Pra gastar 
+ 
+  C#m   E     F#    A 
+Pra gastar, pra gastar 
+Só três vidas pra gastar 
+  A     C#m 
+Pra gastar

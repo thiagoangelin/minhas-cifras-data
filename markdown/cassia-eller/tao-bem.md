@@ -1,0 +1,42 @@
+Cassia Eller - Tao Bem 
+ 
+Paulo Barnabé/Cássia Eller 
+ 
+C                      Am 
+Você faz tudo pro teu bem, meu bem 
+C                      Am 
+Você faz tudo pro teu bem 
+C                      Am 
+Você faz tudo pro teu bem, meu bem 
+C                      Am 
+Você faz tudo pro teu bem 
+C                      Am 
+Você faz tudo pro teu bem, meu bem 
+C                      Am 
+Você faz tudo pro teu bem 
+C                       Am 
+O teu negócio é se dar bem 
+       C              Am 
+Tem nego que tenta também, meu bem 
+      C                    Am 
+Mas como você não há ninguém 
+C                Am 
+Um dia vai, um dia vem 
+C                     Am  
+Felicidades pro teu bem, meu bem 
+C                     Am 
+O teu negócio é sair bem 
+                        C 
+O teu negócio é se dar bem 
+C                     Am 
+O teu negócio é sair bem 
+                        C 
+O teu negócio é se dar bem 
+C                     Am 
+O teu negócio é sair bem 
+                        C 
+O teu negócio é se dar bem 
+                      Am 
+Cuspir no prato de alguém 
+ 
+O teu negócio é ...

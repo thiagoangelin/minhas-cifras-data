@@ -1,0 +1,36 @@
+Milton Nascimento - A Noite Do Meu Bem 
+ 
+ Am                                   Dm 
+Hoje eu quero a rosa mais linda que houver 
+      E7                   Am          Dm 
+E a primeira estrela que vier para enfeitar 
+                E7 
+A noite do meu bem/ 
+ 
+ Am                               Dm 
+Hoje eu quero paz de criança dormindo 
+       E7                     Am 
+E o abandono de flores se abrindo 
+        Dm                     E7   A7 
+Para enfeitar a noite do meu bem 
+ 
+  Dm        G7                   C 
+Quero a alegria de um barco voltando 
+         A7                     Dm 
+Quero ternura de mãos se encontrando 
+          G7                    C E7 
+Para enfeitar a noite do meu bem 
+ 
+Am                                  Dm 
+Ah, eu quero o amor, o amor mais profundo 
+     E7                 Am             Dm                   
+Eu quero toda beleza do mundo para enfeitar 
+ Am              E7 
+ A noite do meu bem 
+ 
+Am                          Dm 
+Ah, como esse bem demorou a chegar 
+               E7         Am 
+Eu já nem sei se terei no olhar 
+         Dm         E7    Am 
+Toda pureza que quero lhe dar

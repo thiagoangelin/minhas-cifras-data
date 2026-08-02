@@ -1,0 +1,71 @@
+Pearl Jam - Release 
+ 
+[Intro]        
+ 
+ Listen to song for rhythm 
+ 
+[Verse 1] 
+ 
+  D      Bm       C 
+  I    see the  world 
+  D      Bm       C 
+  Feel      the chill 
+  D      Bm       C 
+  which way to  go 
+  D      Bm       C 
+  win      dow  sill 
+  D      Bm       C 
+  I     see the words 
+  D      Bm               C 
+ on the rockin horse of time 
+  D     Bm          C 
+  I    see the    birds 
+  D             Bm      C 
+  and the rain 
+  D        Bm       C 
+ ooohhh            4 times 
+ 
+[Verse 2] 
+ 
+  D      Bm       C 
+ Oh       dear dad 
+  D          Bm    C 
+ can you see  me now 
+  D       Bm    C 
+  I      am  my self 
+  D       Bm       C 
+ like you    somehow 
+  D        Bm       C 
+ I'll    ride the wave 
+  D              Bm      C 
+ where it takes me 
+  D       Bm       C 
+ I'll   hold the pain 
+  D           Bm    C 
+ release me          4 times 
+  D       Bm       C 
+ Oooohh              4 times 
+ 
+[Verse 3] 
+ 
+  D       Bm       C 
+ Oh       dear    dad 
+  D       Bm       C 
+ can you  see me now 
+  D       Bm       C 
+ I       am   my   self 
+  D       Bm       C 
+ like  you    some how 
+  D             Bm      C 
+ I'll wait up in the dark 
+  D                      Bm    C 
+ for you to speak to me 
+  D        Bm       C 
+ I'll     open  up 
+  D           Bm    C 
+ release me          4 times 
+  D        Bm       C 
+ Oohhh               5 times
+
+  D       Bm      C  2 times 
+  D       Bm      C  single strum fading twice

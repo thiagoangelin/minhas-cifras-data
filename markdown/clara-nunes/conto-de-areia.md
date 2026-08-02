@@ -1,0 +1,51 @@
+Clara Nunes - Conto De Areia 
+ 
+C                     F        G       C              G 
+É água no mar, é maré cheia ô, mareia ô mareia, é água no mar 
+C                   F        G       C 
+É água no mar é maré cheia ô mareia ô mareia 
+                    A7                Dm 
+Contam que toda tristeza que tem na Bahia 
+   G                                   C 
+Nasceu de uns olhos morenos molhados de mar 
+                       A7                Dm 
+Não sei se é conto de areia ou se é fantasia 
+      G                                 C 
+Que a luz da candeia alumia pra gente contar 
+                     A7              Dm 
+Um dia a morena enfeitada de rosas e rendas 
+  G                                     C 
+Abriu seu sorriso de moça e pediu pra dançar 
+                      A7                 Dm 
+A noite emprestou as estrelas bordadas de prata 
+                   G                   C 
+E as águas de Amaralina eram gotas de luar 
+C               A7           Dm 
+Era um peito só cheio de promessa era só 
+             G            C 
+Era um peito só cheio de promessa era só 
+        A7      Dm           G                C 
+Quem foi que mandou o seu amor se fazer de canoeiro 
+             A7        Dm  G           C 
+O vento que rola nas palmas arrasta o veleiro 
+            A7      Dm  G        C 
+E leva pro meio das águas de Iemanjá 
+             A7        Dm               G                C 
+E o mestre valente vagueia olhando pra areia sem poder chegar 
+      G    C  A7    Dm              G                     C 
+Adeus amor, adeus meu amor não me espere porque eu já vou 
+me embora 
+              A7           Dm    G           C 
+Pro reino que esconde os tesouros de minha senhora 
+       A7         Dm     G           C 
+Desfia colares de conchas pra vida passar 
+           A7          Dm 
+E deixa de olhar pro veleiro 
+            G                    C 
+Adeus meu amor eu não vou mais voltar 
+          Dm G          C             A7 
+Foi beira-mar, foi beira-mar quem chamou 
+          Dm   G          C 
+Foi beira-mar ê, foi beira-mar 
+          G 
+É água no mar...(Refrão)

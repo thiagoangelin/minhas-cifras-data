@@ -1,0 +1,17 @@
+Charlie Brown Jr - Chicanos Skate Nos Canos 
+ 
+Esta música é loca . É tipo uma flamenca . Se você escutar 
+ a música fica fácil de tirar . Se não escutar 
+vai ser foda tirar. Ela é tocada bem rápida até dói os  
+dedo. Caso tenham alguma duvida me mandem um e-mail porra. 
+ 
+rock na veia dos irmão .. pi-qui-ti-piu- ieeeee 
+ 
+8 L 7 - É um ligado do 8 pro 7 
+S 9 - É um slide do pro 9 
+ 
+-|-7-8-9-|----------10------------------------10--10--10------7--8--10--8--
+10-----10------------------------------10------ 
+-|--------|---8--7-------7--10--8--7--8--7----------------7----------------------
+9-------9-10-9-10-10-10-8-7-8-7-----7-- 
+  |   4 x   |

@@ -1,0 +1,58 @@
+Caetano Veloso - Totalmente Demais 
+ 
+ 
+ 
+Abm7            E 
+Linda como um neném 
+         Abm7          E/F# 
+Que sexo tem, que sexo tem? 
+  Abm7            E 
+Namora sempre com gay 
+         Abm7         E/F# 
+Que nexo faz tão sexy gay 
+Abm7 
+   Rock'n'roll? 
+E            Abm7 
+   Pra ela é jazz 
+Já transou 
+E/F#  Abm7 
+   Hi-life, society 
+   E             Abm7 
+Bancando o jogo alto 
+E/F# 
+Totalmente demais 
+  Abm7           E 
+Esperta como ninguém 
+          Abm7 
+Só vai na boa 
+         E/F# 
+Só se dá bem! 
+    Abm7        E 
+Na lua cheia tá doida 
+      Abm7              E/F# 
+Apaixonada, não sei por quem 
+Abm7       E           Abm7 
+   Agitou   um broto a mais 
+            E/F#      Abm7 
+Nem pensou,    curtiu 
+Já foi! 
+    E           Abm7 
+Foi só pra relaxar 
+E/F# 
+Totalmente demais 
+            Abm7  E 
+(vocalização) Uuu... 
+Abm7             E/F# 
+Sabe sempre quem tem 
+       Abm7         E 
+Faz avião, só se dá bem! 
+   Abm7              E/F# 
+Se pensa que tem problema 
+            Abm7 
+Não tem problema 
+         E 
+Faz sexo bem! 
+            Abm7  E/F# 
+(vocalização) Uuu... 
+E 
+Totalmente demais

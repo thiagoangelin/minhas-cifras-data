@@ -1,0 +1,137 @@
+John Lennon - Well Well Well 
+ 
+Date: Fri, 20 Mar 1998 03:42:03 -0500 
+From: Chris Scharling 
+ 
+                             Tabbed by 
+                                  Chris Scharling 
+                          (S*) 
+ 
+played with at least some distortion.  I've only tabbed  
+the verses, since I 
+can't exactly figure out what he's doing during the  
+chorus, but here it 
+goes! 
+ 
+Intro / solo 
+ 
+e]---0---0----0----0--0--0--0--0--0--------] 
+D]-----------------------------------------] 
+B]---4b5-4b5--5b4--2-----2--4--2-----------] 
+G]--------------------4-----------4--------] 
+A]-----------------------------------------] 
+E]-----------------------------------------] 
+ 
+e]--0--0--0--0----2--0--0--0--0--0---------] 
+D]-----------------------------------------] 
+B]--------2--4b5-----4--2-----2--4---------] 
+G]--2--4-------------------4---------------] 
+A]-----------------------------------------] 
+E]-----------------------------------------] 
+ 
+e]---0---0----0----0--0--0--0--0--0--------] 
+D]-----------------------------------------] 
+B]---4b5-4b5--5b4--2-----2--4--2-----------] 
+G]--------------------4-----------4--------] 
+A]-----------------------------------------] 
+E]-----------------------------------------] 
+ 
+e]--5--2-----------------------------------] 
+D]--------5--2-----------------------------] 
+B]--------------4-----2--4--2--------------] 
+G]-----------------4-----------------------] 
+A]-----------------------------------------] 
+E]-----------------------------------------] 
+ 
+Chorus: 
+Well well well 
+Oh well 
+Well well well 
+Oh well 
+ 
+(1st Verse) 
+e]--0---0----0----0---0---0---0--0---0---------] 
+D]---------------------------------------------] 
+B]--4b5-4b5--5b4--2-------2---4--2-------------] 
+G]--------------------4-------------4----------] 
+A]---------------------------------------------] 
+E]---------------------------------------------] 
+    I   took my loved one out to dinner 
+ 
+e]--0--0--0-----0---2--0--0--0----0--0---------] 
+D]---------------------------------------------] 
+B]--------2-----4b5----4--2-------2--4---------] 
+G]--2--4-----------------------4---------------] 
+A]---------------------------------------------] 
+E]---------------------------------------------] 
+    so we could get a  bite    to eat 
+ 
+e]---0---0------0-----0----0---0----0--0--0--------]
+
+D]-------------------------------------------------] 
+B]---4b5-4b5----5b4---2--------2----4--2-----------] 
+G]-------------------------4--------------4--------] 
+A]-------------------------------------------------] 
+E]-------------------------------------------------] 
+     And though we    both had been much thinner 
+ 
+e]-5---2----------------------------------------] 
+D]-------------5--2-----------------------------] 
+B]------------------4------2-4-----2------------] 
+G]---------------------4---------------4--------] 
+A]----------------------------------------------] 
+E]----------------------------------------------] 
+   She looked so beautiful I could eat her 
+ 
+(Chorus) 
+ 
+(Verse 2) 
+I took my loved one to a big field 
+so we could watch the English sky 
+We both were nervous feeling guilty 
+and neither one of us knew just why 
+ 
+(Chorus) start screaming at the top of your lungs for a  
+few minutes, then 
+ 
+(Solo) 
+ 
+(Chorus) 
+ 
+(Verse 3) 
+We sat and talked of revolution 
+Just like two liberals in the sun 
+We talked of women's liberation 
+And how the hell we could get things done 
+ 
+(Chorus) 
+ 
+(Verse 2, again) 
+ 
+I took my loved one to a big field 
+so we could watch the English sky 
+We both were nervous feeling guilty 
+and neither one of us knew just why 
+ 
+(Chorus) 
+ 
+done. 
+actually 
+just playing a blues scale a few frets down.  Practice it  
+for a little 
+while. 
+The hardest part is hitting the open 1st string on almost  
+every note.  It's 
+a 
+real pain.  If anyone can figure out the stuff he does  
+during the chorus, 
+it 
+would be greatly appreciated.  I think it's just playing  
+muted and 
+semi-muted 
+strings, but I'm not sure.  If anyone has any miscelanious 
+ Paul McCartney 
+chords or tabs from 'McCartney' or 'Ram', please send them 
+ to me. 
+ 
+>From Plastic Ono Band, 1970

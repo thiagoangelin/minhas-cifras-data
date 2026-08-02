@@ -1,0 +1,35 @@
+Jorge Ben Jor - Lalari Olala 
+ 
+Bm7                          Em7 
+ Pouca gente querendo sambar 
+Bm7                          A7 
+ Tanto samba bonito pra dar 
+Bm7                          Em7 
+ Pouca gente podendo sorrir 
+Bm7                          A7 
+ Muito riso querendo se abrir 
+Bm7                          Em7 
+ Quanta gente incapaz de amar 
+Bm7                          A7 
+ Tanto amor a querer se encontrar 
+ Bm7                         Em7 
+  Lalari Olalá 
+ 
+[Solo] Bm7  Em7 
+ 
+Bm7                         Em7 
+ Muita gente querendo brigar 
+Bm7                         A7 
+ Pouca briga devendo se dar 
+Bm7                         Em7 
+ Se a vida é difícil viver 
+Bm7                         A7 
+ A esperança não deve morrer 
+Bm7                         Em7 
+ Se saudade demais é cantar 
+Bm7                         A7 
+ Se há muita tristeza é chorar 
+Bm7            Em7 
+  Lalari Olalá 
+ 
+[Solo] Bm7  Em7

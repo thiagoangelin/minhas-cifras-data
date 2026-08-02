@@ -1,0 +1,66 @@
+George Harrison - Sat Singing 
+ 
+Chords:EADGBE 
+D:     **0232 
+E6:    022120 
+Esus4: 022200 
+D/F#:  **4232 
+D(5):  **0775 
+D(10): **0/11/10/10 
+ 
+Sat Singing 
+Into:A C#m F#m C#m E E6 D/F# E A 
+A                       C#m 
+SITTING AS THE NOONDAY SUN 
+        F#m                     C#m 
+SHINES HIGH UP IN A CLEAR BLUE SKY. 
+        E                 Esus4 
+WHILE WARMING ME I DRIFT AWAY 
+      F#m           C#m        D 
+NO MEM'RIES OF THE TIMES GONE BY. 
+          A                    C#m 
+OH, THE MOMENT THAT I LOSE MY MIND, 
+     F#m                    C#m 
+YOU COME INTO MY HEART AND SAY 
+      E                     Esus4 
+I'M ALWAYS HERE FOR YOU TO LOVE, 
+   F#m            C#m     D   D(5) D(10) 
+SURRENDER TO ME, LET ME STAY- AY-  AY. 
+OO-OO - 
+ A C#m F#m C#m E E6 D/F# E A 
+OO-OO, DU, DU, DU, DU, DU, DU, DU. 
+ 
+SINKING DEEPER STILL INSIDE, 
+I FEEL AWAKENED FROM MY DREAMS. 
+RESTING IN SOME GOLDEN FLOW, 
+BECOMING PART OF YOU IT SEEMS. 
+ 
+NOTHING SEPARATES MY LIFE 
+FROM THAT WHICH WE HAVE CALLED OUR GOAL, 
+IT'S ALL IN THIS EXTERNAL WORLD 
+AS RESULTS FROM DEEP WITHIN MY SOUL-OUL-OUL. 
+OO-OO - 
+A C#m F#m C#m E Esus4 F#m C#m D 
+OO-OO, DU, DU, DU, DU, DU, DU, DU. 
+ A C#m F#m C#m E Esus4 F#m C#m D D(5) D(10) 
+OO-OO, DU, DU, DU, DU, DU, DU, DU. 
+ 
+AS I OPEN UP MY EYES, 
+THE SKY HAS CHANGED INTO A GLOW. 
+MY SENSE OF TIME HAD DISAPPEARED, 
+I SEE THE SUN HAS SUNKEN LOW. 
+ 
+I FEEL SUCH JOY AND CALL YOUR NAME, 
+YOU'RE EV'RYTHING MY EYES COULD SEE. 
+I'LL GLADLY KISS IT ALL GOODBYE, 
+STAY EVER IN YOUR COMPANY-NY-NY. 
+OO-OO - 
+ A C#m F#m C#m E Esus4 F#m C#m D 
+OO-OO, DU, DU, DU, DU, DU, DU, DU. 
+  A C#m F#m C#m E Esus4 F#m C#m D D(5) D(10) 
+OO-OO, SRI KRISHNA, 
+DU, DU, DU, DU, DU, DU, DU. 
+ A C#m F#m C#m E Esus4 F#m C#m D 
+SAT SINGING. 
+SAT, SAT. 
+A C#m F#m C#m E Esus4 F#m C#m D(fade)

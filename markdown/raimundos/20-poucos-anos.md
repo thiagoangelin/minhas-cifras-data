@@ -1,0 +1,59 @@
+Raimundos - 20 Poucos Anos 
+ 
+[Primeira Parte] 
+ 
+         A5           E5         D5             
+Você já sabe e me conhece muito bem  
+          A5          E5              D5 
+Eu sou capaz de ir e vou muito mais além 
+                A5  C#5  F#5 
+Do que você imagina 
+          A5              E5         D5                  
+Eu não desisto assim tão fácil meu amor  
+               A5          E5 
+Das coisas que eu quero fazer 
+             D5 
+E ainda não fiz 
+         A5            C#5        F#5               
+Na vida tudo tem seu preço seu valor   
+          B5         E5           A5  
+E eu só quero dessa vida é ser feliz 
+Eu não abro mão 
+ 
+[Refrão] 
+ 
+           D5             E5            A5             C#5 
+Nem por você nem por ninguém, eu me desfaço dos meus planos 
+         D5                  E5                 A5   G#5  A5 
+Quero saber bem mais que os meus vinte e poucos anos 
+           D5             E5            A5             C#5 
+Nem por você nem por ninguém, eu me desfaço dos meus planos 
+         D5                  E5            A5  C#5  D5 
+Quero saber bem mais que os meus vinte e poucos  
+ 
+( A5  C#5  D5 ) 
+ 
+[Segunda Parte] 
+ 
+           A5           E5           D5           
+Tem gente ainda me esperando pra contar    
+        A5              E5         D5 
+As novidades que eu já canso de saber 
+    A5             C#5          F#5          
+Eu sei também tem gente me enganando   
+           B5         E5           A5 
+Mas que bobagem já é tempo de crescer 
+ 
+[Refrão] 
+ 
+           D5             E5            A5             C#5 
+Nem por você nem por ninguém, eu me desfaço dos meus planos 
+         D5                  E5                 A5   G#5  A5 
+Quero saber bem mais que os meus vinte e poucos anos 
+           D5             E5            A5             C#5 
+Nem por você nem por ninguém, eu me desfaço dos meus planos 
+         D5                  E5            A5  C#5  D5 
+Quero saber bem mais que os meus vinte e poucos  
+ 
+[Final] A5  C#5  D5 
+        A5  C#5  D5  A5

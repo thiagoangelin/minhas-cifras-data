@@ -1,0 +1,46 @@
+Sublime - Crazy Fool 
+ 
+ 
+I figured this song out by listening to the acoustic  
+version, which is below. 
+The original version is much better. 
+ 
+Intro/Chorus : 
+ 
+                        Cra - 
+ 
+Verse is easy , its just : 
+ 
+E       D 
+_       _ 
+7       5 
+7       5 
+9       7 
+9       7 
+7       5 
+7       5 
+ 
+A                            E                            
+If he thinks he's gonna take you from me, hes gotta be a  
+D 
+crazy crazy crazy 
+ 
+C#m                 C#m  Cm   Bm                      A 
+ 
+The bridge Part after chorus is just: 
+ 
+repeat  F#  with riff at end : 
+ 
+F#                               (riff1) 
+My love for you is oh so strong 
+ 
+F#                               (riff1) 
+WE've been together for oh so long 
+ 
+F#                               (riff1) 
+Now im down in this misery 
+ 
+F#  F  E 
+          Is  this this the way loves s'posed to be? 
+ 
+Then back to Verse.

@@ -1,0 +1,46 @@
+Cazuza - Cumplice 
+ 
+A       G#m         F#m 
+Hoje eu acordei querendo uma encrenca 
+A           G#m     F#m  
+Escrevi teu nome no ar 
+A         G#m         F#m 
+Bati três vezes na madeira 
+A        G#m      F#m 
+Senti você me chamar 
+ 
+D7+   C#m       A         B 
+Na verdade uma carta em braile 
+D7+    C#m         F#m 
+Me deu uma certeza cega 
+D7+    C#m       A       B 
+Você estava de volta ao bairro 
+D7+      C#m              F#m 
+Em alguma esquina à minha espera 
+ 
+A     G#m      F#m  
+Meu amor, meu cúmplice 
+A         G#m     F#m    
+Eu sempre vou te achar 
+A    G#m      F#m 
+Nos avisos da lua 
+A        G#m     F#m 
+Do outro lado da rua 
+ 
+D7+   C#m   A        B 
+Rodei todas as lanchonetes 
+D7+   C#m       F#m 
+Tive idéias perversas 
+D7+   C#m         A       B 
+Relembrei tantos golpes espertos 
+D7+  C#m            F#m   
+Você cada vez mais perto 
+ 
+A    G#m       F#m    
+Meu amor, meu cúmplice 
+A         G#m     F#m 
+Meu par na contramão 
+A     G#m          F#m 
+Você não mudou em nada (nada, nada, nada) 
+A         G#m      F#m  
+Eu também não, que bom!

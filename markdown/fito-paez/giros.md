@@ -1,0 +1,33 @@
+Fito Paez - Giros 
+ 
+Gm7               Cm7                   Eb7  
+Giros, existe un cielo y un estado de coma 
+       Dm7                  Cm7  Adim7 D7/9  
+cambia el entorno de persona a persona. 
+Gm7               Cm7                         Eb7   Gm7 
+Giros, dar media vuelta y ver qué pasa allá afuera 
+            Dm7                Gm7 
+no todo el mundo tiene primaveras. 
+ 
+Gm9 
+Flaco, ¿Dónde estás? 
+Estoy imaginándome otro lugar 
+     Cm9 
+estoy juntando información 
+    Adim7  Dm7/9    Gm9 
+estoy queriendo ser otro 
+(otro tipo). 
+ 
+Mi necesidad se va modificando con los demás 
+así mi luna llega a vos 
+así yo llego a tu luna. 
+ 
+Giros, todo da vueltas como una gran pelota 
+todo da vueltas casi ni se nota. 
+Giros, fotografías de distintos lugares 
+fotográficamente tan distantes. 
+ 
+Suena un bandoneón, 
+parece de otro tipo pero soy yo 
+que sigo caminando igual 
+silbando un tango oxidado.

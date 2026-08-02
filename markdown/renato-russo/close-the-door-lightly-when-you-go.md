@@ -1,0 +1,58 @@
+Renato Russo - Close The Door Lightly When You Go 
+ 
+[Intro] D 
+ 
+       A                           D 
+Turn around, don't whisper out my name 
+            A             G            D 
+For like a breeze, it'd stir a dying flame 
+              A                        D 
+I'll miss someone, if it eases you to know 
+     G             A                D4 D 
+So close the door lightly when you go 
+ 
+  G         A                  D4 D 
+Who was the one that stole my mind ? 
+  G         A                  D   D4 
+Who was the one that robbed my time ? 
+  G         A                       D 
+Who was the one who made me feel unkind ? 
+    G             A               D4 D 
+So fare thee well, sweet love of mine 
+ 
+           A                       D 
+Take your tears to someone else's eyes 
+                  A 
+They're made of glass 
+         G                D 
+And are cut like wounded lies 
+     A                          D 
+Memories are drifting like the snow 
+      G             A               D D4 D 
+But close the door lightly when you go 
+ 
+  G         A                  D4 D 
+Who was the one that stole my mind ? 
+  G         A                  D   D4 
+Who was the one that robbed my time ? 
+  G         A                       D 
+Who was the one who made me feel unkind ? 
+    G             A               D4 D 
+So fare thee well, sweet love of mine 
+ 
+            A                           D  
+Don't look back to where you once hade been 
+                A 
+Look straight ahead 
+             G                   D 
+When you're walking through the rain 
+            A 
+And find a light 
+                           D 
+If the path gets dark and cold 
+      G             A               D 
+But close the door lightly when you go 
+      G             A               D  D4 D 
+But close the door lightly when you go 
+      G             A               D  D4 D 
+But close the door lightly when you go

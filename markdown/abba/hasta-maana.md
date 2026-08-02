@@ -1,0 +1,123 @@
+Abba - Hasta Maana 
+ 
+Intro:   
+ 
+F               Am       Bb    C7  
+¿Dónde quedó el verano?  
+F               Am    Bb   D7  
+Aquél que nos unió  
+Gm  
+¿Dónde se fue?  
+Bbm  
+Yo no lo sé  
+Gm            G7  
+Si aún mi amor  
+                C           C7  
+sigue por ti viviendo  
+ 
+F  
+Hasta Mañana  
+                  Am  
+te sabré esperar,  
+       Dm  D7 Gm  
+dime tú el lugar  
+                                    C7  
+Es que la fuerza de un amor así,  
+   Gm                                C          C7  
+sabe triunfar siempre a pesar de todo  
+ 
+F  
+Hasta Mañana  
+                   Am  
+Te sabré esperar  
+            Dm  
+Junto a ti  
+D7          Gm  
+quiero estar  
+Bb  
+Escríbeme,  
+y te lo explico  
+Bbm  
+Perdóname  
+Te lo suplico  
+F              D7  
+Hasta mañana  
+Dime  
+Gm           C7  
+Hasta mañana  
+         F  
+Mi amor  
+ 
+Spoken:  
+¿Dónde quedó nuestro sueño?  
+aquél que se escapó  
+¿Dónde se fue?  
+Yo no lo sé  
+Si aún mi amor  
+sigue por ti viviendo  
+ 
+F  
+Hasta Mañana  
+                  Am  
+te sabré esperar,  
+       Dm  D7 Gm  
+dime tú el lugar  
+                                    C7  
+Es que la fuerza de un amor así,  
+   Gm                                C          C7  
+sabe triunfar siempre a pesar de todo
+
+F  
+Hasta Mañana  
+                   Am  
+Te sabré esperar  
+            Dm  
+Junto a ti  
+D7          Gm  
+quiero estar  
+Bb  
+Escríbeme,  
+y te lo explico  
+Bbm  
+Perdóname  
+Te lo suplico  
+F              D7  
+Hasta mañana  
+Dime  
+Gm           C7  
+Hasta mañana  
+         F  
+Mi amor  
+ 
+F  
+Hasta Mañana  
+                  Am  
+te sabré esperar,  
+       Dm  D7 Gm  
+dime tú el lugar  
+                                    C7  
+Es que la fuerza de un amor así,  
+   Gm                             C          C7  
+sabe triunfar siempre a pesar de todo  
+ 
+F#  
+Hasta Mañana  
+                   A#m  
+Te sabré esperar  
+            D#7  
+Junto a ti  
+          G#m  
+quiero estar  
+B  
+Escríbeme,  
+y te lo explico  
+Bm  
+Perdóname  
+Te lo suplico  
+F#              D#7  
+Hasta mañana  
+Dime  
+G#m           C#7  
+Hasta mañana  
+         F#  
+Mi amor

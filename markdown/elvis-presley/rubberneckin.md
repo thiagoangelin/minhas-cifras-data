@@ -1,0 +1,52 @@
+Elvis Presley - Rubberneckin 
+ 
+[Intro] C7  F7  C7  F7 
+ 
+C7             F7          C7               F7 
+Stop, look and listen baby that's my philosophy 
+C7              F7                C7                    F7 
+It's your rubberneckin' baby well that's all right with me 
+C7             F7          C7               F7 
+Stop, look and listen baby that's my philosophy 
+C7                F7               C7                    F7 
+It's called rubberneckin' baby but that's all right with me 
+F7                                   C7 
+Some people say I'm wasting time yeh, but they don't really know 
+  F7                                    G7 
+I like what I see I see what I like yeh, it gives me such a glow 
+ 
+C7                 F7       C7            F7 
+First thing in the morning, last thing at night 
+  C7           F7            C7               F7 
+I look, stare everywhere and see everything inside 
+C7             F7          C7               F7 
+Stop, look and listen baby that's my philosophy 
+C7            F7                C7                    F7 
+If your rubberneckin' baby well that's all right with me 
+C7             F7          C7               F7 
+Stop, look and listen baby that's my philosophy 
+C7                F7               C7                    F7 
+It's called rubberneckin' baby but that's all right with me 
+F7                                   C7 
+Some people say I'm wasting time yeh, but they don't really know 
+  F7                                    G7 
+I like what I see I see what I like yeh, it gives me such a glow 
+ 
+( C7 F7 C7 F7) 
+ 
+Sittin' on the back porch all by myself 
+Along came Mary Jane with somebody else 
+Well, stop, look and listen baby that's my philosophy 
+It's called rubberneckin' baby but that's all right with me 
+ 
+Some people say I'm wasting time yeh, but I don't really care 
+I like what I see, I see what I like yeh, it gives me such a glow 
+ 
+Sittin' on the back porch all by myself 
+Along came Mary Jane with somebody else 
+Well, stop, look and listen baby that's my philosophy 
+It's called rubberneckin' baby but that's all right with me 
+Stop, look and listen baby that's my philosophy 
+Stop, look and listen baby that's my philosophy 
+Stop, look and listen baby that's my philosophy 
+Stop

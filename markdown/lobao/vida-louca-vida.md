@@ -1,0 +1,69 @@
+Lobao - Vida Louca Vida 
+ 
+[Intro] E4  E  D4  D  E  E4  E  C#  D 
+ 
+E4 
+Se ninguém olha quando você passa 
+           G6(9) 
+Você logo acha 
+        Bb/C     F5  E5 
+A vida voltou ao normal 
+E4 
+Aquela vida sem sentido, volta sem perigo 
+G6(9)     Bb/C      F5   E5 
+A mesma vida tudo tudo sempre igual 
+E4 
+Se ninguém olha quando você passa 
+              G6(9) 
+Você logo diz:  "Palhaço!" 
+    A#/C       F5   E5 
+Você acha que não está legal 
+E4                         G6(9) 
+Perde logo a noção do perigo, todos os sentidos 
+  A#/C     F5  E5 
+E você passa mal 
+ 
+[Refrão] 
+ 
+A     E/G#      G      D/F# 
+Vida louca vida, vida breve 
+A         E/G#     G 
+Já que eu não posso te levar 
+    D/F# 
+Quero que você me leve 
+A     E/G#      G      D/F# 
+Vida louca vida, vida imensa 
+A    E/G#      G 
+Ninguém vai nos perdoar 
+   D/F# 
+Nosso crime não compensa 
+ 
+[Intro] 
+ 
+E4 
+Se ninguém olha quando você passa 
+Você logo acha 
+   G6(9)         A#/C   F5  E5 
+Eu tô carente, eu sou manchete popular 
+E4 
+Já me cansei de toda essa tolice, babaquice 
+  G6(9)    A#/C        F5  E5 
+Dessa eterna falta do que falar 
+ 
+[Intro] 
+ 
+A     E/G#      G      D/F# 
+Vida louca vida, vida breve 
+A         E/G#     G 
+Já que eu não posso te levar 
+    D/F# 
+Quero que você me leve 
+A     E/G#      G      D/F# 
+Vida louca vida, vida imensa 
+A    E/G#      G 
+Ninguém vai nos perdoar 
+   D/F# 
+Nosso crime não compensa 
+ 
+[Solo] B  B4  A/B  A4/B 
+       B  B4  A/B  A4/B

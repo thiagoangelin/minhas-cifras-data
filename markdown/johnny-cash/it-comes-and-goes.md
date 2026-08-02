@@ -1,0 +1,35 @@
+Johnny Cash - It Comes And Goes 
+ 
+ A                 D                A 
+I've been up, and down and out, and I have been around, 
+     E                                        A 
+And I've felt good more times than I've felt bad. 
+ A                D               A 
+Lovin' you felt better than I've ever known before, 
+ E                                     A 
+Losin' you's the worst pain that I've had. 
+ 
+CHORUS 
+ 
+N.C               E                            A 
+But it comes and goes, it's like a blue wind blows, 
+                  E                        A 
+Yes it goes and comes, but now I'm livin' some. 
+              D                                 A 
+And today my high didn't get any lower, and my low didn't  
+fall anymore, 
+         E                                  A 
+But sometimes when I drop my guard everybody kno-ows. 
+       D 
+Cos I can't control the feeling, 
+           A 
+And there ain't much sign of healin'. 
+     E                               A    E 
+Cos when the pain is there, it always sho-ows, 
+N.C 
+But it comes and goes. 
+ 
+In my mind I'm holding you and loving you again, 
+I hear you laugh and I feel you cling to me. 
+Although it's over I'm still holding on a little bit, 
+And there's a lot of pain in the memory.

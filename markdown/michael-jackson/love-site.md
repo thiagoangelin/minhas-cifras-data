@@ -1,0 +1,33 @@
+Michael Jackson - Love Site 
+ 
+Intro: Em C Am D (x2) 
+ 
+Em                     C 
+I get a piece of paper,and a pen 
+ 
+Am                         D 
+I right down all the names I see on ebay 
+ 
+Em                                 C 
+Whyyyyyyyyyyyy the are no names on ebay 
+ 
+Am                                       D 
+Whyyyyyyyyyyyy there are no names on the love site 
+ 
+Chorus: 
+Em                                         C 
+Whyyyyyyyyyyyy I need a wife all I ask for is a few names  
+on the wondeful 
+ 
+Am   D 
+LOVE B TE 
+ 
+(Song restart) 
+ 
+Outro: 
+ 
+Em      C                         Am 
+Finally I found the love site and I found the perfect 
+ 
+D 
+GIRL!

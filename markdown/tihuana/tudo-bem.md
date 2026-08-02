@@ -1,0 +1,49 @@
+Tihuana - Tudo Bem 
+ 
+ 
+intro: Dm C G 
+ 
+Dm 
+Todo santo dia, toda santa noite 
+C 
+Negros são torturados, eliminados, levados ao açoite 
+Dm 
+Mas quando olho para os lados nada consigo ver 
+C                                  G 
+Vejo um povo humilhado cansado de ver seu sangue escorrer 
+Dm 
+Todo santo dia, todo fim de semana 
+C 
+Vejo neguinho correndo de dentro das lojas americanas 
+Dm 
+Mas quando olho para os lados nada consigo ver 
+C                                  G 
+Vejo um povo humilhado cansado de ver seu sangue escorrer 
+ 
+refrão: Dm C G 
+Tudo bem, tudo bem será que ta tudo bem 
+Tudo bem, tudo bem se isso incomoda alguém (Refrão) 
+ 
+Dm 
+O arco íris em preto e branco na terra das cores 
+F 
+E essa chuva que não quer mais passar 
+C 
+O mundo não gira mais por lá 
+       G 
+No meu coração que quer algo mais 
+Dm 
+E essa estrada que um dia vai acabar 
+F 
+E eu vou ver o sol outro dia brilhar 
+C 
+Os anos que passarão por mim 
+        G 
+Vou sorrir e amar 
+Não vou ligar pro futuro 
+          Dm 
+Pois ninguém vai ligar 
+C            G                  Dm 
+Tudo bem, será que ta tudo bem 
+                 C     G                   Dm 
+Tudo bem, tudo bem se isso incomoda alguém

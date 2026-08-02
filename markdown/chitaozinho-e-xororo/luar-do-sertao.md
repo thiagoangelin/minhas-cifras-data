@@ -1,0 +1,99 @@
+Chitaozinho E Xororo - Luar Do Sertao 
+ 
+[Intro] C  Am  Dm  G7M 
+        C  Am  Dm  G7M 
+ 
+     C    Am        Dm 
+Não há, ó gente, ó, não 
+          G           C  G 
+Luar como esse do sertão 
+     C    Am        Dm 
+Não há, ó gente, ó, não 
+          G            C  G 
+Luar como esse do sertão 
+          C         Am          Dm 
+Ó, que saudade do luar da minha terra 
+                   G 
+Lá na serra branquejando folhas 
+           C   G 
+Secas pelo chão 
+      C          Am         Dm 
+Este luar cá da cidade tão escuro 
+                  G 
+Não tem aquela saudade 
+                  C  G 
+Do luar lá do sertão 
+         C            Am           Dm 
+Se a lua nasce por detrás da verde mata 
+                      G 
+Mais parece um sol de prata 
+                 C   G 
+Prateando a solidão 
+          C        Am         Dm 
+E a gente pega na viola que ponteia 
+                   G 
+E a canção é a lua cheia 
+                    C    G 
+A nos nascer no coração 
+     C    Am        Dm 
+Não há, ó gente, ó, não 
+          G           C   G 
+Luar como esse do sertão 
+     C    Am        Dm 
+Não há, ó gente, ó, não 
+          G           C  G 
+Luar como esse do sertão 
+           C          Am          Dm 
+Coisa mais bela neste mundo não existe 
+                       G 
+Do que ouvir um galo triste 
+                   C  G 
+No sertão se faz luar 
+         C             Am 
+Parece até que alma da lua 
+          Dm 
+É que descanta 
+                 G 
+Escondida na garganta 
+                  C  A7M 
+Desse galo a soluçar 
+ 
+[Solo] D  Bm  Em  A7 
+       D  Bm  Em  A7 
+ 
+           D           Bm               Em 
+Mas como é lindo ver depois por entre o mato 
+                  A7                         D  A7 
+Deslizar calmo regato, transparente como um véu 
+           D           Bm          Em 
+No leito azul das suas águas mormurando
+
+                   A7                 D 
+E por sua vez roubando as estrela do céu 
+ 
+     D    Bm      Em            A7          D  A7 
+Não há  ó gente o não luar como este do Sertão ( Bis) 
+            D 
+Ai! quem me dera 
+      Bm          Em 
+Eu morresse lá na serra 
+                  A7 
+Abraçado a minha terra 
+                   D   A7 
+E dormindo de uma vez 
+         D         Bm         Em 
+Ser enterrado numa grota pequenina 
+                   A7 
+Onde a tarde a sururina 
+                D  A7 
+Chora a sua viuvez 
+     D    Bm        Em 
+Não há, ó gente, ó, não 
+          A7          D  A7 
+Luar como esse do sertão 
+     D    Bm        Em 
+Não há, ó gente, ó, não 
+          A7          D 
+Luar como esse do sertão 
+ 
+[Final] Bm  Em  A7(4)  A7  D

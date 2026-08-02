@@ -1,0 +1,48 @@
+Capital Inicial - Religiao 
+ 
+Intro: (C D) 
+ 
+C             D 
+ Aquele beijo, aquele ato 
+C             D 
+ Dois corpos uma alma um fato 
+C          D 
+ de prazer de te encontrar 
+C              D 
+ Minha religião é amar 
+ 
+Refrão: 
+C       F 
+ Tente lembrar, 
+C       F 
+ Tente entender 
+C              F 
+ Qual é a sina de se viver 
+C         F 
+ Se não é amor 
+C          F 
+ Deus escondeu 
+C                 F 
+ Guardou as chaves e depois perdeu 
+ 
+C           D 
+ Sou devoto dessa crença 
+C               D 
+ é um fanatismo é uma doença 
+C            D 
+ Sou viciado não quero cura 
+C               D 
+ Quero overdose e morrer na tua 
+ 
+Refrão 
+ 
+G            C 
+ Na tua boca, no teu ventre 
+G            C 
+ É tão claro o que voce sente 
+G              C 
+ Quero chegar sempre contigo 
+G 
+ A emoção do prazer contido x2 
+ 
+Refrão

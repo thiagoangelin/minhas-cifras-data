@@ -1,0 +1,37 @@
+The Killers - Smile Like You Mean It 
+ 
+This is the part at the start which begins quietly but  
+gradually gets louder. 
+ 
+(Where it gets louder and drums start playing) 
+ 
+Save some face, you know you've only got one 
+Change your ways while you're young 
+Boy, one day you'll be a man 
+Oh girl, he'll help you understand 
+Smile like you mean it 
+Smile like you mean it 
+ 
+Looking back at sunsets on the Eastside 
+We lost track of the time 
+Dreams aren't what they used to be 
+Some things slide by so carelessly 
+ 
+Smile like you mean it 
+Smile like you mean it 
+ 
+And someone is calling my name 
+From the back of the restaurant 
+And someone is playing a game 
+In the house that I grew up in 
+And someone will drive her around 
+Down the same streets that I did 
+On the same streets that I did 
+ 
+Smile like you mean it 
+Smile like you mean it 
+Smile like you mean it 
+Smile like you mean it 
+ 
+Oh no, oh no no no 
+Oh no, oh no no no

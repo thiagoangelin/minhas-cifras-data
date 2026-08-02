@@ -1,0 +1,48 @@
+Fresno - Duas Lagrimas Acustico 
+ 
+D               D/F#                      G 
+  Uma lágrima rolou do meu olho ao perceber 
+                 Gm6 
+Que era a última vez em que eu ia ver você 
+D               D/F#                      G 
+  Outra lágrima rolou dentro do meu coração 
+                   Gm6 
+Ao ver a velocidade com que as vidas vão em vão 
+ 
+D                        D/F#                  G 
+  Quando eu menos esperei, nada mais eu encontrei 
+                Gm6                     D 
+Havia desaparecido a lágrima que eu chorei 
+                    D/F#                     G 
+Mas aquela que escorreu, no meu peito lá ficou 
+                    Gm6                       A 
+A gota de um gosto amargo com o frio cristalizou 
+ 
+                      D 
+E eu quero saber como proceder 
+    G           Bm          A 
+Pra esquecer da tua voz, do teu viver 
+                        D/F#                   G 
+Porque eu quero apenas caminhar sem ter que olhar pra trás 
+  Bm          A 
+E ter você vivendo em paz 
+ 
+(D9 D/F# G Gm6) 2x 
+ 
+D                 D/F#                 G 
+  E você sabe que eu já sofri demais aqui 
+                    Gm6                    D9 
+E não vejo a hora de poder ficar junto de ti 
+                D/F#                  G 
+E onde você estiver, estarei em coração 
+               Gm6                      Bm 
+E em alma e espírito, através dessa canção 
+              G         A7          D9   D4  D9 
+Enquanto a sua ida puder fazer alguém chorar 
+Bm            G         F#            Bm C#m D9 F#m  
+(oitavadas os ultimos 4 acordes) 
+É sinal que a sua vida ainda não deve acabar 
+Bm         G            A7           D9  D4  D9 
+Já que não há saída eu posso apenas imaginar 
+Bm            G         A7            Bm 
+Como seria a minha vida sem a sua pra me alegrar

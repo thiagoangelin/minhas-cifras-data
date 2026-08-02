@@ -1,0 +1,55 @@
+Elvis Presley - Like Baby 
+ 
+Intro: 
+ 
+              E 
+You gave me love to enjoy 
+      A                     E     E7  E 
+Like a bright shiny toy to a baby 
+            A 
+No matter what you would do 
+                         E    E7  E 
+I depended on you like a baby 
+ 
+         B7              A 
+One thing I know I love you 
+                         E   E7  E 
+Yes I loved you like a baby 
+ 
+           E 
+It was a fool that you took 
+        A                        E     E7 E 
+And I think cause you look like a baby 
+           A 
+To lover's ways I was blind 
+                                 E  E7 E 
+Cause I just had a mind like a baby 
+ 
+         B7     
+You're just a flirt 
+       A                           E  E7 E A 
+And I had to be her guide like a baby 
+ 
+A          E 
+ ÔÔuÔÔuÔÔuÔÔ 
+A          E 
+ ÔÔuÔÔuÔÔuÔÔ 
+A          E 
+ ÔÔuÔÔuÔÔuÔÔ 
+ 
+        B7               A   (PARA) 
+I need you so, I need you so 
+ 
+            E 
+The day I found I am alive 
+         A                           E  
+Then I broke down and cried like a baby 
+         A  
+Well it was then I could see 
+                                  E 
+You were playing with me like a baby 
+ 
+            B7              A  
+Well you can bet that some day 
+                          E 
+I'll forget just like a baby

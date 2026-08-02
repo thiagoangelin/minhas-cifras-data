@@ -1,0 +1,45 @@
+Bon Jovi - All About Lovin You 
+ 
+ E             C#m  E                C#m 
+I give you my word I fill you with promises, 
+E              C#m           E                       C#m 
+I give you anything you want I told you we could be more  
+than friends. 
+ 
+( A   B   E   C#m ) 
+ 
+A           B     E                        C#m 
+You and me baby, live for the day and the dark of the  
+night, 
+A              B      E                 C#m 
+Anxious for tomorrow, everything gonna be alright. 
+A                            B 
+Baby it doesn't matter what they say, 
+               E               C#m   E                     
+When they say, she's Bobby's  girl,  Jonny, you're playin' 
+       C#m 
+ with  dynamite. 
+E              C#m    E                           C#m 
+She's Bobby's  girl,  close the door baby, it'll  be  
+alright 
+E                       C#m         E                    
+When I hear you on the  telephone, my body trembles and  
+    C#m 
+my blood runs hot. 
+E                    C#m          E                      
+You're so much more  than a girl  you bring me up when   
+C#m 
+I'm not. 
+A           B    E           C#m 
+You and me baby, on a magic  carpet ride, 
+A              B      E                 C#m 
+We live for tomorrow, everything gonna  be alright. 
+A                     B 
+It don't matter what  they say, 
+              E              C#m     E                     
+When they say, she's Bobby's  girl,  Jonny,you're playin'  
+     C#m 
+with  dynamite. 
+E              C#m    E                           C#m 
+She's Bobby's  girl,  close the door baby, it'll  be  
+alright

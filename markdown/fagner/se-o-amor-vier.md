@@ -1,0 +1,171 @@
+Fagner - Se O Amor Vier 
+ 
+Dm 
+Você sabe de onde eu vim  
+Em7/5- 
+Você sabe o que eu não sei  
+          C7          F D/F# 
+Você não sabe de nada  
+Gm 
+Aprendi a recompor  
+Dm 
+A me desatar o nó  
+Em7/5- 
+Hoje estou bem  
+           A7        Dm A 
+Hoje estou bem melhor  
+ 
+ Dm 
+Você sabe onde eu nasci  
+Em7/5- 
+Você sabe onde eu vivi  
+                        C7      F D/F# 
+Você não sabe da missa um terço  
+Gm 
+Consegui não me afogar  
+Dm 
+Enganei até a morte  
+Em7/5- 
+Hoje estou bem  
+            A             Dm A 
+Hoje estou bem mais forte  
+ 
+Dm                 C9        F 
+Divido em vida o meu tesouro  
+         Gm      Dm 
+Ainda acho pouco  
+Dm              A      Dm A 
+Seja o que deus quiser  
+Dm                    C9  F 
+E calejado eu viro o jogo  
+       Gm             Dm 
+E ponho a mão no fogo  
+       A     Dm 
+Se o amor vier!   
+Dm Em7/5- C7 F D/F# 
+Gm 
+Aprendi a recompor  
+Dm 
+A me desatar o nó  
+ 
+Em7/5- 
+Hoje estou bem  
+           A7        Dm A 
+Hoje estou bem melhor  
+ 
+ Dm 
+Você sabe onde eu nasci  
+Em7/5- 
+Você sabe onde eu vivi  
+                        C7      F D/F# 
+Você não sabe da missa um terço  
+Gm 
+Consegui não me afogar  
+Dm 
+Enganei até a morte  
+Em7/5- 
+Hoje estou bem  
+            A             Dm A 
+Hoje estou bem mais forte
+
+ 
+Dm                 C9        F 
+Divido em vida o meu tesouro  
+         Gm      Dm 
+Ainda acho pouco  
+Dm              A      Dm A 
+Seja o que deus quiser  
+Dm                    C9  F 
+E calejado eu viro o jogo  
+       Gm             Dm 
+E ponho a mão no fogo  
+       A         Dm A 
+Se o amor vier!   
+Dm                 C9        F 
+Divido em vida o meu tesouro  
+         Gm      Dm 
+Ainda acho pouco  
+Dm              A      Dm A 
+Seja o que deus quiser  
+Dm                    C9  F 
+E calejado eu viro o jogo  
+       Gm             Dm 
+E ponho a mão no fogo  
+       A     Dm 
+Se o amor vier!   
+ 
+(  Dm  Em7/5-  C7  F  D/F#  ) 
+ 
+Gm 
+Aprendi a recompor  
+ 
+Dm 
+A me desatar o nó  
+Em7/5- 
+Hoje estou bem  
+           A7        Dm A 
+Hoje estou bem melhor  
+ 
+ Dm 
+Você sabe onde eu nasci  
+Em7/5- 
+Você sabe onde eu vivi  
+                        C7      F D/F# 
+Você não sabe da missa um terço  
+Gm 
+Consegui não me afogar  
+Dm 
+Enganei até a morte  
+Em7/5- 
+Hoje estou bem  
+            A             Dm A 
+Hoje estou bem mais forte  
+ 
+Dm                 C9        F 
+Divido em vida o meu tesouro  
+         Gm      Dm 
+Ainda acho pouco  
+Dm              A      Dm A 
+Seja o que deus quiser  
+Dm                    C9  F 
+E calejado eu viro o jogo  
+       Gm             Dm 
+E ponho a mão no fogo  
+       A         Dm A 
+Se o amor vier!   
+Dm                 C9        F 
+Divido em vida o meu tesouro  
+         Gm      Dm 
+Ainda acho pouco  
+Dm              A      Dm A
+
+Seja o que deus quiser  
+Dm                    C9  F 
+E calejado eu viro o jogo  
+       Gm             Dm 
+E ponho a mão no fogo  
+       A     Dm 
+Se o amor vier!   
+ 
+(  Dm  Em7/5-  C7  F  D/F#  ) 
+ 
+Gm 
+Aprendi a recompor  
+ 
+Dm 
+A me desatar o nó  
+Em7/5- 
+Hoje estou bem  
+           A7        Dm A 
+Hoje estou bem melhor  
+Dm Em7/5- C7 F D/F# 
+Gm 
+Consegui não me afogar  
+Dm 
+Enganei até a morte  
+Em7/5- 
+Hoje estou bem  
+            A             Dm 
+Hoje estou bem mais forte  
+ 
+(  Dm  Em7/5-  C7  F  D/F#  Gm  Dm   Em7/5-   A  Dm  )

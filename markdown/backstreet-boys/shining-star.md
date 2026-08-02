@@ -1,0 +1,49 @@
+Backstreet Boys - Shining Star 
+ 
+ 
+CHORUS 
+ 
+You’re my shining star 
+That is what you are 
+There is no one like you baby 
+Angels everywhere 
+Everytime you’re near 
+You will always be my baby 
+ 
+Baby, when you do the things you do 
+I wanna be close to you 
+'Cause I need to feel your every move, oh 
+Baby you can never say how much 
+I need your touch, I can’t get enough 
+'Cause you know what to do to turn me on 
+ 
+CHORUS - repeat 
+ 
+Baby, you’re as close as close can get 
+And baby you know I let 
+Every single part of me be yours, ooh yeah 
+It doesn’t matter if the phone might ring 
+'Cause I won’t hear a thing when I’m in your arms 
+'Cause you know what to do to turn me on 
+ 
+CHORUS - repeat 
+ 
+I’ve never been so satisfied 
+With anything in my entire life 
+'Cause you were doing everything so right 
+Oh, oh baby 
+I’ve never been so satisfied 
+With anything in my entire life 
+'Cause you were doing everything so right 
+Oh, oh baby 
+ 
+CHORUS - repeat 
+ 
+You know that I adore you 
+Wanna be there everyday for you 
+To satisfy your every needs my baby, baby 
+You know that I adore you 
+Wanna be there everyday for you 
+To satisfy your every needs my baby, baby 
+ 
+CHORUS - repeat

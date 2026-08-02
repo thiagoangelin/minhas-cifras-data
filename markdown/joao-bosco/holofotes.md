@@ -1,0 +1,27 @@
+Joao Bosco - Holofotes 
+ 
+( João Bosco / Antônio Cícero / Waly Salomão ) 
+ 
+Dm7(9) 
+Desde o fim da nossa história, eu já segui navios 
+Gm7(11)     Bb7(9)             Am7 A7 
+Aviões e holofotes pela noite afora 
+Dm7(9) 
+Me fissurarm tantos signos e selvas, portos, places, 
+Gm7(11)                Bb7(9)              Am7 A7 
+Línguas, sexos, olhos de amazonas que inventei 
+ 
+Dias sem carinho, só que não me desespero: 
+Rango alumínio, ar, pedra, carvão e ferro 
+Eu lhe ofereço essas coisas que enumero: 
+Quando fantasio é quando sou mais sincero 
+ 
+Dm7(9) 
+Eis a Babilônia, amor, e eis Babel aqui: 
+Gm7(11)        Bb7(9)                  Am7 A7 
+Algo da insônia do seu sonho antigo em mim 
+Dm7(9) 
+Eis aqui, o meu presente de navios e aviões 
+Holofotes, noites afora e fissuras e invenções: 
+Tudo isso é pra queimar-se combustível pra se gastar 
+O carvão, o desespero, O alumínio e o coração

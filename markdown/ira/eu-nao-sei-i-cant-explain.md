@@ -1,0 +1,40 @@
+Ira - Eu Nao Sei I Cant Explain 
+ 
+Intro: G   F   C   F  
+ 
+       G           F    C   G  
+Não consigo explicar  
+         G        F    C   G  
+O que as vezes me dá  
+      G        F    C   G  
+Sinto frio e calor  
+        G      F    C   G  G    F    C   G  
+Uma espécie de dor  
+ 
+G          F        C     G  
+Eu caminho louco pela cidade  
+ G          F           C     G  
+O que você diz pode ser verdade  
+    G          F          C               G  
+Não quero pensar em tudo que sonhei  
+   G       F        D  
+Eu acho que eu sei mas...  
+ 
+   C  
+Eu não sei...  
+Acho que é amor  
+            F  
+Quero te contar  
+        G  
+Mas não sei explicar  
+       G        F    C   G  G  F  C  G  
+Eu não sei explicar  
+ 
+   G           F                  G       F  
+A cabeça gira e eu me sinto mal  
+  G                      F                G      F  
+O que você me disse não bateu legal  
+   G                 F                     G      F  
+Não quero pensar em tudo que sonhei  
+         G      F           D  
+Eu acho que eu sei, mas...

@@ -1,0 +1,50 @@
+Roxette - Lies 
+ 
+Intro: 
+ 
+     A  C D (4x) 
+ 
+ Verse 1: 
+      Em 
+    Put 'em on, put them big boots on, 
+                             A   C D 
+    baby put them big boots on. 
+      Em 
+    Make your mark, make a good kick start, 
+                                      A   C D 
+    kick yourself right out of my heart. 
+    C    D  Em      C       A 
+    It's a cookin, jumpin, jivin shout, 
+                    Em           C           D 
+    'cause you're every little thing I can do without. 
+          Em        C           A 
+    Every line you lay, every trick you trade, 
+          Em              C         A 
+    It could never ever make the grade. 
+ 
+ Chorus: 
+   D    G    Em        A           D    G   Em           A 
+    Lies,     lalalalalies It's all lies,    lalalalalalies 
+                G                (only lies) 
+    You're all lies. 
+ 
+ Verse 2: 
+      Em 
+    Honeybut, keep your big mouth shut, 
+                               A 
+    baby keep that big mouth shut. 
+     C   D   Em        C      A 
+    It's a steamin, jumpin, jivin shout, 
+                   Em           C          D 
+    'cause you're every little thing I still dream about. 
+           Em       C     A 
+    Every love you lay, every prayer you pray, 
+             Em         C       A 
+    It will never ever make my day. 
+ 
+ Chorus: 
+   D    G    Em        A           D    G   Em           A 
+    Lies,     lalalalalies It's all lies,    lalalalalalies 
+                G                (only lies) 
+    You're all lies. 
+                        (2x)

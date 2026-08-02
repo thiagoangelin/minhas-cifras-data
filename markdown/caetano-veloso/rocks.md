@@ -1,0 +1,62 @@
+Caetano Veloso - Rocks 
+ 
+Intro: D 
+ 
+    D 
+Tatuou um ganesh na coxa 
+ 
+                  Bm 
+Chegou com a boca roxa de botox 
+ 
+         Em 
+Exigindo rocks 
+ 
+    G      G       G      G 
+Animais, metais, totais, letais 
+ 
+            A 
+Eu não dei letra 
+ 
+      D 
+Tu é gênia, gata, etc. 
+ 
+                 Bm 
+Mas cê foi mesmo rata demais 
+ 
+             Em 
+Meu grito inimigo é: 
+ 
+(riff) 
+ 
+Você foi mor rata comigo 
+ 
+Você foi mor rata comigo 
+ 
+Você foi mor rata comigo 
+ 
+Você foi mor rata comigo 
+ 
+              F 
+Você foi concreta e simplesmente 
+ 
+Bb            D 
+Rata comigo demais, 
+ 
+Bb             D 
+Rata comigo demais 
+ 
+Bb            D 
+Rata comigo demais 
+ 
+Bb 
+Rata 
+ 
+REFRÃO (RIFF) 
+ 
+e||--------------------------------------------------| 
+B||--------------------------------------------------| 
+G||--------------------------------------------------| 
+D||--------------------------------------------5-5---| 
+A||--------------------5-5---3-3---5-5---7-7---------| 
+E||--3-3---5-5---7-7---------------------------------|  
+Durante o refrão todo!

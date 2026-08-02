@@ -1,0 +1,116 @@
+Red Hot Chili Peppers - The Adventures Of Rain 
+Dance Maggie 
+ 
+[Intro]  Em  C  Em  C 
+ 
+ Em                      C 
+Lipstick junkie be funky all he want 
+  Em                        C 
+She came back wearing a smile 
+  Em 
+Look-alike someone drug me 
+      C 
+They wanted to unplug me 
+ Em                    C 
+No one in here is on trial 
+Its just a turn-around 
+ 
+Em   C 
+And we go 
+Oh 
+well and we go 
+Oh oh oh oh 
+ 
+ Em                 C 
+Tic-toc, I want to rock you like the 80s 
+ Em                      C 
+Cock-blocking isn't allowed 
+ Em                   C 
+Tug boat sheila is into memorabilia 
+  Em                  C 
+Who said three is a crowd? 
+We better get it on the go 
+ 
+ G    Em 
+Hey, now 
+             G                Em 
+We've gotta make it rain somehow 
+  C 
+She told me too 
+      Bm 
+And show me what to do 
+    Am                      D 
+Oh Maggie makes it in her cloud 
+          G    Em 
+I said , hey, now 
+          G                Em 
+We gotta make it rain somehow 
+  C 
+She told me too 
+          Bm 
+And show me what to do 
+      Am                   D 
+She knows how, to make it loud 
+ 
+ Em                     C 
+Rain dance maggie advances to the final 
+  Em                       C 
+Who knew that she had the goods? 
+ Em                            C 
+Little did I know her body was one delicious vinyl 
+ Em                  C 
+To your neck of the woods 
+I want to lick a little bit 
+ 
+ G    Em 
+Hey, now 
+             G                Em 
+We've gotta make it rain somehow 
+  C
+
+She told me too 
+      Bm 
+And show me what to do 
+           Am               D 
+Oh Maggie makes it in her cloud 
+ 
+[Solo]  Em  C 
+ 
+              Em      C 
+You got the wrong girl 
+             Em       C 
+But not for long girl 
+          Em      C 
+Its in a song girl 
+             Em      C 
+Cos I'll be gone girl 
+ 
+ G    Em 
+Hey, now 
+             G                Em 
+We've gotta make it rain somehow 
+  C 
+She told me too 
+      Bm 
+And show me what to do 
+           Am               D 
+Oh Maggie makes it in her cloud 
+ 
+I said 
+ G   Em 
+Hey now 
+           G                 Em 
+I want to rock this valley crowd 
+  C 
+She told me to 
+     Bm 
+And told me what to do 
+      Am              D 
+She knows how to make it loud 
+ 
+[Em  C  Em  C] 
+But not for longer 
+Its in a song girl 
+Cos I'll be gone bye bye yeah 
+bye bye, girl 
+bye bye, girl

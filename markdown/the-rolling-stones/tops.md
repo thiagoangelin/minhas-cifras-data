@@ -1,0 +1,48 @@
+The Rolling Stones - Tops 
+ 
+Intro: (Cm7 Dm7 Cm7 Dm7 Cm7 Dm7 Cm7)        
+ 
+  A# Cm7     A#                               Cm7  
+       Hey baby, every man is the same come on I'll make you a star  
+                A#                      
+       I'll take you a million miles from all this  
+     Cm7                  A#               Cm7  
+       Put you on pedestal, come on, come on  
+      Dm                        D#  
+       Have you ever heard those opening line  
+      G#                               D#       A#  
+       You should leave this small town way behind  
+      Dm                    D#  
+       I'll be your partner, show you the steps  
+      G#                                   D#              F  
+       Whit me behind your tasting of the sweet wine of success  
+      A#                        Cm7  
+       Cause I'll take you to the top   
+             A#                        Cm7 A# Cm7  
+       Hey baby, I'll take you to the top  
+       Dm             D#   
+       Step on ladder, toe in the pool  
+       G#                           D#               A#  
+       Your such a natural you don't need no acting shool  
+       Dm                          D#  
+       Don't need no casting couch, or be a star in bed  
+       G#                             D#            F  
+        Never,never,never,let success go to pretty head  
+               A#            Cm7  
+       Cause I'll take you to the top  
+       A#                            Cm7  
+       I swear we'll never going to stop, baby  
+      A#                    Cm7  
+       I'll take you to the top  
+      A#                            D#  
+       Don't let the world pass you by  
+      A#                         
+       You better your chance now baby  
+            D#                                       A#  Cm7    A#  
+       Or be sorry for the rest of your sweet loving life, baby  
+       Cm7             A#                         Cm7  
+       Oh, sugar, hey sugar, I'll take you to the top  
+       A#                   Cm7  
+       I'll take you to the top  
+       A#                    Cm7  
+       I'll take you to the top,sugar

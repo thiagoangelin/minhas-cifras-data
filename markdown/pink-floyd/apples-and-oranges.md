@@ -1,0 +1,58 @@
+Pink Floyd - Apples And Oranges 
+ 
+(G*,A,C,D) 
+ 
+      G                    E 
+Got a flip-top pack of cigarettes in her pocket, feeling 
+A 
+Good at the top, shopping in sharp shoes, 
+G              E                     A 
+Walking in the sunshine town feeling very cool 
+        D                              Eb 
+But the butchers and the bakers in the supermarket stores getting 
+E                             A 
+Everything she wants from the supermarket store (more more 
+more) 
+G          C        G          C 
+Apples and oranges, apples and oranges 
+G                    E                   A 
+Cornering meekly she trips up sweetly to meet the people, 
+         G          E      A 
+She's on time again -- and then 
+  D                            Eb 
+I catch her by the eye, then I stop and have to think, 
+        E                          A 
+"What a funny thing to do 'cos I'm feeling very pink" (pink pink pink) 
+G          C        G          C 
+Apples and oranges, apples and oranges 
+C           C 
+I love she, she loves me 
+F#m      Eb  D    G 
+See you, see you, see you... 
+G 
+Apples and oranges, apples and oranges [falsetto voice] 
+ 
+(G... G9, D) 
+ 
+G                         E 
+Thought you might like to know 
+A             G           E        A 
+I'm the lorry driver man,    she's on the run 
+D           Eb         E 
+Down by the river side feeding sucks by the 
+A 
+Afternoon tide (quack quack quack) 
+G          C        G          C 
+Apples and oranges, apples and oranges 
+C 
+Doo da duh duh duh duh duh... [etc] 
+ 
+[Guitar feedback] 
+ 
+(Playful senseless mutter) 
+ 
+CHORDS USED: 
+ 
+G  320002     A  577655     C   x32010     D  x5777x 
+Eb x6888x     E  x7999x     F#m 244222     G9 3x0005 
+G* 355600

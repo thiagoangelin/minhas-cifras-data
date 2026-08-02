@@ -1,0 +1,50 @@
+Leandro E Leonardo - No Aprendi A Decir Adios 
+ 
+[Intro]  C  G  D7  G 
+ 
+                     G 
+No aprendí a decir adios 
+                 C 
+Tal vez me voy aconstrumbra 
+                       D7 
+Mirando dentro de tus ojos                   
+Quedaran en los mios 
+                  G 
+Las huellas de tu mirar 
+ 
+                     G 
+No tengo nada que decir 
+                      C 
+Solo el silencio hablara por mí 
+                 G 
+No guardaré mi dolor 
+                    D 
+Y a pesar de tanto amor 
+              G 
+Va ser mejor así 
+ 
+                      C 
+No aprendí a decir adios 
+                 D 
+Mas tengo que aceptar 
+                  Bm 
+Que los amores se van 
+             Em 
+Y nunca volveran 
+                  D7 
+Si me tienes que dejar 
+                 G 
+Quiero que seas feliz 
+ 
+                     C 
+No aprendí a decir adios 
+                 D 
+Mas yo te dejo huír 
+               Bm 
+Sin lágrimas en mí 
+               Em 
+Y aunque me dolera 
+                D7 
+El invierno va pasar 
+                 G 
+Y borrara la cicatríz

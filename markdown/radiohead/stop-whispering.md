@@ -1,0 +1,71 @@
+Radiohead - Stop Whispering 
+ 
+Key: G 
+Time Sig: 4/4 
+ 
+ | Rhythm Figure 1 (guitar 1, slight dist.) 
+ | 1 e & a 2 e & a 3 e & a 4 e & a | 1 e  
+& a 2 e & a 3 e & a 4 e & a | 
+ 
+   Dsus2 (let ring)            G5 (let ring) 
+ 
+ | Rhythm Figure 2 (guitar 2, w/ effects) 
+ | 1 e & a 2 e & a 3 e & a 4 e & a | 
+ 
+   Dsus2 (let notes ring) 
+ 
+ | Rhythm Figure 3 (guitar 1) 
+ | 1 e & a 2 e & a 3 e & a 4 e & a | 1 e  
+& a 2 e & a 3 e & a 4 e & a | 
+ 
+   Dsus2 (let ring)            G5 (let ring) 
+ 
+Intro: (Rhythm Figure 1 x4) 
+ 
+Verse 1: (w/ Rhythm Figure 1) 
+And the wise men say I don't want to hear your voice 
+And the thin men say I don't want to hear your voice 
+(start Rhythm Figure 2) 
+And they're cursin' me and they won't let me be 
+There's nothing to say 
+(Rhythm Figure 3) 
+There's nothing to do 
+ 
+(Rhythm Figure 1, more forcefully) 
+Stop whispering 
+Start shouting 
+Stop whispering 
+Start shouting 
+ 
+Verse 2: 
+And my mother say we spit on you son some more (?) 
+And the building(?) say we spit on your face some more (?) 
+And the feeling is that there's something wrong 
+'Cause I can't find the words and I can't find the songs 
+ 
+Stop whispering 
+Start shouting 
+Stop whispering 
+Start shouting 
+ 
+Dear sir, I've a complaint 
+Dear sir, I've a complaint 
+Can't remember what it is 
+Doesn't matter anyway 
+Doesn't matter anyway 
+ 
+It's not a word (?) 
+It's not a word (?) 
+ 
+Stop whispering 
+Stop whispering 
+Stop whispering 
+Stop whispering 
+Start shouting 
+ 
+ascending riff is: 
+ 
+the timing or number if times to play each chord isn't  
+right but the
+
+order and chords are right!!!

@@ -1,0 +1,73 @@
+Erasmo Carlos - Pagar Para Viver 
+ 
+[Intro] E  F#7  B7  E  
+        E  F#7  B7  E  
+ 
+     E          G#7 
+O afeto que me deste 
+                 C#m 
+Acordou as madrugadas 
+                      B7 
+Tantos as que sussurraste 
+                          E 
+Fez-se grito em teu silêncio 
+                  G#7 
+Renasci no teu carinho 
+                  C#m 
+Encantado em tal poder 
+                  F#7 
+Eu vivi no teu cansaço 
+                  B7 
+E morri no teu prazer 
+ 
+                          G# 
+E além do mais, ainda respiro 
+                    C#m 
+Vejo cores e ouço música 
+                       B7 
+Sinto o vento no meu rosto 
+                   E 
+E o sol na minha cara 
+                   G#7 
+Eu não sei o que me leva 
+                   C#m 
+A tantas graças merecer 
+                         F#7 
+É tanto amor, que eu deveria 
+ B7           E 
+Pagar para viver 
+ 
+( E  F#7  B7  E ) 
+( E  F#7  B7  E ) 
+ 
+                     G# 
+Mas o afeto que me deste 
+                C#m 
+Acordou as madrugadas 
+                      B7 
+Tantos as que sussurraste 
+                          E 
+Fez-se grito em teu silêncio 
+                  G#7 
+Renasci no teu carinho 
+                  C#m 
+Encantado em tal poder 
+                         F#7 
+É tanto amor, que eu deveria 
+B7            E  
+Pagar para viver 
+ 
+( E  F#7  B7  E ) 
+ 
+E                       F#7 
+É tanto amor, que eu deveria 
+B7            E  
+Pagar para viver 
+ 
+( E  F#7  B7  E ) 
+( E  F#7 )
+
+B7            E 
+Pagar para viver 
+ 
+[Final] E  E4  E

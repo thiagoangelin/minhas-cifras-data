@@ -1,0 +1,56 @@
+Pedra Leticia - O Meu Sangue Ferve Por Voce 
+ 
+Cm         G 
+Teu, todo teu 
+G           Cm 
+Minha, toda minha 
+Cm           G 
+Juntos, essa noite 
+G                      Cm  G 
+Quero te dar todo meu amor 
+ 
+Cm           G 
+Toda, Minha vida 
+(siiiiimm) 
+G           Cm   G 
+Eu, te procurei 
+(nanananana) 
+Cm          G                                 Cm  G 
+Hoje, sou feliz, com você que é tudo o que sonhei 
+ 
+REFRÃO (bis 2x) 
+: Cm            G 
+: Ahhhh, eu te amo 
+: G             Cm       G 
+: Ahhhh, eu te amo meu amor 
+: Cm            G 
+: Ahhhh, eu te amo 
+: G                         Cm  G 
+: E o meu sangue ferve por você 
+ 
+Cm            G 
+Você me enlouquece 
+G             Cm 
+Você é o que quero 
+Cm             G 
+eu sou, prisioneiro 
+G                      Cm  G 
+Prisioneiro desse seu amor 
+ 
+Cm           G 
+Toda, Minha vida 
+(sim sim sim sim) 
+G           Cm 
+Eu, te procurei 
+Cm          G                                 Cm  G 
+Hoje, sou feliz, com você que é tudo o que sonhei 
+ 
+REFRÃO (bis 2x) 
+: Cm            G 
+: Ahhhh, eu te amo 
+: G             Cm       G 
+: Ahhhh, eu te amo meu amor 
+: Cm            G 
+: Ahhhh, eu te amo 
+: G                         Cm  G 
+: E o meu sangue ferve por você

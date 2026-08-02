@@ -1,0 +1,73 @@
+Chico Buarque - Ilmo Sr Ciro Monteiro 
+ 
+(De: Chico Buarque) 
+ 
+Intr.: (F C D7 G7(#11) C) 2 Vezes 
+ 
+       C          G/B      Am7 
+Amigo Ciro muito te   admi......ro 
+          G   F  Em7            Ebm7       Dm7 
+O meu chapéu te ti..ro muito humildimente  
+        A7/13       A7(b13)       Dm7 
+Minha petiz   agradece      a cami...sa 
+                   D#°                   E7 
+Que lhe deste à gui...sa de gentil presen..te  
+         A7/13                     A7(b13) 
+Mas caro nego, um pano rubro-negro 
+                 D7/9                        Dm7 
+É presente de gre....go, não de um bom irmão 
+    G7    F#m7(b5)                      B7(b9) 
+Nós separa........dos nas arquibancadas   
+                  Em7     Ebm7      Dm7  G7 
+Temos sido tão chegados na    desolação  
+ 
+       C            G/B      Am7 
+Amigo velho amei o teu  conse...lho 
+        G   F   Em7             Ebm7        Dm7 
+Amei o teu verme...lho que é de tanto ardor 
+           A7/13         A7(b13)   Dm7 
+Mas quis o verde, que te quero  ver...de  
+                       E7                     A7 
+É bom pra quem vai ter    de ser bom sofredor  
+                          F7M 
+Pintei de branco o teu pre...to  
+              F#°                 C/G 
+Ficando comple...to o jogo de cor  
+     A7/13            A7(b13)         D7/9 
+Virei.....lhe o listra.......do do pei....to 
+                    G7/13               Gm7/C C7 
+E nasceu desse jeito     uma outra tricolor  
+ 
+Solo.:(F C D7 G7(#11) C) 
+ 
+       C            G/B      Am7 
+Amigo velho amei o teu  conse...lho 
+        G   F   Em7             Ebm7        Dm7 
+Amei o teu verme...lho que é de tanto ardor 
+           A7/13         A7(b13)   Dm7 
+Mas quis o verde, que te quero  ver...de  
+                       E7                     A7 
+É bom pra quem vai ter    de ser bom sofredor  
+                          F7M 
+Pintei de branco o teu pre...to  
+              F#°                 C/G 
+Ficando comple...to o jogo de cor  
+     A7/13            A7(b13)         D7/9 
+Virei.....lhe o listra.......do do pei....to 
+                    G7/13               Fm7/9 Bb7/13 
+E nasceu desse jeito     uma outra tricolor  
+ 
+Final.:(Fm7/9 Bb7/13 Fm7/9 Bb7/13 C) 
+ 
+.:ACORDES:.......................................... 
+F - 133211  C - x32010  D7 - x5453x   
+G7(#11) - 3x342x  G/B - x2003x  Am7 - x0201x 
+G - 3x000x  Em7 - 0xx433  Ebm7 - xx1322   
+Dm7 - xx0211  A7/13 - x0x022  A7(b13) - x0x021 
+D#° - xx1212  E7 - 02213x  D7/9 - x5455x   
+G7 - 3x343x  F#m7(b5) - 2x221x  B7(b9) - x2121x 
+A7 - x02020  F7M - 1x221x  F#° - 2x121x
+
+C/G - 3x201x  G7/13 - 3x345x  Gm7/C - x33333 
+C7 - x32310  Fm7/9 - 13x143  Bb7/13 - x1x133 
+....................................................

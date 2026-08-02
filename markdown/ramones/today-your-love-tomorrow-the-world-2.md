@@ -1,0 +1,15 @@
+Ramones - Today Your Love Tomorrow The World 2 
+ 
+ 
+ 
+Letra: (lyric)  
+ 
+   I'm a shock trooper in a stupor 
+              Yes I am. 
+          I'm a Nazi schatze 
+    Y'know I fight for fatherland 
+           Little German boy 
+          Being pushed around 
+           Little German boy 
+           In a German town 
+   Today your love, tomorrow the world

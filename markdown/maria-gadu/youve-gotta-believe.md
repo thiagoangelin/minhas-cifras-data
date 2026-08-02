@@ -1,0 +1,65 @@
+Maria Gadu - Youve Gotta Believe 
+ 
+Intro: B7+ C#m7/11 
+ 
+B7+                           C#m7/11 
+You see I really lost her number 
+B7+                          C#m7/11 
+Now I've really got to find her 
+B7+                                C#m7/11 
+Somehow I've gotta make her understand 
+B7+                             C#m7/11 
+That I can't leave no days without her. 
+ 
+G#m 
+However, I believe 
+C#m7/11 
+If you really wanna know 
+G#m 
+That some day or night 
+C#m7/11 
+She will remember how we were 
+                               G#m 
+We were on those days and nights 
+C#m7/11 
+That we came close 
+                                    G#m 
+We came close to the feel of what love is 
+            C#m7/11 
+And now the time has come. 
+ 
+B7+ 
+That's why you got'a believe 
+ 
+In the things that you love you know 
+C#m7/11 
+Jump on your dreams if you want to show 
+B7+                                    C#m7/11 
+To yourself all the things you want tomorrow 
+                          B7+ 
+That's why you got'a believe 
+ 
+In the things that you love you know 
+C#m7/11 
+Jump on that 
+B7+ 
+To yourself because you better be safe then 
+C#m7/11 
+Sorrow 
+B7+                                 C#m7/11 
+Oh, now, now, now, now… What's going on? 
+B7+                                      C#m7/11 
+If they say parapapapa, I mean what's going on? 
+              B7+             C#m7/11 
+Tell me just what… What's going on? 
+            B7+                              C#m7/11 
+If they say parapapapa, I mean what's going on? 
+ 
+B7+                                 C#m7/11 
+And then I went around her way and them 
+B7+                          C#m7/11 
+I started asking people about her 
+B7+                                   C#m7/11 
+Well If you know her you would understand 
+B7+                            C#m7/11 
+Why I can't go no days without her.

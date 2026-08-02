@@ -1,0 +1,36 @@
+Maria Bethania - Guriata 
+ 
+G                 D 
+Se você chegasse agora 
+                       G 
+Não ia me encontrar chorando 
+                D 
+Mas o luarão lá fora 
+            C 
+Sabe que a saudade 
+           G 
+Está me matando 
+ 
+                  D 
+Sou que nem Guriatã 
+              G 
+Que morre cantando 
+ 
+G7                C 
+Eu não sou Juca Mulato 
+        D 
+Que a flor do mato 
+       G 
+Vive acalentando 
+G7               C 
+Porque se apaixonou 
+        G 
+E anda só cismando 
+               D 
+Quem cisma assim tão triste 
+                  G 
+Há de morrer chorando 
+                  D 
+Sou que nem Guriatã 
+              G 
+Que morre cantando

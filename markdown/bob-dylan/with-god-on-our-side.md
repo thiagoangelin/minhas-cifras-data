@@ -1,0 +1,93 @@
+Bob Dylan - With God On Our Side 
+ 
+C                F Em  
+Oh my name it is nothin' 
+   G            C 
+My age it means less 
+    C *)         
+The country I come from 
+   F          C 
+Is called the Midwest 
+    C 
+I's taught and brought up there 
+    F        C 
+The laws to abide 
+                     F    Em 
+And that land that I live in 
+    G          C 
+Has God on its side. 
+ 
+Oh the history books tell it 
+They tell it so well 
+The cavalries charged 
+The Indians fell 
+The cavalries charged 
+The Indians died 
+Oh the country was young 
+With God on its side. 
+ 
+Oh the Spanish-American 
+War had its day 
+And the Civil War too 
+Was soon laid away 
+And the names of the heroes 
+I's made to memorize 
+With guns in their hands 
+And God on their side. 
+ 
+Oh the First World War, boys 
+It closed out its fate 
+The reason for fighting 
+I never got straight 
+But I learned to accept it 
+Accept it with pride 
+For you don't count the dead 
+When God's on your side. 
+ 
+When the Second World War 
+Came to an end 
+We forgave the Germans 
+And we were friends 
+Though they murdered six million 
+In the ovens they fried 
+The Germans now too 
+Have God on their side. 
+ 
+I've learned to hate Russians 
+All through my whole life 
+If another war starts 
+It's them we must fight 
+To hate them and fear them 
+To run and to hide 
+And accept it all bravely 
+With God on my side. 
+ 
+But now we got weapons 
+Of the chemical dust  
+If fire them we're forced to 
+Then fire them we must 
+One push of the button
+
+And a shot the world wide 
+And you never ask questions 
+When God's on your side. 
+ 
+In a many dark hour 
+I've been thinkin' about this 
+That Jesus Christ 
+Was betrayed by a kiss 
+But I can't think for you 
+You'll have to decide 
+Whether Judas Iscariot 
+Had God on his side. 
+ 
+So now as I'm leavin' 
+I'm weary as Hell 
+The confusion I'm feelin' 
+Ain't no tongue can tell 
+The words fill my head 
+And fall to the floor 
+If God's on our side 
+He'll stop the next war. 
+ 
+*) The Cs are usually embellished by Csus4.

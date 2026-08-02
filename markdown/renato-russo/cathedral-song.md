@@ -1,0 +1,95 @@
+Renato Russo - Cathedral Song 
+ 
+[Intro] A  D  Bm  E  A  D  Bm  E 
+ 
+[Tab - Intro] 
+ 
+                        A       D                          
+E|--|-0--5--5----10--9--5--5-5/4--4/2-2h0-|-----------0-------------|---------
+---| 
+   Bm                      E 
+ 
+  
+B|--|-------------------------------------|---------3---3----------|------------| 
+  
+G|--|-------------------------------------|-------4-------4--------|-----9----9-| 
+  
+D|--|-------------------------------------|-----4------------------|-----9----9-| 
+  
+A|--|-------------------------------------|---2-------------2/7---/|--7-----7---| 
+ 
+E|--|-------------------------------------|------------------------|------------| 
+ 
+  A            D 
+I saw from the cathedral 
+Bm                E 
+You were watching me 
+      A            D 
+And I saw from the cathedral 
+Bm            E 
+What I should be 
+           D 
+So take my lies 
+            A 
+And take my time 
+               E      D               A 
+'Cause all the others they wanna take my life 
+      A              D 
+And I watch, with an intent, basic 
+Bm                E 
+It's the same for you 
+              A 
+You hold your hand 
+         D 
+And it's all fine - laced and 
+Bm                     E 
+Would you make me do 
+           D 
+So take my time 
+            A 
+And take my lies 
+               E      D               A 
+'Cause all the others they wanna take my life 
+E               A 
+Serious for the winter time 
+E             A 
+To wrench my soul 
+E                  A 
+Whole cotton whole cotton ears 
+      D 
+But I know there must be 
+       Bm 
+Yes, I know there must be 
+       E4                            E 
+Yes, I know there must be a place to go 
+        A            D 
+You saw me, from the cathedral 
+Bm                   E 
+Well, I'm an ancient heart 
+           A             D
+
+Yes, you saw me from the cathedral 
+Bm                   E 
+And here we are just falling apart 
+          D 
+You catch me 
+      Bm 
+I am tired 
+       E4       E     A  D  Bm  E  A  D  Bm  E 
+I want all that you are 
+      A            D 
+And I saw from the cathedral 
+Bm               E 
+You were leaving me 
+      A            D 
+And I saw from the cathedral 
+Bm                   E 
+Could not see to see 
+            D 
+So take my time 
+            A 
+And take my lies 
+               E 
+'Cause all the others 
+D               A 
+They wanna to take my life

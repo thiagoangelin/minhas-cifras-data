@@ -1,0 +1,56 @@
+Titas - Eu Nao Sou Um Bom Lugar 
+ 
+Introdução: (D A G D A D) X2 
+ 
+A          G             D           A           G 
+Em cada buraco que eu entrava, eu cavava e não cabia 
+A    G               D            A                 G 
+Toda porta em que eu batia, tava fechada ninguém abria 
+ 
+(D A G D A D) 
+A           G             D          A              G 
+Em cada esquina que eu parava, eu falava, ninguém ouvia 
+A        G               D         A            G 
+Toda sarjeta em que eu caia, eu rolava e não dormia 
+ 
+D     A       D      A 
+Vou sair, não vou mentir 
+G                   A      G                 A 
+Eu não sou um bom lugar, aqui eu já não fico mais 
+D     A        D      A 
+vou mudar, não vou parar 
+G                      A    G                  A 
+Não quero mais ficar assim, eu vou começar por mim 
+ 
+(D A G D A D) X2 
+ 
+A         G               D            A             G 
+Em cada espelho que eu olhava, eu procurava e não me via 
+A       G                D             A             G 
+Toda gaveta em que eu mexia, não tinha nada, tava vazia 
+A        G             D             A                G 
+Em cada rua que eu passava, eu perguntava pra onde eu ia 
+A    G               D          A               G 
+Toda placa que eu seguia, tava errada, e eu me perdia 
+ 
+D     A       D      A 
+Vou sair, não vou mentir 
+G                   A      G                 A 
+Eu não sou um bom lugar, aqui eu já não fico mais 
+D     A        D      A 
+vou mudar, não vou parar 
+G                      A    G                  A 
+Não quero mais ficar assim, eu vou começar por mim 
+ 
+(C G D A) X3 (C G A) 
+ 
+D     A       D      A 
+Vou sair, não vou mentir 
+G                   A      G                 A 
+Eu não sou um bom lugar, aqui eu já não fico mais 
+D     A        D      A 
+vou mudar, não vou parar 
+G                      A    G                  A 
+Não quero mais ficar assim, eu vou começar por mim 
+ 
+(D A G D A D) X2

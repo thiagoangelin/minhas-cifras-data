@@ -1,0 +1,26 @@
+O Rappa - Take It Easy My Brother Charles 
+ 
+ 
+ 
+(Am,F) 
+ 
+pois a rosa é uma flor a rosa é uma dor a rosa é um nome de 
+mulher 
+rosa é flor da simpatia é a flor escolhida no dia do primeiro 
+encontor do nosso dia com avida mais querida com a vida mas 
+garrida 
+take easy charlie 
+ 
+depois que o primeiro homem maravilhosamente pisou na lua eu 
+me senti 
+com direitos, com principios e dignidade de me liberta por isso, 
+sem 
+preconceitos eu canto eu canto a fantasia eu canto o amor, eu 
+canto a 
+alegria eu canto a fé, eu canto a paz eu canto a sugestão eu canto 
+na 
+madrugada take easy my brother charlie pois eu canto até pra 
+minha 
+amada esperada, desejada, adorada 
+ 
+- REFRÃO -

@@ -1,0 +1,38 @@
+Mutantes - Bat Macumba 
+ 
+Caetano Veloso/Gilberto Gil 
+ 
+C#7 F# (Durante toda a música) 
+ 
+C#7     F#       C#7      F# 
+Bat Macumba ê ê, Bat Macumba obá 
+Bat Macumba ê ê, Bat Macumba obá 
+Bat Macumba ê ê, Bat Macumba obá 
+Bat Macumba ê ê, Bat Macumba oh 
+Bat Macumba ê ê, Bat Macumba 
+Bat Macumba ê ê, Bat Macum 
+Bat Macumba ê ê, Batman 
+Bat Macumba ê ê, Bat 
+Bat Macumba ê ê, Ba 
+Bat Macumba ê ê 
+Bat Macumba ê 
+Bat Macumba 
+Bat Macum 
+Batman 
+Bat 
+Ba 
+Bat 
+Bat Ma 
+Bat Macum 
+Bat Macumba 
+Bat Macumba ê 
+Bat Macumba ê ê 
+Bat Macumba ê ê, Ba 
+Bat Macumba ê ê, Bat 
+Bat Macumba ê ê, Batman 
+Bat Macumba ê ê, Bat Macum 
+Bat Macumba ê ê, Bat Macumba 
+Bat Macumba ê ê, Bat Macumba oh 
+Bat Macumba ê ê, Bat Macumba obá 
+Bat Macumba ê ê, Bat Macumba obá 
+Bat Macumba ê ê, Bat Macumba obá

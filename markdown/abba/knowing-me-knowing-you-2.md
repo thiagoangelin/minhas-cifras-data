@@ -1,0 +1,82 @@
+Abba - Knowing Me Knowing You 2 
+ 
+G  Em  Bm G  G A 
+ 
+D  Em        Bm        F#m 
+No more care free laughter 
+D  Em         Bm    F#m 
+Si-lence ev - er af-ter 
+ 
+Bm 
+Walking through an empty house 
+            Asus4 A Asus4 A 
+Tears in my eyes 
+G 
+This is where the story ends 
+            Bm 
+This is goodbye 
+ 
+        G          A 
+Knowing me knowing you 
+                        D 
+There is nothing we can do 
+        G          A 
+Knowing me knowing you 
+                             D    G     A 
+We just have to face it this time we're through 
+D         F#m         G      A 
+ Breaking up is never easy I know 
+      D    G  A 
+But I have to go 
+        D          G 
+Knowing me knowing you 
+         A          D 
+It's the best I can do 
+ 
+D Bm F#m  G A  2x 
+ 
+D   Em         Bm        F#m 
+Memories, good days, bad days 
+D       Em      Bm   F#m 
+They'll be with me always 
+ 
+Bm 
+In these old familiar rooms 
+               Asus4 A Asus4 A 
+Children would play 
+G 
+Now there's only emptiness 
+           Bm 
+Nothing to say 
+ 
+        G          A 
+Knowing me knowing you 
+                        D 
+There is nothing we can do 
+        G          A 
+Knowing me knowing you 
+                             D    G     A 
+We just have to face it this time we're through 
+D         F#m         G      A 
+ Breaking up is never easy I know 
+      D    G  A 
+But I have to go 
+        D          G 
+Knowing me knowing you 
+         A          D 
+It's the best I can do 
+ 
+D Bm F#m  G A  2x
+
+A Bm  A Bm 
+ 
+* Alternate: 
+ 
+Capo II 
+ 
+G     = F 
+Em    = Dm 
+Bm    = Am 
+A     = G 
+F#m   = Em 
+Asus4 = Gsus4

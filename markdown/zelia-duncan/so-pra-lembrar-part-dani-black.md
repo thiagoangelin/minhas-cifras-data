@@ -1,0 +1,47 @@
+Zelia Duncan - So Pra Lembrar Part Dani Black 
+ 
+G              C            G    C 
+Quando a noite for longa demais 
+A escuridão roubar sua paz 
+Posso ser eu o risco pr'uma faísca 
+Posso ser eu o lume que se arrisca 
+solo no breu, Fagulha imune a dor 
+A 
+Só pra lembrar 
+C        D7      G    C 
+Que você tem um amor 
+ 
+Quando a espera for tempo demais 
+A esperança cansada e gasta no chão 
+Posso ser eu o braço que te carrega 
+Posso ser eu no laço quem te entrega fé no apogeu 
+A mão que rega a flor 
+Só pra lembrar 
+Que você tem um amor 
+ 
+Am7 
+Pode a razão desabar 
+G 
+Deixa cair o perdão em gotas 
+Am7 
+Pode o oásis secar 
+G                             C       D7 
+Eu buscarei a mais clara das fontes 
+ 
+C               G 
+Só pra lembrar, só pra lembrar 
+C                  G 
+Que você tem meu amor 
+Am7                       G 
+Leito coberto de sonho e mel 
+Am7                  D7             
+De peito aberto bem perto do céu 
+Am7                 G 
+Nunca é deserto nem nada é tão mal 
+C                D7      G 
+Quando se tem um amor só seu 
+ 
+Só seu 
+Quando se tem um amor só seu 
+Um amor só seu 
+Só seu, só seu

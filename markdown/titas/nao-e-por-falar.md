@@ -1,0 +1,58 @@
+Titas - Nao E Por Falar 
+ 
+E5 
+ 
+[Verse 1] 
+B5               E5 
+Não é por não falar 
+B5        E5 
+em felicidade 
+B5 
+Que eu não goste 
+E5 
+de felicidade 
+B5                E5 
+Não é que eu não goste 
+B5        E5 
+de felicidade 
+B5 
+É por não falar 
+E5 
+em felicidade 
+F#5    E5 
+é por falar 
+F#5      E5 
+infelicidade 
+F#5              E5          F#5  E5 
+Que eu não gosto de falar 
+F#5      E5 
+em felicidade 
+ 
+[Chorus] 
+Solo (B5 E5 B5 C#5 B5) 
+Reptete tudo novamente 
+ 
+B5               E5 
+Não é por não falar 
+B5        E5 
+em felicidade 
+B5 
+Que eu não goste 
+E5 
+de felicidade 
+B5                E5 
+Não é que eu não goste 
+B5        E5 
+de felicidade 
+B5 
+É por não falar 
+E5 
+em felicidade 
+F#5    E5 
+é por falar 
+F#5      E5 
+infelicidade 
+F#5              E5          F#5  E5 
+Que eu não gosto de falar 
+F#5      E5 
+em felicidade

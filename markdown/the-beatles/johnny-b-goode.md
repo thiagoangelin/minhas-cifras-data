@@ -1,0 +1,112 @@
+The Beatles - Johnny B Goode 
+ 
+INTRO: A      E   D   A 
+ 
+ A 
+Deep down in Louisianna 
+ 
+Close to New Orleans 
+ 
+Way back up in the woods 
+ 
+Among the evergreens 
+        D 
+There stand a country cabin 
+ 
+Made of clay and wood 
+       A 
+Where lives a young country boy 
+ 
+Named Johnny B. Goode 
+      E 
+He never ever learned 
+ 
+To read or write a book so well 
+               A 
+But he could play his guitar 
+ 
+Just like a-ringing a bell 
+ 
+     A 
+Go go, go Johnny go go go! 
+                    D 
+Go Johnny go go go! 
+                    A 
+Go Johnny go go go! 
+                    E 
+Go Johnny go go go! 
+               A 
+Aah Johnny B. Goode! 
+ 
+            A 
+He used to carry his guitar 
+ 
+In a gunny sack 
+ 
+Sit beneath the trees 
+ 
+By the railroad track 
+    S 
+Oh sitting and a-playing 
+ 
+In the shade 
+  A 
+Drumming to the rhythm 
+ 
+That the drivers made 
+ E 
+People passing by 
+ 
+Used to stop and say 
+A 
+My oh my 
+ 
+That country boy can play 
+ 
+     A 
+Go go, go Johnny go go go! 
+                    D 
+Go Johnny go go go!
+
+                    A 
+Go Johnny go go go! 
+                    E 
+Go Johnny go go go! 
+               A 
+Aah Johnny B. Goode! 
+ 
+GUITAR G  O: A   D   A      D      A      E       A   E   X2 
+ 
+          A 
+Well his mama told him 
+ 
+Someday you will be a man 
+ 
+And you will be the leader 
+ 
+Of a big old band 
+ D 
+Many people coming 
+ 
+From miles around 
+    A 
+To hear you play your music 
+ 
+Till the sun goes down 
+ E 
+Maybe some day 
+ 
+Your name will be in light 
+        A 
+Saying Johnny B. Goode tonight! 
+ 
+     A 
+Go go, go Johnny go go go! 
+                    D 
+Go Johnny go go go! 
+                    A 
+Go Johnny go go go! 
+                    E 
+Go Johnny go go go! 
+               A 
+Aah Johnny B. Goode!

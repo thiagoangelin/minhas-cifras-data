@@ -1,0 +1,56 @@
+Engenheiros Do Hawaii - Fe Nenhuma 
+ 
+Introdução: 6x (A C D F E) 
+ 
+A         C             D    F  E 
+Não levo fé nenhuma em nada! 
+A         C             D    F  E 
+Não levo fé nenhuma em nada! 
+ 
+F#m 
+Mas ninguém tem o direito 
+De me achar reacionário 
+Não acredito no teu jeito 
+Revolucionário 
+ 
+G#m 
+Eu sei que você acredita 
+Nas notícias do jornal 
+Mas tudo isso me irrita 
+Me enoja e me faz mal 
+ 
+F#m 
+Por incrível que pareça 
+Teu discurso é tão seguro 
+Talvez você esqueça: 
+G#m 
+Você também não tem futuro 
+ 
+A         C             D    F  E 
+Não levo fé nenhuma em nada! 
+A         C             D    F  E 
+Não levo fé nenhuma em nada! 
+ 
+F#m 
+Você quer me pôr no agito 
+No movimento estudantil 
+Mas eu não acredito 
+No futuro do Brasil 
+ 
+G#m 
+Eu não vou morrer de fome 
+Eu não vou morrer de tédio 
+Eu não vou morrer pensando 
+Qual seria o remédio 
+ 
+F#m 
+Sei de cor seus comentários 
+Sobre o mal da alienação 
+Mas eu não vivo de salário 
+G#m 
+Eu não vivo de ilusão 
+ 
+A         C             D    F  E 
+Não levo fé nenhuma em nada! 
+A         C             D    F  E  (A) 
+Não levo fé nenhuma em nada!

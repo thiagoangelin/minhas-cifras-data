@@ -1,0 +1,47 @@
+The Rolling Stones - Mona 
+ 
+F 
+ 
+F 
+I say hey, Mona  
+Oh, Mona  
+I say yeah, yeah, yeah, yeah, Mona  
+Oh, Mona  
+ 
+F 
+I tell you Mona what I wanna do  
+I'll build a house next door to you  
+Can I see you sometimes?  
+We can blow kisses through the blinds  
+Yeah can I out come out on the front  
+And listen to my heart go bumpety bump  
+I need you baby that's no lie  
+Without your love I'd surely die  
+ 
+F 
+I say hey, Mona  
+Oh, Mona  
+I say yeah, yeah, yeah, yeah, Mona  
+Oh, Mona  
+ 
+F 
+I say hey, hey Mona  
+Oh, Mona  
+I say yeah, yeah, yeah, yeah, Mona  
+Oh, Mona  
+ 
+F 
+I tell you Mona what I wanna do  
+I'm gonna build a house next door to you  
+Can I see you sometime?  
+We can blow kisses through the blinds  
+Yeah can I out come out on the front  
+And listen to my heart go bumpety bump  
+I need you baby that's no lie  
+Without your love I'd surely die  
+ 
+F 
+I say hey, hey Mona  
+Oh, Mona  
+I say yeah, yeah, yeah, yeah, Mona  
+Oh, Mona

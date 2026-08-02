@@ -1,0 +1,56 @@
+John Lennon - Be Bop Lula 
+ 
+E 
+Be-bop-a-lula, she's my baby 
+Be-bop-a-lula, I don't mean maybe 
+A9 
+Be-bop-a-lula, she's my baby 
+E 
+Be-bop-a-lula, I don't mean maybe 
+B7               A9            E 
+Be-bop-a-lula, she's my baby love, my baby love, my baby  
+love 
+ 
+       E 
+Well, she's the girl in the red blue jeans 
+She's the queen of all the teens 
+She's the woman that I know 
+                     E7 
+She's the one that loves me do - say 
+ 
+A9 
+Be-bop-a-lula, she's my baby 
+E 
+Be-bop-a-lula, I don't mean maybe 
+B7 
+Be-bop-a-lula, she's my baby love, my baby love, my baby  
+love 
+ 
+Let's rock! 
+ 
+Solo:   E  B7  A9  E 
+ 
+Well, she's the woman that's got that beat 
+She's the woman with the flying feet 
+She's the woman that walks around the store 
+She's the one who wants me more, more, more, more 
+ 
+Be-bop-a-lula, she's my baby 
+Be-bop-a-lula, I don't mean maybe 
+Be-bop-a-lula, she's my baby 
+Be-bop-a-lula, I don't mean maybe 
+Be-bop-a-lula, she's my baby love, my baby love, my baby  
+love 
+ 
+Let's rock again! 
+ 
+Solo:  E  A9  E  B7  A9  E 
+ 
+Be-bop-a-lula, she's my baby 
+Be-bop-a-lula, I don't mean maybe 
+Be-bop-a-lula, she's my baby 
+Be-bop-a-lula, I don't mean maybe 
+B7              A9             E                           
+     E6 (add9) 
+Be-bop-a-lula, she's my baby love, my baby love, my baby  
+love

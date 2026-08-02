@@ -1,0 +1,53 @@
+System Of A Down - Peephole 
+ 
+ Afinação(C,G,C,F,A,D) 
+ Introdução 
+ 
+         Repete Introdução 
+         Repete Verso:1 
+         Repete Verso:2 
+         Repete Verso:3 
+         Repete Verso:4 
+ 
+Letra: 
+ 
+When your stars are baked, 
+And your rivers fly, 
+Do you ever believe you were stuck out in the, Sky, 
+ 
+When your castle breaks, 
+And your feet are dry, 
+Do you ever believe you were stuck out in the, Sky, 
+ 
+Do you believe, when you're high, 
+That your life is tried, 
+ 
+Don't you ever get stuck in the sky, 
+Don't you ever get stuck in the sky, 
+Don't ever get stuck in the sky, when you're high, 
+ 
+When your moon is fake, 
+And your mermaids cry, 
+Do you ever believe you were stuck out in the, Sky, 
+ 
+When your tunnel fades, 
+And your guide is shy, 
+Do you ever believe you were stuck out in the, Sky, 
+ 
+Do you believe, when you're high, 
+That your life is tried, 
+ 
+Don't you ever get stuck in the sky, 
+Don't you ever get stuck in the sky, 
+Don't ever get stuck in the sky, when you're high, 
+Don't you ever get stuck in the sky, 
+Don't you ever get stuck in the sky, 
+Don't ever get stuck in the sky, when you're high~ 
+ 
+Don't you ever get stuck in the sky, 
+Don't you ever get stuck in the sky, 
+Don't you ever get stuck in the sky, 
+Don't you ever get stuck in the sky, 
+Don't you ever get stuck in the sky, 
+Don't you ever get stuck in the sky, 
+Don't ever get stuck in the sky, when you're high

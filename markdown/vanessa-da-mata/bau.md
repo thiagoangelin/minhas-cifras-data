@@ -1,0 +1,55 @@
+Vanessa Da Mata - Bau 
+ 
+(G#m7 C#m7 ) Segue a Música Toda 
+ 
+(G#m7 C#m7 D#m7) Variação na Parte Final 
+ 
+Sabe de uma coisa Seu 
+Vou lhe jogar no meu baú 
+Vivo e mágico 
+Com as coisas boas que tem lá 
+ 
+Os meus desenhos herméticos 
+As palavras de Dalai Lama 
+Quem sabe você adora 
+Quem sabe se transformará 
+ 
+Meu bauzinho de memória 
+Os meus livrinhos de receita 
+Quem sabe se sensibiliza 
+Quem sabe se transformará 
+ 
+Vamos seguindo acordando cedo 
+Você só reclama não age 
+Você fica dormindo à tarde 
+E tudo vai dando nos nervos 
+ 
+Vamos seguindo acordando cedo 
+Você só reclama não age 
+Você fica dormindo à tarde 
+E tudo vai dando nos nervos 
+ 
+Não corre atrás das suas coisas 
+Vive aqui choramingando 
+Todos já foram embora 
+Você só sabe reclamar 
+ 
+A voz doce de João 
+Amansará sua revolta 
+A comida de Dona Vantina 
+Quem sabe se transformará 
+ 
+Rancoroso com raiva de tudo 
+Do fulano com seu carro novo 
+Não vê que ele trabalhou muito 
+Você pode se esforçar 
+ 
+Pois vamos seguindo acordando cedo 
+Você só reclama não age 
+Você fica dormindo à tarde 
+E tudo vai dando nos nervos 
+ 
+Vamos seguindo acordando cedo 
+Você só reclama não age 
+Você fica dormindo à tarde 
+E tudo vai dando nos nervos

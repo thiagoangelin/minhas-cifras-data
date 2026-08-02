@@ -1,0 +1,88 @@
+Oasis - Im Outta Time 
+ 
+[Intro]  
+ 
+            Em        C 
+La la la la laaaaaaaa aaaaa 
+            A7         C 
+La la la la laaaaaaaa laaaaa 
+            Em        C 
+La la la la laaaaaaaa aaaaa 
+            A7        C 
+La la la la laaaaaaaa laaaaa 
+ 
+Em 
+Here's a song 
+                      Bm 
+It reminds me of when we were young 
+                         Am 
+Looking back at all the things we've done 
+                   C 
+You gotta keep on keepin' on 
+ 
+Em 
+Out to sea 
+                    Bm 
+Is the only place I am honestly 
+                     Am 
+Can get myself some piece of mind 
+                       C 
+You know it's getting hard to fly 
+ 
+G 
+If I'm to fall 
+D/F# 
+Would you be there to applaud 
+Em 
+Or would you hide behind them all 
+                 Am 
+Cos if I have to go 
+                     C 
+In my heart you'll grow 
+                        G 
+And that's where you belong 
+ 
+[Solo] Em  Bm  Am  C  
+ 
+G 
+If I'm to fall 
+D/F# 
+Would you be there to applaud 
+Em 
+Or would you hide behind them all 
+                 Am 
+Cos if I have to go 
+                     C 
+In my heart you'll grow 
+                        G 
+And that's where you belong 
+ 
+G 
+If I'm to fall 
+D/F# 
+Would you be there to applaud 
+Em 
+Or would you hide behind them all 
+                 Am 
+Cos if I have to go 
+                     C 
+In my heart you'll grow
+
+                        G 
+And that's where you belong 
+ 
+G 
+Guess I'm out of time 
+G               G D/F# Em 
+I'm out of time 
+Em 
+I'm out of time 
+Am 
+I'm out of time 
+C 
+I'm out of time 
+ 
+"As Churchill said, 'It's every Englishman's inalienable right to live 
+where the hell he likes  
+What's it going to do, vanish? It's not going 
+to be there when I get back?"

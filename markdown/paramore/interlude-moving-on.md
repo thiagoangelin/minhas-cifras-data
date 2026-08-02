@@ -1,0 +1,59 @@
+Paramore - Interlude Moving On 
+ 
+                    G 
+Let 'em have their time 
+              B7 
+Sit back and let 'em shine 
+                  Em 
+Let 'em rise and rise 
+            C                 G 
+'Cause one day they're gonna fall 
+ 
+                     G 
+Let 'em soak in the sun 
+                           B7 
+Sit back and let 'em have their fun 
+               Em 
+Let 'em spill their guts 
+            C                         G 
+'Cause one day they're gonna slip on 'em 
+ 
+     G          B7            Em              C 
+Well I could be angry but you're not worth a fight 
+       G          C     G 
+And besides, I'm moving on 
+      G          B7          Em        C 
+I've counted to ten and I'm feeling alright 
+       G          C     G 
+And besides, I'm moving on 
+ 
+                    G 
+Let 'em play their songs 
+                    B7 
+Let 'em say what's right and wrong 
+                   Em 
+Let 'em do their thing 
+                C                G 
+'Cause they'll never be you and me 
+ 
+                 G 
+We got our own style 
+                 B7 
+We got a way of living life 
+                   Em 
+If they can't get down 
+          C                G 
+Well, we don't need them around 
+ 
+     G          B7            Em              C 
+Well I could be angry but you're not worth a fight 
+       G          C     G 
+And besides, I'm moving on 
+      G          B7          Em        C 
+I've counted to ten and I'm feeling alright 
+       G          C 
+And besides, I'm movin' 
+B7        Em 
+Yes, I'm movin' 
+       C          D     G 
+And besides, I'm moving on

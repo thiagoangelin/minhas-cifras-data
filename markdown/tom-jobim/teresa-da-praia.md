@@ -1,0 +1,35 @@
+Tom Jobim - Teresa Da Praia 
+ 
+ 
+C#m7       F#7                D#m7 
+Lúcio Arranjei novo amor no Leblon 
+      G#7    C#m7     Em7    D7M 
+Que corpo bonito, que pele morena 
+     G#7(b13)    C#m7 F#7       A7(9) F#7 
+Que amor de pequena, amar é tão bom! 
+  C#m7       F#7               D#m7 
+O Dick! Ela tem um nariz levantado, 
+    G#7      C#m7      Em7     D7M 
+Os olhos verdinhos bastante puxados 
+    G#7(b13) C#m7      F#7      F#m7 B7(9) 
+Cabelo castanho e uma pinta do lado 
+     Em7   D7M         D7M D6 
+É a minha Tereza da praia 
+     C#m7     F#7    B7M  B6 
+Se é tua é minha também 
+    Em7        A7      D7M D6 
+O verão passou todo comigo 
+     C#m7               F#7 G#7(b13) 
+O inverno pergunta com quem 
+       C#m7       F#7            D#m7 
+Então vamos a Tereza na praia deixar 
+      G#7      C#m7     Em7    D7M     G#7(b13) 
+Aos beijos do sol e abraços do mar Tereza 
+       C#m7     F#7     D#m7 
+É da praia, não é de ninguém 
+     G#7     C#m7          F#7     D#m7 D#m7 
+Não pode ser tua ... Nem minha também 
+G#7(b13)       C#7(9) C#m7 
+Tereza é da praia 
+E7M Eb7M  D7M C7M    B7M 
+Não é     de  nin...guém.

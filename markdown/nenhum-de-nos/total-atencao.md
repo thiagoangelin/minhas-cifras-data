@@ -1,0 +1,50 @@
+Nenhum De Nos - Total Atencao 
+ 
+D 
+Eu tinha algo importante a dizer 
+Mas nunca encontro a hora certa pra você 
+ 
+G                                          Em 
+São tantos temas, tantas coisas e assuntos 
+G                       Em                 A7 
+E tudo mais que existe ao redor do mundo 
+ 
+D 
+Cabeça baixa e as mãos em prece 
+Uma luz que ilumina mas seus olhos escurece 
+ 
+G                                    Em 
+São tantas fotos, tantos grupos e amigos 
+G                 Em                 A7 
+No meio disso tudo eu já estou perdido 
+ 
+G                     Em 
+Quando a gente começou 
+                          Bm 
+Você dizia ter olhos só pra mim 
+A7 
+Olhos só pra mim 
+ 
+G                    Em 
+Quando a gente começou 
+                     Bm 
+Você dizia coisas lindas 
+         A7 
+Pura poesia 
+ 
+             C 
+Mas agora eu sei 
+                       Am 
+Onde foi que você aprendeu 
+             C 
+Mas agora eu sei 
+                       Am 
+Aonde foi que você se perdeu 
+             C 
+Mas agora eu sei 
+         Am            D7 
+A coisa certa para lhe dizer: 
+ 
+(C  G  Am  D) 
+ 
+Lá Lá Lá....

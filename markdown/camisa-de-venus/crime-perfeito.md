@@ -1,0 +1,84 @@
+Camisa De Venus - Crime Perfeito 
+ 
+Intro: 2x E  G  D  E 
+ 
+B 
+Sexta-feira a noite 
+D  ( C#  C  C  B ) 
+Ele gasta a quinzena 
+B 
+Com uísque com garotas 
+( D  C#  C  C  B ) 
+Que nunca valem a pena 
+B 
+Procura pela claridade 
+( D  C#  C  C  B ) 
+O órfão da escuridão 
+B 
+Invadindo sinais vermelhos 
+(  D  C#  C  C  B ) 
+Apanhado na contramão 
+ 
+E                   G 
+Correndo por nossas vidas 
+D             E 
+Sem saber até onde 
+E                   G 
+Correndo por nossas vidas 
+D                     E 
+Ainda não fomos muito longe 
+ 
+B 
+De costas pra essa chuva 
+( D  C#  C  C  B ) 
+De frente pra parede 
+B 
+Lajes e roupas estão molhados 
+( D  C#  C  C  B ) 
+Mas o coração tem sede 
+B 
+Vive tentando matar o tempo 
+( D  C#  C   b>C  B ) 
+Pra ser um homem feliz 
+B 
+Achar que esse é o crime perfeito 
+( D  C#  C  C  B ) 
+Pois não se vê nem cicatriz 
+ 
+Refrão: 
+B 
+Sexta-feira a noite 
+( D  C# C  C  B ) 
+Ele gasta a quinzena 
+B 
+Com uísque com garotas 
+( D  C#  C  C  B )     
+Que nunca valem a pena 
+B 
+Procura pela claridade 
+(D  C#  C  C  B ) 
+O órfão da escuridão 
+B 
+Invadindo sinais vermelhos 
+( D  C#  C  C  B  ) 
+Apanhado na contramão 
+ 
+B 
+De costas pra essa chuva 
+( D  C#  C  C  B ) 
+De frente pra parede
+
+B 
+Lajes e roupas estão molhados 
+ (D  C#  C  C  B ) 
+Mas o coração tem sede 
+B 
+Vive tentando matar o tempo 
+( D  C#  C  C  B) 
+Pra ser um homem feliz 
+B 
+Achar que esse é o crime perfeito 
+(D  C# C C B) 
+Pois não se vê nem cicatriz 
+ 
+Refrão

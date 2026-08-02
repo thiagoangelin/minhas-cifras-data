@@ -1,0 +1,40 @@
+Luiz Gonzaga - A Mulher Do Meu Patrao 
+ 
+(intro)  E   D   A 
+ 
+         E                  D                 A 
+Eu tenho pena da mulher do meu patrão 
+        F#m            Bm           E                 A 
+Muito rica tao bonita, ai meu Deus que mulherão 
+          E                  D                 A 
+Nao tem meninos para não envelhecer 
+      F#m            Bm           E                 A 
+mas nervosa sofre muito por nao ter o que fazer 
+ 
+            D                E                 A 
+no atiço da panela, no batuque do pilão 
+             D                E                 A 
+tem somente 15 filhos mais o chacho do feijão 
+            D                E                 A 
+sarampo, catapora mais a roupa pra lavar 
+          D                E                 A 
+resfriado, tosse braba, lenha para carregar 
+          D                E                 A 
+pote na cabeça, tem xerém pra cozinhar 
+           D                E                 A 
+tira o leite da cabrinha, tem o bode pra soltar 
+D                E                 A 
+vivo com minha nega num ranchinho que eu fiz 
+       D                E                 A 
+não se queixa, não diz nada e se acha bem feliz 
+ 
+    D                                       A 
+Com tudo isso ainda sobra um tempinho 
+        Bm                   E               A 
+Um agrado, um carinho eu não quero nem dizer 
+D                                  A 
+Com tudo isso ainda sobra um tempinho 
+        Bm               E                 A 
+E um moleque sambudinho todo ano e pra nascer 
+ 
+(repete tudo)

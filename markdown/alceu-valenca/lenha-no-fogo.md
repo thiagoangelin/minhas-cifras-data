@@ -1,0 +1,36 @@
+Alceu Valenca - Lenha No Fogo 
+ 
+G         D7                  G 
+Gilberto baiano meu amigo do peito 
+G         D7                  G 
+Gilberto baiano meu amigo do peito 
+              D7                       G 
+Em cima ou embaixo, aquele abraço meu nego 
+              D7                       G 
+Em cima ou embaixo, aquele abraço meu nego 
+ 
+C                      G 
+No ano passado o seu frevo canção 
+    D7                G 
+Saudou os estados da federação 
+C                                   G 
+Logicamente, é claro, nem toda a galera sacou o recado 
+            D7                           G 
+Do entrevistado cantador baiano do interior 
+                    D7                     G 
+Oi bota a lenha no fogo que eu acendo a fogueira 
+                    D7                      G 
+Qualquer faísca no pano, o circo todo incendeia 
+         G7           C              G 
+Viva a aldeia global no dia de Zé Pereira 
+                D7                    G 
+O boi deitado levanta, Olinda toda vadeia 
+                 D7                      G 
+E no refrão de Capiba, Recife toda incendeia 
+ 
+               D7 
+Eu quero ver carvão queimar 
+               G 
+Eu quero ver queimar carvão 
+              D7                      G 
+Eu quero ver daqui a pouco pegar fogo no salão

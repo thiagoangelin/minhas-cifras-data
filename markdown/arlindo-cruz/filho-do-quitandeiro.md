@@ -1,0 +1,59 @@
+Arlindo Cruz - Filho Do Quitandeiro 
+ 
+ Introdução: C D7 Bm E7/9 Am7 D7 Dm G7 C D7 Bm E7/9 Am7 
+D7 G 
+    D7            G 
+O filho do quitandeiro 
+   E7          Am 
+Adora perder a linha 
+                      D7 
+Cantando a mulher dos outros 
+                      G 
+Só não vai cantar a minha 
+ 
+    D7                G 
+Faz tempo que eu tô ligado 
+     G7          C 
+Nesse mal procedimento 
+                     G E7 
+Vacilou, não sobe mais 
+  Am       D7   G 
+O morro do Juramento 
+ 
+D7                  G 
+Cobra a metade do preço 
+            E7               Am 
+Mamão, melância, laranja e maçã 
+                    D7 
+Se a moça for bem dotada 
+                    G 
+Canta a moça e a irmã 
+ 
+        G7       C 
+Já tem gente injuriada 
+      D7       Bm 
+Tem marido ciumento 
+     E7           Am 
+Vacilão não sobe mais 
+  D7            G 
+O morro do Juramento 
+ 
+D7                     G 
+Dá mais de um quilo de uva 
+         E7                 Am 
+E ainda abusa mandando gracejo 
+                    D7 
+Se a moça for bem dotada 
+                    G 
+Manda uva e joga um beijo 
+ 
+        G7           C 
+Eu já estou desconfiado 
+      D7             Bm 
+Tá chegando o seu momento 
+     E7            Am 
+Vacilão não sobe mais 
+    D7          G 
+O morro do Juramento 
+ 
+Solo: C D7 Bm E7/9 Am7 D7 G G7

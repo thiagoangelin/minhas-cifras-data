@@ -1,0 +1,47 @@
+Luiz Gonzaga - No Ceara Nao Tem Disso Nao 
+ 
+ 
+      D7 
+Tenho visto tanta coisa 
+Nesse mundo de meu Deus 
+Coisas que prum cearense 
+Não existe explicação 
+Qualquer pinguinho de chuva 
+Fazer uma inundação 
+Moça se vestir de cobra 
+E dizer que é distração 
+                G 
+Vocês cá da capital 
+       A7               D 
+Me adesculpe esta expressão 
+ 
+Refrão: 
+ 
+No Ceará não tem disso não, 
+              A7                 D 
+Não tem disso não, não tem disso não 
+No Ceará não tem disso não, 
+              A7                 D 
+Não tem disso não, não tem disso não 
+G         D 
+Não, não, não, 
+      A7               D 
+No Ceará não tem disso não, 
+Não, não, não, 
+No Ceará não tem disso não, 
+ 
+                          D7 
+Nem que eu fique aqui dez anos 
+Eu não me acostumo não 
+Tudo aqui é diferente 
+Dos costumes do sertão 
+Num se pode comprar nada 
+Sem topar com tubarão 
+Vou voltar pra minha terra 
+No primeiro caminhão 
+                    G 
+Vocês vão me adesculpar 
+        A7              D 
+Mas arrepito essa expressão: 
+ 
+Refrão

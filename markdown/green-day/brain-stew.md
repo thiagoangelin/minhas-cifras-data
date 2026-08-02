@@ -1,0 +1,52 @@
+Green Day - Brain Stew 
+ 
+  A5        G5               F#5  F5  E5 
+I'm having trouble trying to sleep 
+  A5           G5              F#5  F5 E5 
+I'm counting sheep but running out 
+ A5           G5   F#5         F5 E5 
+As time ticks by,  And l still try 
+  A5           G5           F#5   F5        E5 
+No rest for crosstops in my mind. On my own here we go 
+ 
+( A5  G5  F#5  F5  E5 ) 
+( A5  G5  F#5  F5  E5 ) 
+ 
+A5           G5                    F#5   F5 E5 
+My eyes feel like they're going to bleed 
+A5           G5              F#5  F5 E5 
+Dried up and bulging out my skull 
+A5          G5   F#5        F5 E5 
+My mouth is dry. My face is numb 
+A5              G5           F#5   F5       E5 
+Fucked up and spun out in my room. On my own here we go 
+ 
+( A5  G5  F#5  F5  E5 ) 
+( A5  G5  F#5  F5  E5 ) 
+ 
+A5         G5         F#5   F5 E5 
+My mind is set on overdrive 
+A5           G5             F#5 
+The clock is laughing in my face 
+A5        G5     F#      F5  E5 
+A crooked spine. My sense dulled 
+A5               G5     F#5   F5        E5 
+Passed the point of delirium. On my own here we go 
+ 
+( A5  G5  F#5  F5  E5 )  
+( A5  G5  F#5  F5  E5 ) 
+ 
+A5           G5                    F#5   F5 E5 
+My eyes feel like they're going to bleed 
+A5           G5              F#5  F5 E5 
+Dried up and bulging out my skull 
+A5          G5   F#5        F5 E5 
+My mouth is dry. My face is numb 
+A5              G5           F#5   F5       E5 
+Fucked up and spun out in my room. On my own here we go 
+ 
+[Final] A5  G5  F#5  F5  E5 
+        A5  G5  F#5  F5  E5   
+        A5  G5  F#5  F5  E5  
+        A5  G5  F#5  F5  E5   
+        A5

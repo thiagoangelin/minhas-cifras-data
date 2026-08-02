@@ -1,0 +1,44 @@
+Beth Carvalho - Goibada Cascao 
+ 
+Um dia, o Sérgio Cabral falou que o Dino do violão era 
+goiabada-cascão em caixa, coisa assim muito rara. 
+Então, pra nós agora, tudo que é coisa rara, difícil de achar, 
+virou goiabada-cascão. 
+             A  F#7 Bm            E7 
+Goiabada-cascão em caixa é coisa fina sinhá 
+                 (C#m F#7 Bm7 E7 A) 
+Que ninguém mais acha 
+Rango de fogão de lenha 
+             F#7               Bm7 
+Na festa da Penha comido com a mão 
+               E7                 A 
+Já não tem na praça mas como era bom 
+Bm7      E7        A 
+Hoje só tem misto-quente 
+             F#7            Bm7 
+Só tem milk-shake, só tapeação 
+                 E7                  A F#7 Bm7 
+Já não tem mais caixa de goiabada-cascão 
+(refrão) 
+Samba de partido alto 
+             F#7               Bm7 
+Com faca no prato e batido na mão 
+              E7                   A 
+Já não tem na praça, mas como era bom 
+                                       F#7 
+Hojé só tem discoteque, só tem som de black 
+       Bm7                   E7 
+Só imitação, já não em mais caixa 
+                A 
+De goiabada-cascão 
+(refrão) 
+                                  F#7 
+Vida na casa de vila correndo tranquila 
+            Bm7                E7 
+Sem perturbação já não tem na praça 
+             A    Bm7     E7       A 
+Mas como era bom, Hoje só tem conjugado 
+               F#7               Bm7 
+Que é mais apertado do que barracão 
+                 E7                  A 
+Já nao tem mais caixa de goiabada-cascão

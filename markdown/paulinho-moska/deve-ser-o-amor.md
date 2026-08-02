@@ -1,0 +1,86 @@
+Paulinho Moska - Deve Ser O Amor 
+ 
+[Intro] Am 
+ 
+            Am 
+Quando eu quero falar com você 
+ Am 
+Mesmo não estando tão perto 
+F             G              Am 
+Uma canção escrevo então por aqui 
+ Am 
+É só mais uma canção 
+ Am 
+Dessas que se ouvem por aí 
+     F             G              Am 
+Mais um refrão só pra você descobrir 
+F 
+Que nesse exato momento 
+               Am 
+Me deu uma vontade de lhe dizer 
+               F 
+Que eu não consigo olhar pro outro lado 
+             Am 
+Deve ser o amor que sinto por você 
+ 
+ Am 
+Ah la la la la la la 
+             F                   G 
+Deve ser o amor que sinto por você 
+ Am 
+Ah la la la la la la 
+             F             G     Am 
+Deve ser o amor que sinto por você 
+ 
+Am 
+Noites e dias se vão 
+Am 
+Tudo continua solidão 
+   F            G 
+O mesmo céu, o mesmo mar 
+         Am 
+Não tem fim 
+Am 
+Ah! se eu não tivesse essa canção 
+Am 
+Para me deitar junto a você 
+     F         G        Am 
+Meu coração fugiria de mim 
+        F 
+Porque nesse exato momento 
+               Am 
+Me deu uma vontade de lhe dizer 
+               F 
+Que eu não consigo olhar pro outro lado 
+             Am 
+Deve ser o amor que sinto por você 
+ 
+ Am 
+Ah la la la la la la 
+             F                   G 
+Deve ser o amor que sinto por você 
+ Am 
+Ah la la la la la la 
+             F             G     Am 
+Deve ser o amor que sinto por você 
+ 
+ Am 
+Ah la la la la la la 
+             F                   G
+
+Deve ser o amor que sinto por você 
+ Am 
+Ah la la la la la la 
+             F             G     Am 
+Deve ser o amor que sinto por você 
+ 
+             Am 
+Deve ser o amor 
+F                   Am 
+  Que sinto por você 
+             Am 
+Deve ser o amor 
+F                   Am 
+  Que sinto por você 
+             Am 
+Deve ser o amor

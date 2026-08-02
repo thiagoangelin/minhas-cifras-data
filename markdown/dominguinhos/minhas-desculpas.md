@@ -1,0 +1,91 @@
+Dominguinhos - Minhas Desculpas 
+ 
+Int: (Bm7 F#m7 Em7 D) 4 vezes 
+ 
+          Bm7              F#m7 
+Minhas desculpas à você menina 
+          Em7             D 
+Por essa hora lhe telefonar 
+             Bm7                F#m7 
+É que a lembrança vem com a saudade 
+                  Em7 
+Quando a saudade vem 
+                F#m7 
+Não dá pra segurar 
+Bm7        F#m7 
+Não...Não dá 
+                  Em7                D 
+Quando a saudade vem não dá pra segurar 
+ 
+          Bm7              F#m7 
+Minhas desculpas à você menina 
+          Em7             D 
+Por essa hora lhe telefonar 
+             Bm7                F#m7 
+É que a lembrança vem com a saudade 
+                  Em7 
+Quando a saudade vem 
+                F#m7 
+Não dá pra segurar 
+Bm7        F#m7 
+Não...Não dá 
+                  Em7                D 
+Quando a saudade vem não dá pra segurar 
+          Bm7                    F#m7 
+Que bom seria se eu mandasse em mim 
+      Em7 
+Mas qual o que 
+              D 
+O que mais magoa 
+           Bm7                  F#m7 
+É meu coração que está ficando velho 
+              Em7                   D 
+Está ficando velho e se apaixona à toa 
+          Bm7                  F#m7 
+É meu coração que está ficando velho 
+              G                    Em7  D   (Bm7 F#m7 Em7 D) 4 vezes 
+Está ficando velho e se apaixona à to...a   
+          Bm7              F#m7 
+Minhas desculpas à você menina 
+          Em7             D 
+Por essa hora lhe telefonar 
+             Bm7                F#m7 
+É que a lembrança vem com a saudade 
+                  Em7 
+Quando a saudade vem 
+                F#m7 
+Não dá pra segurar 
+Bm7        F#m7 
+Não...Não dá 
+                  Em7                D 
+Quando a saudade vem não dá pra segurar 
+ 
+       Bm7              F#m7 
+Minhas desculpas à você menina 
+          Em7             D 
+Por essa hora lhe telefonar 
+             Bm7                F#m7 
+É que a lembrança vem com a saudade 
+                  Em7
+
+Quando a saudade vem 
+                F#m7 
+Não dá pra segurar 
+Bm7        F#m7 
+Não...Não dá 
+                  Em7                D 
+Quando a saudade vem não dá pra segurar 
+          Bm7                    F#m7 
+Que bom seria se eu mandasse em mim 
+      Em7 
+Mas qual o que 
+              D 
+O que mais magoa 
+           Bm7                  F#m7 
+É meu coração que está ficando velho 
+              Em7                   D 
+Está ficando velho e se apaixona à toa 
+          Bm7                  F#m7 
+É meu coração que está ficando velho 
+              G                    Em7  D   Bm7 F#m7 Em7 D... 
+Está ficando velho e se apaixona à to...a

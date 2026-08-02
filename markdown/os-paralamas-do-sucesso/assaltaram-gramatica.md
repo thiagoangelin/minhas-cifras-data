@@ -1,0 +1,24 @@
+Os Paralamas Do Sucesso - Assaltaram Gramatica 
+ 
+  Introdução -  C#m   E   B 
+Tom - E 
+ 
+E                  C#m       E 
+Assaltaram a gramática 
+                 C#m       A 
+Assassinaram a lógica 
+             F#m A               G#m  F#m 
+Meteram poesia, na bagunça do dia-a-dia 
+E                C#m 
+Sequestraram a fonética 
+E                C#m 
+Violentaram a métrica 
+A           F#m A           G#m   F#m    E 
+Meteram poesia onde devia e não devia 
+C#m       G#m 
+Lá vem o poeta com sua coroa de louro 
+G#                A 
+Agrião, pimentão, boldo 
+    F#m        G#m        C#m 
+O poeta é a pimenta do planeta 
+Malagueta
